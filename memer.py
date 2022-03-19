@@ -1,14 +1,19 @@
-import scrapy
+import scrapy, os
 from scrapy.crawler import CrawlerProcess
 
 class memerSpider(scrapy.Spider):
 	"""Collect all meme dumps from front page of Ebaumsworld.
 	Output to HTML without ads, comments, categories, users, etc..."""
 
-	name = 'memer'
-	#allowed_domains = ['www.ebaumsworld.com/']
+	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
 	start_urls = ['https://www.ebaumsworld.com']
+	outputHtml = 'output.html'
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
+	
+	try:
+		os.remove(outputHtml)
+	except:
+		pass
 
 	def parse(self, response): # Get links for any list item in 'Featured' front page
 		for url in response.xpath('//div[@class="featureFeedDetails"]//header/h2/a/@href').getall():
@@ -35,8 +40,8 @@ class memerSpider(scrapy.Spider):
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
 				html += f'<font size="4">{title}</font><br><img src="{link}" style="width:100%"><br>\n\n'
-			
-		with open('frontpage.html', 'a+') as w:
+
+		with open(self.outputHtml, 'a+', encoding="utf-8") as w: 
 			w.write(html)
 
 if __name__ == "__main__":
