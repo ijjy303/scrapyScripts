@@ -22,8 +22,7 @@ class memerSpider(scrapy.Spider):
 			excludeDomain = ['https://www.ebaumsworld.com/videos', 'https://www.ebaumsworld.com/articles', 'https://gaming.ebaumsworld.com/']
 			if any(dmain in fullLink for dmain in excludeDomain):
 				pass # Do nothing if not meme dump
-			else:
-				# Cannot pass enumerated for loop with fullLink cuz meme dumps occur randomly in the wild
+			else: # Cannot pass enumerated for loop with fullLink cuz meme dumps occur randomly in the wild
 				yield scrapy.Request(fullLink, callback=self.recursiveParse) # Run meme crawler on correct link
 
 	def recursiveParse(self, response):
