@@ -3,7 +3,7 @@
 <head>
 <meta charset="utf-8"/>
 <b><font size="6">All ur Memez R belog to Uz</b><br></font>
-<font size="4">Last updated: 03/19/2022-23:47:03</font><br><br><font size="6"><u><b><a href="#2" id="1">24 People Who Are Just Plain Stupid</a></u></b></font><br><br><br>
+<font size="4">Last updated: 03/19/2922-23:47:03</font><br><br><font size="6"><u><b><a href="#2" id="1">24 People Who Are Just Plain Stupid</a></u></b></font><br><br><br>
 
 <font size="4">I think just cut your losses and go to the ER.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
 
@@ -237,8 +237,10 @@
 
 <font size="4">“This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
 
-<font size="4">“When I resigned, my boss told people to not get me anything for my farewell.”
-
+<font size="4">“When I resigned, my boss told people to not get me anything for my farewell.”
+
+
+
 “Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
 
 <font size="4">“Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
