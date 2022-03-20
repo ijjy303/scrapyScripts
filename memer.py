@@ -20,7 +20,7 @@ class memerSpider(scrapy.Spider):
 	Output to HTML without ads, comments, categories, users, etc..."""
 
 	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
-	start_urls = ['https://www.ebaumsworld.com/pictures/?page=1']#['https://www.ebaumsworld.com']
+	start_urls = ['https://www.ebaumsworld.com'] #['https://www.ebaumsworld.com/pictures/?page=1']
 	outputHtml = 'README.md'#'output.html'
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
 	hdr = f'# All ur Memez R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
@@ -33,8 +33,8 @@ class memerSpider(scrapy.Spider):
 		pass
 
 	def parse(self, response): # Get links for any list item in 'Featured' front page
-		for url in response.xpath('//li[@class="listingThumb"]//a/@href').getall():#('//div[@class="featureFeedDetails"]//header/h2/a/@href').getall():
-			fullLink = f'https://www.ebaumsworld.com{url}'#{self.start_urls[0].split("/")[0:2]}{url}'fullLink = f'{self.start_urls[0]}{url}'
+		for url in response.xpath('//div[@class="featureFeedDetails"]//header/h2/a/@href').getall(): #('//li[@class="listingThumb"]//a/@href').getall():
+			fullLink = f'{self.start_urls[0].split("/")[0:2]}{url}' #'https://www.ebaumsworld.com{url}' # fullLink = f'{self.start_urls[0]}{url}'
 			# Not interested in videos, articles, news... just the memes!
 			excludeDomain = ['https://www.ebaumsworld.com/videos', 'https://www.ebaumsworld.com/articles', 'https://gaming.ebaumsworld.com/']
 			if any(dmain in fullLink for dmain in excludeDomain):
