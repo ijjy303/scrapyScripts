@@ -34,7 +34,7 @@ class memerSpider(scrapy.Spider):
 
 	def parse(self, response): # Get links for any list item in 'Featured' front page
 		for url in response.xpath('//div[@class="featureFeedDetails"]//header/h2/a/@href').getall(): #('//li[@class="listingThumb"]//a/@href').getall():
-			fullLink = f'{self.start_urls[0].split("/")[0:2]}{url}' #'https://www.ebaumsworld.com{url}' # fullLink = f'{self.start_urls[0]}{url}'
+			fullLink = f'{self.start_urls[0]}{url}' #'https://www.ebaumsworld.com{url}' # fullLink = f'{self.start_urls[0]}{url}'
 			# Not interested in videos, articles, news... just the memes!
 			excludeDomain = ['https://www.ebaumsworld.com/videos', 'https://www.ebaumsworld.com/articles', 'https://gaming.ebaumsworld.com/']
 			if any(dmain in fullLink for dmain in excludeDomain):
