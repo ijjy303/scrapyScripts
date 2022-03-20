@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/20/2022-14:16:30
+Last updated: 03/20/2022-14:17:09
 <br>
 ## <a href="#2" id="1">30 Things Found After A Really Long Time</a><br>
 
@@ -23,7 +23,7 @@ Last updated: 03/20/2022-14:16:30
 
 ###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
 
-###### 11. This Washed Ashore From ëDorianí. ìPlease Donít Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some Moreî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
+###### 11. This Washed Ashore From ‚ÄòDorian‚Äô. ‚ÄúPlease Don‚Äôt Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
 
 ###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
 
@@ -43,19 +43,19 @@ Last updated: 03/20/2022-14:16:30
 
 ###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
 
-###### 21. This WWII Newspaper Of Germanyís Surrender Found In My Grandparentís Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
+###### 21. This WWII Newspaper Of Germany‚Äôs Surrender Found In My Grandparent‚Äôs Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
 
 ###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
 
 ###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
 
-###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfatherís Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
+###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather‚Äôs Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
 
 ###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
 
-###### 26. Found This ìWhite Couchî In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
+###### 26. Found This ‚ÄúWhite Couch‚Äù In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
 
-###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ë86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
+###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‚Äò86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
 
 ###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
 
@@ -63,181 +63,7 @@ Last updated: 03/20/2022-14:16:30
 
 ###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">21 Health Signs Nobody Should Ignore</a><br>
-
-###### 1. When youre dehydrated and still throwing up<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126355.jpg" style="width:100%"><br>
-
-###### 2. If your pee is so dark that it looks like Guinness, go to the hospital immediately.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126342.jpg" style="width:100%"><br>
-
-###### 3. Losing the ability to see color in one or more eye, sign of major issue in brain.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126343.jpg" style="width:100%"><br>
-
-###### 4. You took a new medicine and your throat is closing up. Anaphylaxis can kill you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126344.jpg" style="width:100%"><br>
-
-###### 5. The worst headache of your life, which came on very quickly. (Also known as a Thunderclap headache). Even with no other symptoms, this needs to be looked at immediately. Could be any range of things, but what theyre most concerned with is a ruptured aneurysm.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126345.jpg" style="width:100%"><br>
-
-###### 6. When you throw up and it looks like coffee grounds.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126341.jpg" style="width:100%"><br>
-
-###### 7. Signs of stroke.
-
-Face or mouth drooping
-
-Arm weakness
-
-Speech slurred
-
-Time to call an ambulance
-
-So think FAST<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126346.jpg" style="width:100%"><br>
-
-###### 8. A feeling of impending doom. Really, its actually considered a clinical sign and can indicate impending stroke, heart attack, or other things. Can also be a panic attack but if it comes out of nowhere and isnt associated with a known anxiety disorder, dont be afraid to take it seriously.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126347.jpg" style="width:100%"><br>
-
-###### 9. If one of your pupils is fully dilated to the point you can barely see your iris, but the other eye is normal. Get your butt to the E.R Stat.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126348.jpg" style="width:100%"><br>
-
-###### 10. Growing pain in your back near your kidney? Stones. Go to the hospital before the pain gets unbearable.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126349.jpg" style="width:100%"><br>
-
-###### 11. Sudden hearing loss. The faster you get to the hospital the better the chances of reversing it (statistically)
-
-In my case I left it two weeks and Iím now living with tinnitus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126350.jpg" style="width:100%"><br>
-
-###### 12. You were told 48 hours ago that you had gastroenteritis (stomach flu) and you did everything the doc said and not only dont you feel better, you feel worse.
-
-There are a lot of things it could be, but gastroenteritis is probably not it, and some of the other possibilities are potentially lethal.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126351.jpg" style="width:100%"><br>
-
-###### 13. For women on birth control: serious shortness of breath (as in a relatively healthy person being winded just walking to/from car) and unexplained pain in your legs, mainly inside thighs. Blood clots/embolisms. They can kill you VERY fast if they break loose and travel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126352.jpg" style="width:100%"><br>
-
-###### 14. I had a headache for a week and was getting confused at work.
-
-2 brain tumors and hydrocephalus led to immediate intake<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126353.jpg" style="width:100%"><br>
-
-###### 15. You were bit by an animal. ALWAYS ASSUME IT WAS RABID. if you donít get rabies treatment within something like 48 hours you could cross the threshold into guaranteed death.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126354.jpg" style="width:100%"><br>
-
-###### 16. Sudden onset abdominal pain and vomiting. Appendicitis doesnít always present as pain in the lower right quadrant. If it bursts youíre f*cked.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126356.jpg" style="width:100%"><br>
-
-###### 17. Skin/white of the eyes turning yellow. This probably caused by accumulation of bilirubin in the blood which can be caused by severe liver failure.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126357.jpg" style="width:100%"><br>
-
-###### 18. When that wound you got on your foot by stepping on a rusty nail smells like rot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126358.jpg" style="width:100%"><br>
-
-###### 19. If you have chest pain and especially if its combined with sweating, nausea/vomiting, left arm pain, and/or a sense of impending doom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126359.jpg" style="width:100%"><br>
-
-###### 20. Wife had a pain in her shoulder and told me about it. Said it was uncomfortable but not a big deal. I told her to send her doctor a message. Went in for an appointment immediately. She had internal bleeding from an ectopic pregnancy and had about 12 oz of blood floating around in her.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126360.jpg" style="width:100%"><br>
-
-###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
-
-## <a href="#4" id="3">24 People Who Are Just Plain Stupid</a><br>
-
-###### 1. I think just cut your losses and go to the ER.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
-
-###### 2. This person should not be a parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126040.jpg" style="width:100%"><br>
-
-###### 3. Strum bowling is my absolute favorite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126041.jpg" style="width:100%"><br>
-
-###### 4. I mean they cant talk - must not have brains. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126042.jpg" style="width:100%"><br>
-
-###### 5. 62 the grease. 63 the grease. 64 the grease! OMG!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126043.jpg" style="width:100%"><br>
-
-###### 6. Why though? We need answers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126039.jpg" style="width:100%"><br>
-
-###### 7. Wait what? Ohh, I see what youre trying to say.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126038.jpg" style="width:100%"><br>
-
-###### 8. Toilet trees is technically right when you say it out loud.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126045.jpg" style="width:100%"><br>
-
-###### 9. But like for how long? I have a very busy day today.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126046.jpg" style="width:100%"><br>
-
-###### 10. Yeah guys, come on. Is it really that hard?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126047.jpg" style="width:100%"><br>
-
-###### 11. I would go to church much more often if were lighting cannons there.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126051.jpg" style="width:100%"><br>
-
-###### 12. Build a-pond is definitely a new one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126052.jpg" style="width:100%"><br>
-
-###### 13. This seems a bit racist.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126048.jpg" style="width:100%"><br>
-
-###### 14. Sally Manilla sounds like a stripper name.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126053.jpg" style="width:100%"><br>
-
-###### 15. Mmm poop puree. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126055.jpg" style="width:100%"><br>
-
-###### 16. Oof. So close, but no cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126056.jpg" style="width:100%"><br>
-
-###### 17. Thats not a branch.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126058.jpg" style="width:100%"><br>
-
-###### 18. Speed dominator sounds so much more bada**<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126059.jpg" style="width:100%"><br>
-
-###### 19. Im so confused by this.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126060.jpg" style="width:100%"><br>
-
-###### 20. Finishing off those aarons one by one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126062.jpg" style="width:100%"><br>
-
-###### 21. Did someone from Georgia write this?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126063.jpg" style="width:100%"><br>
-
-###### 22. GENTLEMEN, STARCH YOUR ENGINES.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126064.jpg" style="width:100%"><br>
-
-###### 23. Never ever been whered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126065.jpg" style="width:100%"><br>
-
-###### 24. I love swimming in the at land tick oat shin.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
-
-## <a href="#5" id="4">31 Dank Memes from The Twitter-verse</a><br>
-
-###### 1. Aint that the truth. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124775.jpg" style="width:100%"><br>
-
-###### 2. Being an adult is hard. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124776.jpg" style="width:100%"><br>
-
-###### 3. An actor ponders their choices. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124777.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124778.jpeg" style="width:100%"><br>
-
-###### 5. Its entirely possible. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124779.jpeg" style="width:100%"><br>
-
-###### 6. Someone requests an update. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124780.jpeg" style="width:100%"><br>
-
-###### 7. He has a point. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124781.jpg" style="width:100%"><br>
-
-###### 8. A man waxes nostalgic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124782.jpeg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124783.png" style="width:100%"><br>
-
-###### 10. A man has no chance. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124784.jpg" style="width:100%"><br>
-
-###### 11. Technically correct. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124785.jpeg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124786.jpeg" style="width:100%"><br>
-
-###### 13. Its a special kind of awkwardness. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124787.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124788.jpeg" style="width:100%"><br>
-
-###### 15. Took me a couple tries. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124789.jpg" style="width:100%"><br>
-
-###### 16. Someone is enthralled by a birds wicked stache. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124790.jpeg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124791.jpeg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124792.jpeg" style="width:100%"><br>
-
-###### 19. Universal appeal. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124793.jpeg" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124794.jpg" style="width:100%"><br>
-
-###### 21. A joke about Nurse email signatures Im sure everyone will be able to relate to. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124795.png" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124796.png" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124797.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124798.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124799.jpeg" style="width:100%"><br>
-
-###### 26. Nothing changes. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124800.png" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124801.jpeg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124802.jpg" style="width:100%"><br>
-
-###### 29. A tweet about something.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124803.jpg" style="width:100%"><br>
-
-###### 30. Now thats an idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124804.jpeg" style="width:100%"><br>
-
-###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124805.jpg" style="width:100%"><br>
-
-## <a href="#6" id="5">31 "Influencers" Who Just Arrived From Planet Cringe</a><br>
+## <a href="#3" id="2">31 "Influencers" Who Just Arrived From Planet Cringe</a><br>
 
 ###### 1. Its going to suck, cost you money and Im going to overwork you. But, if you work hard at the job for a quarter of the year, you might <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125590.jpg" style="width:100%"><br>
 
@@ -293,113 +119,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125602.jpg" style="width:100%"><br>
 
-## <a href="#7" id="6">29 Fresh Memes That Deal in Dankness</a><br>
-
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
-
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
-
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
-
-## <a href="#8" id="7">27 Moments People Proved Insanely Unlucky</a><br>
-
-###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
-
-###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
-
-###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
-
-###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
-
-###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
-
-###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
-
-###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
-
-###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
-
-###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
-
-###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
-
-###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
-
-###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
-
-###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
-
-###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
-
-###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
-
-###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
-
-###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
-
-###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
-
-## <a href="#9" id="8">Best Summer Camp Movies Ever</a><br>
+## <a href="#4" id="3">Best Summer Camp Movies Ever</a><br>
 
 ###### 1. Heavyweights - My personal favorite, and a Ben Stiller classic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
 
@@ -441,7 +161,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 20. Grown Ups - Say what you want about Adam Sandler movies, but this one has its bright spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
 
-## <a href="#10" id="9">25 Funny Headlines From Messed Up World </a><br>
+## <a href="#5" id="4">25 Funny Headlines From Messed Up World </a><br>
 
 ###### 1. Was the photo album made of steel? And why is she so happy about it? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
 
@@ -493,7 +213,313 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 25. The headline is true but the story wasnt exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream cant he. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
 
-## <a href="#11" id="10">51 Choice Randoms For Your Weekly Enjoyment</a><br>
+## <a href="#6" id="5">37 Awesome Randoms to Save Your Day</a><br>
+
+###### 1. Check. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126072.jpeg" style="width:100%"><br>
+
+###### 2. Some things cannot be unseen. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126073.gif" style="width:100%"><br>
+
+###### 3. The badass armor of Holy Roman Emperor Ferdinand II<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126074.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126075.jpg" style="width:100%"><br>
+
+###### 5. Cat fact: <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126076.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126077.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126078.jpg" style="width:100%"><br>
+
+###### 8. Satsifying. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126079.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126080.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126081.gif" style="width:100%"><br>
+
+###### 11. A doggo being oddly satisfying. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126082.gif" style="width:100%"><br>
+
+###### 12. A panda shows some attitude. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126083.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126084.gif" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126085.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126086.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126087.jpg" style="width:100%"><br>
+
+###### 17. An incredibly unsafe way to commute. Possibly invented by a hamster. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126088.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126089.jpg" style="width:100%"><br>
+
+###### 19. A perfectly looped hamster snacking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126090.gif" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126091.jpg" style="width:100%"><br>
+
+###### 21. Some men just want to watch the world burn. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126092.jpg" style="width:100%"><br>
+
+###### 22. A very shiny specimen of a horse. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126093.jpg" style="width:100%"><br>
+
+###### 23. Nip is a  hell of a drug. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126094.gif" style="width:100%"><br>
+
+###### 24. A fact that uplifts some, depresses others. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126095.jpg" style="width:100%"><br>
+
+###### 25. We could all use a new hobby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126096.jpg" style="width:100%"><br>
+
+###### 26. A juvenile fox finds a trophy. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126097.jpg" style="width:100%"><br>
+
+###### 27. This iridescent peacock might be the prettiest bird in the world. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126098.jpeg" style="width:100%"><br>
+
+###### 28. An original gangsta. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126099.jpeg" style="width:100%"><br>
+
+###### 29. Someone flexes their tattoo, literally. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126100.jpg" style="width:100%"><br>
+
+###### 30. A good Samaritan worries aloud about Talyor Swifts ovarian health. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126101.jpg" style="width:100%"><br>
+
+###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126102.jpg" style="width:100%"><br>
+
+###### 32. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126103.jpg" style="width:100%"><br>
+
+###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126104.jpg" style="width:100%"><br>
+
+###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126105.png" style="width:100%"><br>
+
+###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126106.jpg" style="width:100%"><br>
+
+###### 36. Can we get a status update from the cameraman?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126107.jpg" style="width:100%"><br>
+
+###### 37. Size matters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
+
+## <a href="#7" id="6">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
+
+###### 1. Arnold Schwarzenegger gave us a rallying speech from the comfort of his own home. Oh yeah in his hot tub...smoking a cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126698.jpg" style="width:100%"><br>
+
+###### 2. Kim Kardashian pleaded with the internet to social distance while her mother sat across the table from her. Keep in mind this was peak pandemic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126699.jpg" style="width:100%"><br>
+
+###### 3. Priyanka Chopra was seemingly clapping for healthcare workers? But in the video she posted on Twitter, it just looks like she truly appreciates her massive yard.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126700.jpg" style="width:100%"><br>
+
+###### 4. Sam Smith had a mental breakdown, and took pictures of the process.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126702.jpg" style="width:100%"><br>
+
+###### 5. Jennifer Annistons dog was sad. He also has an entire mansion and gorgeous view.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126703.jpg" style="width:100%"><br>
+
+###### 6. Drake was clearly having a rough go of it. The rapper posted an Instagram story from his private basketball court. Life must be tough.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126701.jpg" style="width:100%"><br>
+
+###### 7. Katy Perry was trolled into thinking that people were singing her song Roar on their balconies in Italy. Lol it was all fake.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126704.jpg" style="width:100%"><br>
+
+###### 8. The cringiest video I may have ever seen in my life. Gal Gadot and multiple other wealthy celebs singing Imagine.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126706.jpg" style="width:100%"><br>
+
+###### 9. Vanessa Carlton poked fun at her own song.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126705.jpg" style="width:100%"><br>
+
+###### 10. Sia attempted to look like she was doing her part. Whatever that means.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126707.jpg" style="width:100%"><br>
+
+###### 11. Madonna fell for the same trolling as our girl Katy Perry. Its literally the same video.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126708.jpg" style="width:100%"><br>
+
+###### 12. Madonna took to the internet once again to sing a cover of her own song. The cover complains about the lack of pasta, and the frying of fish.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126710.jpg" style="width:100%"><br>
+
+###### 13. Jennifer Lopez showed us a glimpse of her weird house, and it looks like they just got filming Parasite. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126711.jpg" style="width:100%"><br>
+
+###### 14. Evangeline Lily posted some weird sh*t. None weirder than her hashtag Business as usual when bragging about her kids going to gymnastics.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126714.jpg" style="width:100%"><br>
+
+###### 15. JLO took a weird selfie in which there is clearly a screaming/struggling man in the background.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126712.jpg" style="width:100%"><br>
+
+###### 16. Madonna took a glamorous bath in her home, and lectured about how covid is a great equalizer.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126709.jpg" style="width:100%"><br>
+
+###### 17. Actress Jaime King shared a strange video that actually thanked the coronavirus for bringing humans closer together.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126713.jpg" style="width:100%"><br>
+
+###### 18. Producer and billionaire, David Geffen wished us all well from his yacht. So that was cool.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126715.jpg" style="width:100%"><br>
+
+###### 19. Vanessa Hudgens had some word vomit in an Instagram video that she posted. Ending the video with maybe I shouldnt be saying this.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033533/87126716/van.jpg" style="width:100%"><br>
+
+###### 20. Bette Midler clearly has never cooked or cleaned in her entire life.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033649/87126717/midler.jpg" style="width:100%"><br>
+
+## <a href="#8" id="7">20 People Who Have Horrible Bosses</a><br>
+
+###### 1. ‚ÄúMy employer sent me this...‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+
+###### 2. ‚ÄúMeals (1 per person) we get at my job for shifts that can last up to 12 hours‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+
+###### 3. ‚ÄúMy ‚Äòboss‚Äô has no regard for a customer‚Äôs expensive chair even after I told her how much it‚Äôs worth.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+
+###### 4. ‚ÄúThis burrito at my job is $5.54 and we‚Äôre not allowed to leave to get food.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+
+###### 5. ‚ÄúThis is what I got for working one year at my job. They spelled my last name wrong... pathetic.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+
+###### 6. ‚ÄúWhen I resigned, my boss told people to not get me anything for my farewell.‚Äù
+
+‚ÄúPut in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they‚Äôre starting to see very small bits of why I can‚Äôt stand him.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+
+###### 7. ‚ÄúCalled my boss and said, ‚ÄôHow do you expect me to work like this.‚Äô She said ‚ÄôTry your best.‚Äô I‚Äôm a barista.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+
+###### 8. ‚ÄúA customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+
+###### 9. ‚ÄúThis was the only fire alarm system we had in one of the old buildings I worked in.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+
+###### 10. ‚ÄúThanksgiving gift from my employer. Not even joking.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+
+###### 11. ‚ÄúMy employer contracted out some cable work. This was the result.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+
+###### 12. ‚ÄúHow my mom‚Äôs employer shipped her $2,000 work laptop‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+
+###### 13. ‚ÄúWe had a birthday at the office today and our boss insisted on cutting the cake.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+
+###### 14. ‚ÄúI am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+
+###### 15. ‚ÄúThis keyboard at my place of employment. It‚Äôs covered with aluminum dust.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+
+###### 16. ‚ÄúMy boss has turned our ‚Äôbreak room‚Äô into a workshop.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+
+###### 17. ‚ÄúMy boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+
+###### 18. ‚ÄúI told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ‚Äô6-6 no exceptions‚Äô‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+
+###### 19. ‚Äú4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That‚Äôs not even my job!‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+
+###### 20. When the boss leaves, it‚Äôs time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
+
+## <a href="#9" id="8">16 Fascinating Photos From Around The World</a><br>
+
+###### 1. Ukrainian soldier captured Russian spetsnaz tseltium shield<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124326.jpg" style="width:100%"><br>
+
+###### 2. Ukraine‚Äôs first International legion of territorial defence forces‚Äì fighters from the US, Mexico, India, Sweden, and more<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124325.png" style="width:100%"><br>
+
+###### 3. In 1867, the United States purchased Alaska from the Russian Empire using this check. The US paid $7.2 million (roughly $133 million in 2020 USD) for nearly 365 million acres of land. That‚Äôs less than 2 cents per acre in 1867, or about $0.37 per acre in 2020 USD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124327.jpg" style="width:100%"><br>
+
+###### 4. This is a torii gate made of speakers in Kamiyama, Tokushima. You can plug in your phone and play anything you want.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124328.jpg" style="width:100%"><br>
+
+###### 5. During Russian Channel 1‚Äôs evening news broadcast, a woman ran onto the set with a sign: ‚ÄúNo war‚Ä¶Don‚Äôt believe the propaganda. They‚Äôre lying to you here.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124329.jpg" style="width:100%"><br>
+
+###### 6. The largest sailing yacht in the world has been confiscated in Spain‚Äù Officials have taken Russian oligarch Andrey Melnichenko‚Äôs yacht worth over 500mil euros due to sanctions<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124330.jpg" style="width:100%"><br>
+
+###### 7. Overnight bus in Japan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124331.jpg" style="width:100%"><br>
+
+###### 8. Al Capone‚Äôs cell in Eastern State Penitentiary<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124332.jpg" style="width:100%"><br>
+
+###### 9. Aleksander Doba. He has kayaked solo across the Atlantic 3 times, most recently in 2017 at the age of 70.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124333.jpg" style="width:100%"><br>
+
+###### 10. Krishna Butterball is a massive 250 ton and 20ft high rock boulder on a slippery slope of a hill on less than 4ft base didn‚Äôt rolled downhill and is in this position for more than 2000 years<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124334.jpg" style="width:100%"><br>
+
+###### 11. These benches are reversible, so you can choose to look at people, or boats.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124335.png" style="width:100%"><br>
+
+###### 12. Vilnius has put up a statue that offers a ‚Äúportal‚Äù to the Polish city of Lublin, allowing people to see each other in real time<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124336.jpg" style="width:100%"><br>
+
+###### 13. In France, Peyo, a beautiful 15-year-old stallion, often comes to comfort and soothe terminally ill patients at the Techer Hospital in Calais. The horse always chooses which patient he wants to see, kicking his hoof outside the door<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124337.jpg" style="width:100%"><br>
+
+###### 14. Japan‚Äôs ‚ÄúKilling Stone‚Äù Breaks open after 1000 years, Legend has it the demon trapped inside is now free<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124338.jpg" style="width:100%"><br>
+
+###### 15. Price of full tank of gasoline as a percentage of average monthly net salary across the world<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124339.jpg" style="width:100%"><br>
+
+###### 16. Nice find Igor!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124340.jpg" style="width:100%"><br>
+
+## <a href="#10" id="9">24 People Who Are Just Plain Stupid</a><br>
+
+###### 1. I think just cut your losses and go to the ER.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
+
+###### 2. This person should not be a parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126040.jpg" style="width:100%"><br>
+
+###### 3. Strum bowling is my absolute favorite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126041.jpg" style="width:100%"><br>
+
+###### 4. I mean they cant talk - must not have brains. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126042.jpg" style="width:100%"><br>
+
+###### 5. 62 the grease. 63 the grease. 64 the grease! OMG!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126043.jpg" style="width:100%"><br>
+
+###### 6. Why though? We need answers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126039.jpg" style="width:100%"><br>
+
+###### 7. Wait what? Ohh, I see what youre trying to say.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126038.jpg" style="width:100%"><br>
+
+###### 8. Toilet trees is technically right when you say it out loud.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126045.jpg" style="width:100%"><br>
+
+###### 9. But like for how long? I have a very busy day today.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126046.jpg" style="width:100%"><br>
+
+###### 10. Yeah guys, come on. Is it really that hard?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126047.jpg" style="width:100%"><br>
+
+###### 11. I would go to church much more often if were lighting cannons there.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126051.jpg" style="width:100%"><br>
+
+###### 12. Build a-pond is definitely a new one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126052.jpg" style="width:100%"><br>
+
+###### 13. This seems a bit racist.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126048.jpg" style="width:100%"><br>
+
+###### 14. Sally Manilla sounds like a stripper name.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126053.jpg" style="width:100%"><br>
+
+###### 15. Mmm poop puree. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126055.jpg" style="width:100%"><br>
+
+###### 16. Oof. So close, but no cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126056.jpg" style="width:100%"><br>
+
+###### 17. Thats not a branch.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126058.jpg" style="width:100%"><br>
+
+###### 18. Speed dominator sounds so much more bada**<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126059.jpg" style="width:100%"><br>
+
+###### 19. Im so confused by this.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126060.jpg" style="width:100%"><br>
+
+###### 20. Finishing off those aarons one by one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126062.jpg" style="width:100%"><br>
+
+###### 21. Did someone from Georgia write this?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126063.jpg" style="width:100%"><br>
+
+###### 22. GENTLEMEN, STARCH YOUR ENGINES.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126064.jpg" style="width:100%"><br>
+
+###### 23. Never ever been whered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126065.jpg" style="width:100%"><br>
+
+###### 24. I love swimming in the at land tick oat shin.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
+
+## <a href="#11" id="10">21 Health Signs Nobody Should Ignore</a><br>
+
+###### 1. When youre dehydrated and still throwing up<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126355.jpg" style="width:100%"><br>
+
+###### 2. If your pee is so dark that it looks like Guinness, go to the hospital immediately.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126342.jpg" style="width:100%"><br>
+
+###### 3. Losing the ability to see color in one or more eye, sign of major issue in brain.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126343.jpg" style="width:100%"><br>
+
+###### 4. You took a new medicine and your throat is closing up. Anaphylaxis can kill you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126344.jpg" style="width:100%"><br>
+
+###### 5. The worst headache of your life, which came on very quickly. (Also known as a Thunderclap headache). Even with no other symptoms, this needs to be looked at immediately. Could be any range of things, but what theyre most concerned with is a ruptured aneurysm.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126345.jpg" style="width:100%"><br>
+
+###### 6. When you throw up and it looks like coffee grounds.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126341.jpg" style="width:100%"><br>
+
+###### 7. Signs of stroke.
+
+Face or mouth drooping
+
+Arm weakness
+
+Speech slurred
+
+Time to call an ambulance
+
+So think FAST<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126346.jpg" style="width:100%"><br>
+
+###### 8. A feeling of impending doom. Really, its actually considered a clinical sign and can indicate impending stroke, heart attack, or other things. Can also be a panic attack but if it comes out of nowhere and isnt associated with a known anxiety disorder, dont be afraid to take it seriously.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126347.jpg" style="width:100%"><br>
+
+###### 9. If one of your pupils is fully dilated to the point you can barely see your iris, but the other eye is normal. Get your butt to the E.R Stat.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126348.jpg" style="width:100%"><br>
+
+###### 10. Growing pain in your back near your kidney? Stones. Go to the hospital before the pain gets unbearable.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126349.jpg" style="width:100%"><br>
+
+###### 11. Sudden hearing loss. The faster you get to the hospital the better the chances of reversing it (statistically)
+
+In my case I left it two weeks and I‚Äôm now living with tinnitus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126350.jpg" style="width:100%"><br>
+
+###### 12. You were told 48 hours ago that you had gastroenteritis (stomach flu) and you did everything the doc said and not only dont you feel better, you feel worse.
+
+There are a lot of things it could be, but gastroenteritis is probably not it, and some of the other possibilities are potentially lethal.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126351.jpg" style="width:100%"><br>
+
+###### 13. For women on birth control: serious shortness of breath (as in a relatively healthy person being winded just walking to/from car) and unexplained pain in your legs, mainly inside thighs. Blood clots/embolisms. They can kill you VERY fast if they break loose and travel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126352.jpg" style="width:100%"><br>
+
+###### 14. I had a headache for a week and was getting confused at work.
+
+2 brain tumors and hydrocephalus led to immediate intake<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126353.jpg" style="width:100%"><br>
+
+###### 15. You were bit by an animal. ALWAYS ASSUME IT WAS RABID. if you don‚Äôt get rabies treatment within something like 48 hours you could cross the threshold into guaranteed death.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126354.jpg" style="width:100%"><br>
+
+###### 16. Sudden onset abdominal pain and vomiting. Appendicitis doesn‚Äôt always present as pain in the lower right quadrant. If it bursts you‚Äôre f*cked.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126356.jpg" style="width:100%"><br>
+
+###### 17. Skin/white of the eyes turning yellow. This probably caused by accumulation of bilirubin in the blood which can be caused by severe liver failure.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126357.jpg" style="width:100%"><br>
+
+###### 18. When that wound you got on your foot by stepping on a rusty nail smells like rot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126358.jpg" style="width:100%"><br>
+
+###### 19. If you have chest pain and especially if its combined with sweating, nausea/vomiting, left arm pain, and/or a sense of impending doom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126359.jpg" style="width:100%"><br>
+
+###### 20. Wife had a pain in her shoulder and told me about it. Said it was uncomfortable but not a big deal. I told her to send her doctor a message. Went in for an appointment immediately. She had internal bleeding from an ectopic pregnancy and had about 12 oz of blood floating around in her.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126360.jpg" style="width:100%"><br>
+
+###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
+
+## <a href="#12" id="11">51 Choice Randoms For Your Weekly Enjoyment</a><br>
 
 ###### 1. A house doing its best to keep up appearances. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87122414.jpg" style="width:100%"><br>
 
@@ -597,179 +623,127 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 51. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87122464.jpg" style="width:100%"><br>
 
-## <a href="#12" id="11">29 Examples of Cool Things You Seldom See</a><br>
+## <a href="#13" id="12">29 Examples of Cool Things You Seldom See</a><br>
 
-###### 1. ííI found this while cleaning out my grandmaís house.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123927.jpg" style="width:100%"><br>
+###### 1. ‚Äô‚ÄôI found this while cleaning out my grandma‚Äôs house.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123927.jpg" style="width:100%"><br>
 
-###### 2. ìThis leaf that has lost its skinî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123902.jpg" style="width:100%"><br>
+###### 2. ‚ÄúThis leaf that has lost its skin‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123902.jpg" style="width:100%"><br>
 
-###### 3. ìA forest dining roomî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123903.jpg" style="width:100%"><br>
+###### 3. ‚ÄúA forest dining room‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123903.jpg" style="width:100%"><br>
 
-###### 4. ìThis colorful cat at a local shopî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123904.jpg" style="width:100%"><br>
+###### 4. ‚ÄúThis colorful cat at a local shop‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123904.jpg" style="width:100%"><br>
 
-###### 5. ìA beautiful sap formation from a cashew treeî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123905.jpg" style="width:100%"><br>
+###### 5. ‚ÄúA beautiful sap formation from a cashew tree‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123905.jpg" style="width:100%"><br>
 
-###### 6. ìSaw these large box-like shoe things. Turns out itís a Subbuteo costume.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123901.jpg" style="width:100%"><br>
+###### 6. ‚ÄúSaw these large box-like shoe things. Turns out it‚Äôs a Subbuteo costume.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123901.jpg" style="width:100%"><br>
 
-###### 7. ìMeanwhile, in Costa Rica...î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123906.jpg" style="width:100%"><br>
+###### 7. ‚ÄúMeanwhile, in Costa Rica...‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123906.jpg" style="width:100%"><br>
 
-###### 8. ìBaby snapping turtles look just like little dinosaurs.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123907.jpg" style="width:100%"><br>
+###### 8. ‚ÄúBaby snapping turtles look just like little dinosaurs.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123907.jpg" style="width:100%"><br>
 
-###### 9. ìFound this glass-like tube íshellí washed up on a beach. Itís actually a stingray tooth.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123908.jpg" style="width:100%"><br>
+###### 9. ‚ÄúFound this glass-like tube ‚Äôshell‚Äô washed up on a beach. It‚Äôs actually a stingray tooth.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123908.jpg" style="width:100%"><br>
 
-###### 10. ìThis weird caterpillar I found outside my houseî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123909.jpg" style="width:100%"><br>
+###### 10. ‚ÄúThis weird caterpillar I found outside my house‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123909.jpg" style="width:100%"><br>
 
-###### 11. ìThe white sweet potato has a purple inside and the purple sweet potato has a white inside.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123910.jpg" style="width:100%"><br>
+###### 11. ‚ÄúThe white sweet potato has a purple inside and the purple sweet potato has a white inside.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123910.jpg" style="width:100%"><br>
 
-###### 12. ìThis is what broccoli looks like if you donít harvest it.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123911.jpg" style="width:100%"><br>
+###### 12. ‚ÄúThis is what broccoli looks like if you don‚Äôt harvest it.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123911.jpg" style="width:100%"><br>
 
-###### 13. ìAn egg my chickens produced ó itís known as a soft shell egg and is caused by low calcium levels.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123912.jpg" style="width:100%"><br>
+###### 13. ‚ÄúAn egg my chickens produced ‚Äî it‚Äôs known as a soft shell egg and is caused by low calcium levels.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123912.jpg" style="width:100%"><br>
 
-###### 14. ìIn my country, you can get water in bags.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123913.jpg" style="width:100%"><br>
+###### 14. ‚ÄúIn my country, you can get water in bags.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123913.jpg" style="width:100%"><br>
 
-###### 15. ìIíve never seen a pair of dress shoes with split toes.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123914.jpg" style="width:100%"><br>
+###### 15. ‚ÄúI‚Äôve never seen a pair of dress shoes with split toes.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123914.jpg" style="width:100%"><br>
 
-###### 16. ííI met Jim Carrey! I never thought heíd be cool with making faces with me, but he was totally down.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123915.jpg" style="width:100%"><br>
+###### 16. ‚Äô‚ÄôI met Jim Carrey! I never thought he‚Äôd be cool with making faces with me, but he was totally down.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123915.jpg" style="width:100%"><br>
 
-###### 17. ííThe hairiest, most goofy-looking llama I saw in all of Peruíí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123916.jpg" style="width:100%"><br>
+###### 17. ‚Äô‚ÄôThe hairiest, most goofy-looking llama I saw in all of Peru‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123916.jpg" style="width:100%"><br>
 
-###### 18. ííI did an art exchange. I made some paper art and he made me a puppet of myself! Best deal ever.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123917.jpg" style="width:100%"><br>
+###### 18. ‚Äô‚ÄôI did an art exchange. I made some paper art and he made me a puppet of myself! Best deal ever.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123917.jpg" style="width:100%"><br>
 
-###### 19. ííMy son smiled sweetly at the barista and got this hot chocolate in return.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123918.jpg" style="width:100%"><br>
+###### 19. ‚Äô‚ÄôMy son smiled sweetly at the barista and got this hot chocolate in return.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123918.jpg" style="width:100%"><br>
 
-###### 20. ííMy brother drove 9 hours overnight to surprise my mom with her niece.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123919.jpg" style="width:100%"><br>
+###### 20. ‚Äô‚ÄôMy brother drove 9 hours overnight to surprise my mom with her niece.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123919.jpg" style="width:100%"><br>
 
-###### 21. ííMy new security camera surprised me with a beautiful photo of a flying bird.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123920.jpg" style="width:100%"><br>
+###### 21. ‚Äô‚ÄôMy new security camera surprised me with a beautiful photo of a flying bird.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123920.jpg" style="width:100%"><br>
 
-###### 22. ííI was looking in my momís college yearbook and came across a familiar face.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123921.jpg" style="width:100%"><br>
+###### 22. ‚Äô‚ÄôI was looking in my mom‚Äôs college yearbook and came across a familiar face.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123921.jpg" style="width:100%"><br>
 
-###### 23. ííI sent my girlfriend a postcard a few months ago. Today, she gave me a new pair of shoes.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123922.jpg" style="width:100%"><br>
+###### 23. ‚Äô‚ÄôI sent my girlfriend a postcard a few months ago. Today, she gave me a new pair of shoes.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123922.jpg" style="width:100%"><br>
 
-###### 24. ííMy father found my baby blanket and gave it to me for Christmas.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123923.jpg" style="width:100%"><br>
+###### 24. ‚Äô‚ÄôMy father found my baby blanket and gave it to me for Christmas.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123923.jpg" style="width:100%"><br>
 
-###### 25. íí25 years later I discovered Iím in the Notre Dame Hall of Fame because I photobombed the photo.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123924.jpg" style="width:100%"><br>
+###### 25. ‚Äô‚Äô25 years later I discovered I‚Äôm in the Notre Dame Hall of Fame because I photobombed the photo.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123924.jpg" style="width:100%"><br>
 
-###### 26. ííI got lucky to get this crazy long mutant Dorito.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123925.jpg" style="width:100%"><br>
+###### 26. ‚Äô‚ÄôI got lucky to get this crazy long mutant Dorito.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123925.jpg" style="width:100%"><br>
 
-###### 27. ííDo you know the feeling you get when the middle seat is open next to you on a flight? I can beat that.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123926.jpg" style="width:100%"><br>
+###### 27. ‚Äô‚ÄôDo you know the feeling you get when the middle seat is open next to you on a flight? I can beat that.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123926.jpg" style="width:100%"><br>
 
-###### 28. ííSo I came across this guy at my sisterís graduation: Professor Sir Patrick Stewart.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123928.jpg" style="width:100%"><br>
+###### 28. ‚Äô‚ÄôSo I came across this guy at my sister‚Äôs graduation: Professor Sir Patrick Stewart.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123928.jpg" style="width:100%"><br>
 
-###### 29. ííSince I was a kid, my mom collected everything she found in my pocket and put it in this lamp. It was her surprise for my wedding.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123929.jpg" style="width:100%"><br>
+###### 29. ‚Äô‚ÄôSince I was a kid, my mom collected everything she found in my pocket and put it in this lamp. It was her surprise for my wedding.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123929.jpg" style="width:100%"><br>
 
-## <a href="#13" id="12">23 Funny Memes From the Games We Play </a><br>
+## <a href="#14" id="13">30 Unlucky People at The Moment of Their Misfortune</a><br>
 
-###### 1. This is the moment weve all been waiting for boys. Take notes! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124348/87125769/funny-gaming-memes19.png" style="width:100%"><br>
+###### 1. ‚Äô‚ÄôI fell asleep on my charging cable. I have client-facing Zoom meetings today.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123879.jpg" style="width:100%"><br>
 
-###### 2. Live look at Nintendo anytime someone emulates one of their games. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124353/87125770/funny-gaming-memes17.png" style="width:100%"><br>
+###### 2. ‚Äô‚ÄôI broke my apple slicer and accidentally created a very dangerous apple.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123870.jpg" style="width:100%"><br>
 
-###### 3. It might not look cool, but man it is powerful. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124359/87125771/funny-gaming-memes18.png" style="width:100%"><br>
+###### 3. ‚Äô‚ÄôToday is not my day, apparently.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123871.jpg" style="width:100%"><br>
 
-###### 4. Haha, we are so good! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124404/87125772/funny-gaming-memes11.png" style="width:100%"><br>
+###### 4. ‚Äô‚ÄôI decided to change barbers. I also have a date in 1 hour.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123868.jpg" style="width:100%"><br>
 
-###### 5. Elden Ring, Elden Ring, oh where is my Elden Ring. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124412/87125773/funny-gaming-memes10.png" style="width:100%"><br>
+###### 5. ‚Äô‚ÄôSo I ordered a pizza today...‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123872.jpg" style="width:100%"><br>
 
-###### 6. More like BloodButt amirite? <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124415/87125774/funny-gaming-memes9.png" style="width:100%"><br>
+###### 6. ‚Äô‚ÄôI just pulled into our campsite 450 miles away from home.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123873.jpg" style="width:100%"><br>
 
-###### 7. You know Im something of a gamer myself. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124422/87125775/funny-gaming-memes22.png" style="width:100%"><br>
+###### 7. ‚Äô‚ÄôI found a coupon for a free grilled chicken salad and I did this when popping it open.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123874.jpg" style="width:100%"><br>
 
-###### 8. Yeah i got you bro! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124427/87125776/funny-gaming-memes14.png" style="width:100%"><br>
+###### 8. ‚Äô‚Äô‚ÄôHave kids,‚Äô they said, ‚ÄôIt will be fun,‚Äô they said.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123875.jpg" style="width:100%"><br>
 
-###### 9. Random bullshit go! Dont knock the player, if it works it works. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124433/87125777/funny-gaming-memes20.png" style="width:100%"><br>
+###### 9. ‚Äô‚ÄôHow my mom‚Äôs surprise birthday cake arrived‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123876.jpg" style="width:100%"><br>
 
-###### 10. People want one things and its... <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124439/87125778/funny-gaming-memes21.png" style="width:100%"><br>
+###### 10. ‚Äô‚ÄôI missed my breakfast.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123877.jpg" style="width:100%"><br>
 
-###### 11. Roblox is a foreign language to us. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124446/87125779/funny-gaming-memes16.png" style="width:100%"><br>
+###### 11. ‚Äô‚ÄôI found my kid‚Äôs watch he lost 3 months ago.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123878.jpg" style="width:100%"><br>
 
-###### 12. Stares in Smart Fridge. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124449/87125780/funny-gaming-memes13.png" style="width:100%"><br>
+###### 12. ‚Äô‚ÄôI walked around all day with a thong hanging out of my hood.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123867.jpg" style="width:100%"><br>
 
-###### 13. More, yes much much more! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124457/87125781/funny-gaming-memes8.png" style="width:100%"><br>
+###### 13. ‚Äô‚ÄôI have a school concert in 2.5 hours.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123880.jpg" style="width:100%"><br>
 
-###### 14. Ha it the amount of times this has happened is too damn high. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124500/87125782/funny-gaming-memes6.png" style="width:100%"><br>
+###### 14. ‚Äô‚ÄôMy brother wanted a wireless mouse, and a kid wanted to help.‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123881.jpg" style="width:100%"><br>
 
-###### 15. And so I says. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124510/87125783/funny-gaming-memes4.png" style="width:100%"><br>
+###### 15. ‚ÄúI asked my girlfriend if she ever made a snowman and she showed me this photo of her childhood.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123882.jpg" style="width:100%"><br>
 
-###### 16. We dont give the Fortnite kids enough credit for secluding themselves! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124513/87125784/funny-gaming-memes23.png" style="width:100%"><br>
+###### 16. ‚ÄúWhat? Why are you still here? What did I throw out in the morning?‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123883.jpg" style="width:100%"><br>
 
-###### 17. Ha, totally meant to do that. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124521/87125785/funny-gaming-memes3.png" style="width:100%"><br>
+###### 17. ‚ÄúGrabbing breakfast before running to the office on Monday‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123884.jpg" style="width:100%"><br>
 
-###### 18. Bro, can you please get a working mic, thank you. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124525/87125786/funny-gaming-memes12.png" style="width:100%"><br>
+###### 18. ‚ÄúI‚Äôm not going the toilet at my job ever again.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123885.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124533/87125787/funny-gaming-memes15.png" style="width:100%"><br>
+###### 19. All cats‚Äô thoughts about winter in one photo<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123886.jpg" style="width:100%"><br>
 
-###### 20. It was only for a moment, but I saw my face in the blank screen and I began to reevaluate my entire lifes trajectory. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124535/87125788/funny-gaming-memes7.png" style="width:100%"><br>
+###### 20. ‚ÄúMy long boy gets stuck and can‚Äôt turn around.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123887.jpg" style="width:100%"><br>
 
-###### 21. You will be missed little buddy. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124544/87125789/funny-gaming-memes5.png" style="width:100%"><br>
+###### 21. An incident with starch ‚Äî it doesn‚Äôt look like he‚Äôs sorry.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123888.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124546/87125790/funny-gaming-memes2.png" style="width:100%"><br>
+###### 22. ‚ÄúHe accidentally left his sunroof open during the snowstorm.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123889.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124556/87125791/funny-gaming-memes1.png" style="width:100%"><br>
+###### 23. ‚ÄúMy son did it.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123890.jpg" style="width:100%"><br>
 
-## <a href="#14" id="13">32 Unique People with Rare Body Features</a><br>
+###### 24. ‚ÄúTry to walk a mile in boots that are both for left feet.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123891.jpg" style="width:100%"><br>
 
-###### 1. My grandpaís cool eye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124210.jpg" style="width:100%"><br>
+###### 25. ‚ÄúFree business idea: a pasta package that doesn‚Äôt explode when you try to open it‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123892.jpg" style="width:100%"><br>
 
-###### 2. My belly button makes a perfect spiral.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124211.jpg" style="width:100%"><br>
+###### 26. ‚ÄúSomebody must be having a bad day.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123893.jpg" style="width:100%"><br>
 
-###### 3. I have purple eyes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124212.jpg" style="width:100%"><br>
+###### 27. We wonder what happened to the owner of this bag.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123894.jpg" style="width:100%"><br>
 
-###### 4. How my facial hair only grows on one cheek.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124214.jpg" style="width:100%"><br>
+###### 28. ‚ÄúI‚Äôm very patiently waiting for my fianc√© to wake up so I can find out why there is a bite mark in the butter.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123895.jpg" style="width:100%"><br>
 
-###### 5. Unlike the average human feet, mine donít follow a descending order in terms of toe length. My middle toe is the second-longest.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124215.jpg" style="width:100%"><br>
+###### 29. ‚ÄúA student in my class tried using 4 devices to cheat on a quiz but somehow managed to get the wrong answer on all of them.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123896.jpg" style="width:100%"><br>
 
-###### 6. My sister is a ginger and has heterochromia. A genetic masterpiece!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124213.jpg" style="width:100%"><br>
-
-###### 7. My sister-in-lawís eyes are 2 different colors, and her right pupil is shaped like a catís eye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124216.jpg" style="width:100%"><br>
-
-###### 8. A customer came in and let me take a picture of her hands that had 6 fingers on each.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124217.jpg" style="width:100%"><br>
-
-###### 9. A kid on my bus has 2 left earlobes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124218.jpg" style="width:100%"><br>
-
-###### 10. How my vitiligo changes from the winter to the summer.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124219.jpg" style="width:100%"><br>
-
-###### 11. I am here to inspire.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124220.jpg" style="width:100%"><br>
-
-###### 12. After having it for nearly 30 years, my momís vitiligo has started to affect her hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124221.jpg" style="width:100%"><br>
-
-###### 13. I have a rare genetic condition called distichiasis (a double row of eyelashes). Sometimes they grow into my eyeball.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124222.jpg" style="width:100%"><br>
-
-###### 14. I have fraternal thumbs, 1 from each parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124223.jpg" style="width:100%"><br>
-
-###### 15. My husband has a rare genetic mutation that causes his fingernails to grow inverted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124224.jpg" style="width:100%"><br>
-
-###### 16. I have a tooth in the middle of my face.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124225.jpeg" style="width:100%"><br>
-
-###### 17. My eye after an accident I had when I was 16.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124226.jpg" style="width:100%"><br>
-
-###### 18. One of my pupils wonít dilate.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124227.jpg" style="width:100%"><br>
-
-###### 19. I met a guy who has no middle joints.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124228.jpg" style="width:100%"><br>
-
-###### 20. I was born with an eyebrow that curves up. My mom says itís one of the first things she noticed about me.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124229.jpg" style="width:100%"><br>
-
-###### 21. My friend was born with a bald spot in the shape of a downvote arrow.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124230.jpg" style="width:100%"><br>
-
-###### 22. My hair resembles a weather forecast.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124231.jpg" style="width:100%"><br>
-
-###### 23. I have a giant birthmark on my head.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124232.jpg" style="width:100%"><br>
-
-###### 24.  have a conjoined toe.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124233.jpg" style="width:100%"><br>
-
-###### 25. The curl pattern in my daughterís hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124234.jpg" style="width:100%"><br>
-
-###### 26. My thumb bends almost completely backward.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124235.jpg" style="width:100%"><br>
-
-###### 27. Iím halfway to looking like Popeye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124236.jpg" style="width:100%"><br>
-
-###### 28. The only white hair on my body is growing on my eyebrow, and itís pretty big compared to the other hairs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124237.jpg" style="width:100%"><br>
-
-###### 29. My babyís third toe is the longest.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124238.jpg" style="width:100%"><br>
-
-###### 30. The birthmark on my hand looks like a heart.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124239.jpg" style="width:100%"><br>
-
-###### 31. My left eye has 2 colors.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124240.jpg" style="width:100%"><br>
-
-###### 32. The guy next to me on the bus has 6 fingers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124241.jpg" style="width:100%"><br>
+###### 30. ‚Äô‚ÄôWhy would you buy groceries when you can grow your own?‚Äô‚Äô<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123869.jpg" style="width:100%"><br>
 
 ## <a href="#15" id="14">40 Funny Memes Discovered in a Dungeon of Dank</a><br>
 
@@ -853,7 +827,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 40. <br><img src="https://cdn.ebaumsworld.com/2022/03/15/113015/87124167/87122360.png" style="width:100%"><br>
 
-## <a href="#17" id="16">20 Samples of Women Writing Male Characters and the Cringe That Follows</a><br>
+## <a href="#16" id="15">20 Samples of Women Writing Male Characters and the Cringe That Follows</a><br>
 
 ###### 1. Derek withdrew his dampened and moist t-shirt from his sweaty body. She could see the reflection of the stars in the glistening pools that had gathered under his pectoral muscles.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87124344.png" style="width:100%"><br>
 
@@ -895,6 +869,72 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 20. Thats my first thought when I see two guys hanging out. They must be gay.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87124362.png" style="width:100%"><br>
 
+## <a href="#17" id="16">32 Unique People with Rare Body Features</a><br>
+
+###### 1. My grandpa‚Äôs cool eye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124210.jpg" style="width:100%"><br>
+
+###### 2. My belly button makes a perfect spiral.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124211.jpg" style="width:100%"><br>
+
+###### 3. I have purple eyes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124212.jpg" style="width:100%"><br>
+
+###### 4. How my facial hair only grows on one cheek.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124214.jpg" style="width:100%"><br>
+
+###### 5. Unlike the average human feet, mine don‚Äôt follow a descending order in terms of toe length. My middle toe is the second-longest.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124215.jpg" style="width:100%"><br>
+
+###### 6. My sister is a ginger and has heterochromia. A genetic masterpiece!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124213.jpg" style="width:100%"><br>
+
+###### 7. My sister-in-law‚Äôs eyes are 2 different colors, and her right pupil is shaped like a cat‚Äôs eye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124216.jpg" style="width:100%"><br>
+
+###### 8. A customer came in and let me take a picture of her hands that had 6 fingers on each.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124217.jpg" style="width:100%"><br>
+
+###### 9. A kid on my bus has 2 left earlobes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124218.jpg" style="width:100%"><br>
+
+###### 10. How my vitiligo changes from the winter to the summer.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124219.jpg" style="width:100%"><br>
+
+###### 11. I am here to inspire.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124220.jpg" style="width:100%"><br>
+
+###### 12. After having it for nearly 30 years, my mom‚Äôs vitiligo has started to affect her hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124221.jpg" style="width:100%"><br>
+
+###### 13. I have a rare genetic condition called distichiasis (a double row of eyelashes). Sometimes they grow into my eyeball.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124222.jpg" style="width:100%"><br>
+
+###### 14. I have fraternal thumbs, 1 from each parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124223.jpg" style="width:100%"><br>
+
+###### 15. My husband has a rare genetic mutation that causes his fingernails to grow inverted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124224.jpg" style="width:100%"><br>
+
+###### 16. I have a tooth in the middle of my face.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124225.jpeg" style="width:100%"><br>
+
+###### 17. My eye after an accident I had when I was 16.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124226.jpg" style="width:100%"><br>
+
+###### 18. One of my pupils won‚Äôt dilate.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124227.jpg" style="width:100%"><br>
+
+###### 19. I met a guy who has no middle joints.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124228.jpg" style="width:100%"><br>
+
+###### 20. I was born with an eyebrow that curves up. My mom says it‚Äôs one of the first things she noticed about me.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124229.jpg" style="width:100%"><br>
+
+###### 21. My friend was born with a bald spot in the shape of a downvote arrow.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124230.jpg" style="width:100%"><br>
+
+###### 22. My hair resembles a weather forecast.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124231.jpg" style="width:100%"><br>
+
+###### 23. I have a giant birthmark on my head.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124232.jpg" style="width:100%"><br>
+
+###### 24.  have a conjoined toe.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124233.jpg" style="width:100%"><br>
+
+###### 25. The curl pattern in my daughter‚Äôs hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124234.jpg" style="width:100%"><br>
+
+###### 26. My thumb bends almost completely backward.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124235.jpg" style="width:100%"><br>
+
+###### 27. I‚Äôm halfway to looking like Popeye.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124236.jpg" style="width:100%"><br>
+
+###### 28. The only white hair on my body is growing on my eyebrow, and it‚Äôs pretty big compared to the other hairs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124237.jpg" style="width:100%"><br>
+
+###### 29. My baby‚Äôs third toe is the longest.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124238.jpg" style="width:100%"><br>
+
+###### 30. The birthmark on my hand looks like a heart.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124239.jpg" style="width:100%"><br>
+
+###### 31. My left eye has 2 colors.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124240.jpg" style="width:100%"><br>
+
+###### 32. The guy next to me on the bus has 6 fingers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124241.jpg" style="width:100%"><br>
+
 ## <a href="#18" id="17">40 "Normal Things" Are Actually Forms of Propaganda</a><br>
 
 ###### 1. The lie, in the US at least, that billionaires and CEOs are self made men and women. Most wealth in this country is inherited and most who claim to be self made were already born into wealthy families.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123121.jpg" style="width:100%"><br>
@@ -915,19 +955,19 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 9. Logo T-Shirts. The consumer literally pays to advertise a brand.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123134.jpg" style="width:100%"><br>
 
-###### 10. Dandelions are weeds. Theyíre actually very nutritious and great for pollinators. Big Grass are a bunch of d**kheads<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123128.jpg" style="width:100%"><br>
+###### 10. Dandelions are weeds. They‚Äôre actually very nutritious and great for pollinators. Big Grass are a bunch of d**kheads<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123128.jpg" style="width:100%"><br>
 
 ###### 11. Everything about wedding and engagement rings<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123129.jpg" style="width:100%"><br>
 
 ###### 12. Politicians being a middleman for corporations to influence government policies, instead of middlemen for the people to influence government policies.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123130.jpg" style="width:100%"><br>
 
-###### 13. That it is ok to produce a ton of single-use packaging as long as you donít ìlitterî it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123131.jpg" style="width:100%"><br>
+###### 13. That it is ok to produce a ton of single-use packaging as long as you don‚Äôt ‚Äúlitter‚Äù it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123131.jpg" style="width:100%"><br>
 
 ###### 14. Plastics Recycling. It was pushed by the plastics industry back in the early 70s when laws were about to be passed to deal with the environmental impact of plastics. In reality a lot of the plastics that have a little recycling symbol on them are not feasible to recycle at all.They are still pushing the lie to this very day.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123132.jpg" style="width:100%"><br>
 
 ###### 15. Planned obsolescence<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123133.jpg" style="width:100%"><br>
 
-###### 16. Immigrants are ëtakingí our jobs, instead of employers seeking to pay criminally low wages to people with fewer choices.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123119.jpg" style="width:100%"><br>
+###### 16. Immigrants are ‚Äòtaking‚Äô our jobs, instead of employers seeking to pay criminally low wages to people with fewer choices.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123119.jpg" style="width:100%"><br>
 
 ###### 17. Buying bottled tap water.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123135.jpg" style="width:100%"><br>
 
@@ -941,7 +981,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 22. Monoculture grass lawns.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123140.jpg" style="width:100%"><br>
 
-###### 23. The whole work grind and everything associated with it. 40+ hour work week, health insurance tied to it, the need for daycare $$$, time spent commutingÖhow did all that ever become normal?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123141.jpg" style="width:100%"><br>
+###### 23. The whole work grind and everything associated with it. 40+ hour work week, health insurance tied to it, the need for daycare $$$, time spent commuting‚Ä¶how did all that ever become normal?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123141.jpg" style="width:100%"><br>
 
 ###### 24. Breakfast is the most important meal of the day was a marketing campaign used by Kellogs to help sell their cereal.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123142.jpg" style="width:100%"><br>
 
@@ -951,13 +991,13 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 27. That diamonds are forever.. as in indestructible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123145.jpg" style="width:100%"><br>
 
-###### 28. COMMERCIALS. theyíre everywhere, YouTube, TV, Hulu, Spotify, etc. the only way to get rid of commercials is to, surprise surprise, pay more which is ANOTHER commercial. Just now realizing that commerce is the basis of commercial lol<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123146.jpg" style="width:100%"><br>
+###### 28. COMMERCIALS. they‚Äôre everywhere, YouTube, TV, Hulu, Spotify, etc. the only way to get rid of commercials is to, surprise surprise, pay more which is ANOTHER commercial. Just now realizing that commerce is the basis of commercial lol<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123146.jpg" style="width:100%"><br>
 
-###### 29. That you need to drink milk in order to get calcium. Calcium is a mineral and can be found in leafy greens and broccoli to name a couple. The whole, ìgot milk?î campaigns and all that were funded by the dairy industry. Pretty successful propaganda!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123147.jpg" style="width:100%"><br>
+###### 29. That you need to drink milk in order to get calcium. Calcium is a mineral and can be found in leafy greens and broccoli to name a couple. The whole, ‚Äúgot milk?‚Äù campaigns and all that were funded by the dairy industry. Pretty successful propaganda!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123147.jpg" style="width:100%"><br>
 
 ###### 30. An entire curdle of toothpaste on your brush. You dont need that much. A pea-sized amount is enough.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123148.jpg" style="width:100%"><br>
 
-###### 31. The way we celebrate holidays is much more of a production than it used to be - Christmas, Halloween, Valentineís Day. Just more excuses to consume c**p en masse.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123149.jpg" style="width:100%"><br>
+###### 31. The way we celebrate holidays is much more of a production than it used to be - Christmas, Halloween, Valentine‚Äôs Day. Just more excuses to consume c**p en masse.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123149.jpg" style="width:100%"><br>
 
 ###### 32. Credit Ratings<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123150.jpg" style="width:100%"><br>
 
@@ -1073,7 +1113,187 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87124007.jpg" style="width:100%"><br>
 
-## <a href="#21" id="20">22 Fresh Memes From the Dank Side of the Tracks</a><br>
+## <a href="#20" id="19">30 Interesting Facts to Pique Your Interest </a><br>
+
+###### 1. The way the sun gives people vitamin D is by converting cholesterol in the skin to vitamin D.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121448.jpg" style="width:100%"><br>
+
+###### 2. In 2009 Burger King ran the Whopper sacrifice campaign, which gave a free whopper to anyone who deleted 10 friends on Facebook. Facebook suspended the program because Burger King was alerting people letting them know theyd been dropped for a sandwich.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121431.jpg" style="width:100%"><br>
+
+###### 3. A female reporter attempted to recreate the famous novel Around The World In 80 Days. Not only did she complete it with eight days to spare, she made a detour to interview Jules Verne, the original author.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121421.jpg" style="width:100%"><br>
+
+###### 4. Martin Luther King Jr was a huge fan of Star Trek. He loved that it showed a future with people of all colors working together in harmony. He bumped into Uhura, Nichelle Nichols, at a convention. She said she was quitting. She ended up staying after MLK urged her to, saying she was a role model.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121422.jpg" style="width:100%"><br>
+
+###### 5. Hisako Koyama, a female Japanese astronomer who hand drew sunspots every day for more than 40 years. Her detailed sketches aid researchers in studying solar cycles and the suns magnetic fields.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121423.jpg" style="width:100%"><br>
+
+###### 6. 2010 Vancouver luge gold medallist Felix Loch had his medal melted into 2 discs and gave one to the parents of a deceased competitor who died in a practice run on the day of the opening ceremony.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121424.jpg" style="width:100%"><br>
+
+###### 7. That since Brazil could not afford to send a team to the 1932 Olympics, they sent the athletes on a ship full of coffee. The athletes sold the coffee along the way to fund their journey.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121425.jpg" style="width:100%"><br>
+
+###### 8. Thought destroyed by Nazis, a priceless mosaic owned by Roman emperor Caligula ended up as a coffee table for 50 years in a NYC apartment.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121426.jpg" style="width:100%"><br>
+
+###### 9. That breast milk can adapt to a babies illness and produce more milk with illness-specific antibodies.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121427.jpg" style="width:100%"><br>
+
+###### 10. That Loving Day in June celebrates the day that Interracial Marriage became legal in the US.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121428.jpg" style="width:100%"><br>
+
+###### 11. An FBI whistleblower reported multiple problems in forensic cases. After years of the FBI seeking to ruin him, his claims were investigated and a report showed that forensic hair analysis was flawed or inaccurate over 90% of the time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121429.jpg" style="width:100%"><br>
+
+###### 12. That Mississippi did not make child-selling illegal until 2009, after a woman tried to sell her granddaughter for $2,000 and a car and it was discovered that there was no law to punish her under.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121430.jpg" style="width:100%"><br>
+
+###### 13. That to save the Hawaiian culture and people from disappearing, KalƒÅkaua, the last king of the Hawaiian kingdom, went on a world tour in 1881, and travelled to Asia, the Middle East, Europe, and the United States, and he became the first reigning monarch to circumnavigate the globe.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121432.jpg" style="width:100%"><br>
+
+###### 14. That In World War II, British spies plotted to spike Hitlers food with oestrogen to make him less aggressive.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121433.jpg" style="width:100%"><br>
+
+###### 15. That 1604, King James I wrote ‚ÄòA Counterblaste to Tobacco‚Äô, in which he described smoking as a ‚Äòcustome lothesome to the eye, hateful to the nose, harmful to the brain, dangerous to the lungs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121434.jpg" style="width:100%"><br>
+
+###### 16. Thankful Villages (also known as Blessed Villages) are those few villages in Britain to which suffered no casualties in the First World War. These villages had lost no men in the war because all those who left to serve came home again when war ended.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121435.jpg" style="width:100%"><br>
+
+###### 17. That in the 1950s, a psychiatrist had three paranoid schizophrenic patients who each believed they were Jesus Christ. He put them in a room together to see if their beliefs would change after confronting each other. They did not, in fact, change their beliefs but each individually came to the conclusion that the other two men were insane. They made a movie about it, called Three Christs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121436.jpg" style="width:100%"><br>
+
+###### 18. Of The Great Hanoi Rat Massacre of 1902. The French wanted rats exterminated from the sewer system. They set a bounty for each dead rat tail. Thousands of tails were submitted per day but the rat problem only grew worse. They found the hunters were breeding, not hunting, rats for their tails.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121437.jpg" style="width:100%"><br>
+
+###### 19. More than 30 million viewers in Britain tuned in to watch the BBC ‚ÄúRoyal Family‚Äù documentary in 1969, such that during the intermission, the flushing of toilets all over London caused a water shortage.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121438.jpg" style="width:100%"><br>
+
+###### 20. Finland used a lot of resources and logistics during WW II to bring the fallen to their home parishes for a proper funeral, instead of using mass graves in the battlefield.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121439.jpg" style="width:100%"><br>
+
+###### 21. That Tarzan actor and Olympic swimmer Johnny Weismuller and his brother were swimming in Lake Michigan when they saw a boat capsize. They pulled at least 14 people from the water, and 11 of those people survived.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121440.jpg" style="width:100%"><br>
+
+###### 22. That Ethiopia has a unique calendar which is 7-8 years behind the rest of the world. The current year in Ethiopia is 2014.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121441.jpg" style="width:100%"><br>
+
+###### 23. Emerson Romero was a silent film actor who was deaf. When movies with sound were invented, deaf actors got less roles and the intertitle text was removed. This led him to make an early form of movie captioning in 1947 so that movies would still be accessible to deaf people.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121442.jpg" style="width:100%"><br>
+
+###### 24. That the work of Charles Drew, a pioneer in preserving blood, led to large-scale blood bank use, U.S. blood donations to Britons in WWII, and the use of bloodmobiles. He resigned as chief of the first American Red Cross blood bank over a policy that separated the blood of black and white people.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121443.jpg" style="width:100%"><br>
+
+###### 25. Leonard Nimoy refused to join Star Trek the Animated Series without George Takai and Nichelle Nichols claiming they were proof of ethic diversity in the 23rd century.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121444.jpg" style="width:100%"><br>
+
+###### 26. In 2020, Colombians shipped 130 grams of cocaine to Italy, inside individually hollowed out coffee beans. They were caught when a customs official noticed the sender shared the same name as a mafia boss in John Wick.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121445.jpg" style="width:100%"><br>
+
+###### 27. Brendan Fraser is the first American-born actor to be inducted into Canadas Walk of Fame.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121446.jpg" style="width:100%"><br>
+
+###### 28. That an average of 2 amputations occur weekly at US meatpacking plants.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121447.jpg" style="width:100%"><br>
+
+###### 29. That Paul McCartney is the only artist to reach the top of the UK charts as a solo artist, duo, trio, quartet, quintet and musical ensemble.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121449.jpg" style="width:100%"><br>
+
+###### 30. When Charles Darwin was sent some flowers from a friend he noticed one flower was extremely long and bet some moth with really long mouth parts exists to pollinate it. A few years later that moth was discovered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87121450.jpg" style="width:100%"><br>
+
+## <a href="#21" id="20">30 Classic Photos That Flew Under the Radar</a><br>
+
+###### 1. A French Woman With Her Baguette And Six Bottles Of Wine, Paris, France, 1945<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123941.jpg" style="width:100%"><br>
+
+###### 2. Spanish Flu, 1918. Family Portrait<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123933.jpg" style="width:100%"><br>
+
+###### 3. Safety Regulations In The 1960s<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123935.jpg" style="width:100%"><br>
+
+###### 4. I Find Comfort Knowing That More Than 140 Years Ago People Were Taking Silly Pictures Of Their Pets, 1875<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123936.jpg" style="width:100%"><br>
+
+###### 5. Rowan Atkinson With His 1981 Aston Martin Vantage<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123937.jpg" style="width:100%"><br>
+
+###### 6. Albert Einstein Wearing Fuzzy Slippers, 1950s<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123938.jpg" style="width:100%"><br>
+
+###### 7. A Member Of The Harlem Hellfighters (369th Infantry Regiment) Poses For The Camera While Holding A Puppy He Saved During World War 1, 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123939.jpg" style="width:100%"><br>
+
+###### 8. Mom Uses A Trash Can To Contain Her Baby While She Crochets In The Park, 1969<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123940.jpg" style="width:100%"><br>
+
+###### 9. The Famous Photo Of Lady Diana Falling Asleep During An Official Royal Engagement, 1981. She Was Actually Pregnant With Prince William At The Time, However Her Pregnancy Had Yet To Be Announced<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123942.jpg" style="width:100%"><br>
+
+###### 10. These Twins Toddlers On A Russian Street Are So Well Protected Against The Cold That They Look Like Penguins, 1968<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123943.jpg" style="width:100%"><br>
+
+###### 11. Marlene Dietrich Is Detained At A Train Station In Paris In 1933 For Violating The Ban On Women Wearing Trousers<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123934.jpg" style="width:100%"><br>
+
+###### 12. ‚ÄúI Think The Saddest People Always Try Their Hardest To Make People Happy Because They Know What It‚Äôs Like To Feel Absolutely Worthless And They Don‚Äôt Want Anyone Else To Feel Like That.‚Äù Robin Williams<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123944.jpg" style="width:100%"><br>
+
+###### 13. The Last Photo Taken Of Hachik≈ç, A Japanese Akita Dog Remembered For His Unwavering Loyalty To His Owner<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123945.jpg" style="width:100%"><br>
+
+###### 14. Wholesome Pictures Of Young Jfk Playing With His Best Friend Lem Billings Who Was Gay<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123946.jpg" style="width:100%"><br>
+
+###### 15. The Fact That These Two Were Married For 74 Years.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123947.jpg" style="width:100%"><br>
+
+###### 16. Princess Diana Dancing With John Travolta At A White House Dinner, 1985<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123948.jpg" style="width:100%"><br>
+
+###### 17. San Franciscos Lombard Street In 1975<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123949.jpg" style="width:100%"><br>
+
+###### 18. Keanu Reeves Photographed By Willy Rizzo, In Paris, 2003<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123950.jpg" style="width:100%"><br>
+
+###### 19. Shes In Someones Locket, 1940s<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123951.jpg" style="width:100%"><br>
+
+###### 20. Frida Kahlo Painting In Bed, 1950s<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123952.jpg" style="width:100%"><br>
+
+###### 21. Dad Showing Off His Skill To The Surprise Of His Little Daughter In Melbourne, Australia, 1940s<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123953.jpg" style="width:100%"><br>
+
+###### 22. David Bowie Performs To A Huge Crowd In 1983<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123954.jpg" style="width:100%"><br>
+
+###### 23. In 1922, Scientists Entered A Ward Of Dying Children, All In Comatose Diabetic Ketoacidosis, And Injected A New Drug (Insulin) Into Them As Families Were Already Beginning To Grieve<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123955.jpg" style="width:100%"><br>
+
+###### 24. A Young Boy That Had Just Stolen His Father‚Äôs Car And Crashed It, Takes One Last Puff On His Cigarette Before Facing The Consequences. 1974<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123956.jpg" style="width:100%"><br>
+
+###### 25. A Knocker-Upper Was Someone Whose Sole Purpose Was To Wake People Up During A Time When Alarm Clocks Were Expensive And Not Very Reliable<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123957.jpg" style="width:100%"><br>
+
+###### 26. Summer Solstice Celebration, Stockholm, Sweden, 1970<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123958.jpg" style="width:100%"><br>
+
+###### 27. Winter Proofing New Russians, Moscow, 1958.they Believe That The Cold, Fresh Air Boost The Immune System And It Helps Them To Nap Longer<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123959.jpg" style="width:100%"><br>
+
+## <a href="#22" id="21">31 WTF Pics That Won't Go Away</a><br>
+
+###### 1. ‚ÄúMy dog hit me in the face. Yes, that is an imprint of my eyeball.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122656.jpg" style="width:100%"><br>
+
+###### 2. ‚ÄúCat shelf‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122657.jpg" style="width:100%"><br>
+
+###### 3. ‚ÄúUp or going straight into a flat tunnel?‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122658.jpg" style="width:100%"><br>
+
+###### 4. ‚ÄúMy dog has 7 legs.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122659.jpg" style="width:100%"><br>
+
+###### 5. ‚ÄúMy mug is sweating tea through the cracks in the ceramic.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122660.jpg" style="width:100%"><br>
+
+###### 6. ‚ÄúWalked downstairs and did a double take.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122661.jpg" style="width:100%"><br>
+
+###### 7. ‚ÄúTiny truck‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122662.jpg" style="width:100%"><br>
+
+###### 8. ‚ÄúI didn‚Äôt think I‚Äôd actually lose in a hide a seek game with my nephew. Told him to pose for a pic.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122663.jpg" style="width:100%"><br>
+
+###### 9. ‚ÄúSome deterioration on a wall in Dublin looks like a parakeet.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122664.jpg" style="width:100%"><br>
+
+###### 10. ‚ÄúMy brother‚Äôs very long arm.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122665.jpg" style="width:100%"><br>
+
+###### 11. ‚ÄúThe kittens I‚Äôm adopting look like a 2-headed cat.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122666.jpg" style="width:100%"><br>
+
+###### 12. ‚ÄúThis box is judging me.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122667.jpg" style="width:100%"><br>
+
+###### 13. ‚ÄúOH NO!‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122668.jpg" style="width:100%"><br>
+
+###### 14. ‚ÄúI noticed a piece of broccoli on my plate and thought it looked like an opossum face.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122669.jpg" style="width:100%"><br>
+
+###### 15. ‚ÄúThis sad banana I cut‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122670.jpg" style="width:100%"><br>
+
+###### 16. ‚ÄúSalvador Dali‚Äôs face‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122671.jpg" style="width:100%"><br>
+
+###### 17. ‚ÄúThis yam looks like a human hand!‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122672.jpg" style="width:100%"><br>
+
+###### 18. ‚ÄúMy dog‚Äôs face looks like a Vincent van Gogh painting.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122673.jpeg" style="width:100%"><br>
+
+###### 19. The glass reflection makes it look like this house was snowed in.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122674.jpg" style="width:100%"><br>
+
+###### 20. ‚ÄúMy moisturizer came out looking like a fish, with gills and everything.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122675.jpg" style="width:100%"><br>
+
+###### 21. This curly fry is in ‚Äútreble.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122676.jpeg" style="width:100%"><br>
+
+###### 22. ‚ÄúThe ice on my building window looks like a cat.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122677.jpg" style="width:100%"><br>
+
+###### 23. This woman‚Äôs upside-down face looks like a mildly disappointed dwarf.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122678.jpg" style="width:100%"><br>
+
+###### 24. ‚ÄúMy kid is levitating on the ice rink.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122679.jpg" style="width:100%"><br>
+
+###### 25. ‚ÄúPyramids‚Äù in the distance<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122680.jpg" style="width:100%"><br>
+
+###### 26. ‚ÄúUltra-rare, double-ended horse spotted this morning.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122681.jpg" style="width:100%"><br>
+
+###### 27. This ‚Äúdragon-breathing‚Äù fire.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122682.jpg" style="width:100%"><br>
+
+###### 28. ‚ÄúI found a creepy face in my spade.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122683.jpeg" style="width:100%"><br>
+
+###### 29. ‚ÄúShe looks as if she has no legs.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122684.jpg" style="width:100%"><br>
+
+###### 30. ‚ÄúI caught a rainbow in a clear mineral, and now it looks like Marvel‚Äôs ‚ÄôInfinity Stone.‚Äô‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122685.jpeg" style="width:100%"><br>
+
+## <a href="#23" id="22">22 Fresh Memes From the Dank Side of the Tracks</a><br>
 
 ###### 1. A technically correct falcon fact. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87123760.jpg" style="width:100%"><br>
 
@@ -1118,126 +1338,6 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 ###### 21. Careful, youll disturb the weebs. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87123785.jpg" style="width:100%"><br>
 
 ###### 22. Whoopsies!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87123786.jpg" style="width:100%"><br>
-
-## <a href="#22" id="21">31 WTF Pics That Won't Go Away</a><br>
-
-###### 1. ìMy dog hit me in the face. Yes, that is an imprint of my eyeball.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122656.jpg" style="width:100%"><br>
-
-###### 2. ìCat shelfî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122657.jpg" style="width:100%"><br>
-
-###### 3. ìUp or going straight into a flat tunnel?î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122658.jpg" style="width:100%"><br>
-
-###### 4. ìMy dog has 7 legs.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122659.jpg" style="width:100%"><br>
-
-###### 5. ìMy mug is sweating tea through the cracks in the ceramic.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122660.jpg" style="width:100%"><br>
-
-###### 6. ìWalked downstairs and did a double take.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122661.jpg" style="width:100%"><br>
-
-###### 7. ìTiny truckî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122662.jpg" style="width:100%"><br>
-
-###### 8. ìI didnít think Iíd actually lose in a hide a seek game with my nephew. Told him to pose for a pic.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122663.jpg" style="width:100%"><br>
-
-###### 9. ìSome deterioration on a wall in Dublin looks like a parakeet.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122664.jpg" style="width:100%"><br>
-
-###### 10. ìMy brotherís very long arm.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122665.jpg" style="width:100%"><br>
-
-###### 11. ìThe kittens Iím adopting look like a 2-headed cat.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122666.jpg" style="width:100%"><br>
-
-###### 12. ìThis box is judging me.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122667.jpg" style="width:100%"><br>
-
-###### 13. ìOH NO!î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122668.jpg" style="width:100%"><br>
-
-###### 14. ìI noticed a piece of broccoli on my plate and thought it looked like an opossum face.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122669.jpg" style="width:100%"><br>
-
-###### 15. ìThis sad banana I cutî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122670.jpg" style="width:100%"><br>
-
-###### 16. ìSalvador Daliís faceî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122671.jpg" style="width:100%"><br>
-
-###### 17. ìThis yam looks like a human hand!î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122672.jpg" style="width:100%"><br>
-
-###### 18. ìMy dogís face looks like a Vincent van Gogh painting.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122673.jpeg" style="width:100%"><br>
-
-###### 19. The glass reflection makes it look like this house was snowed in.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122674.jpg" style="width:100%"><br>
-
-###### 20. ìMy moisturizer came out looking like a fish, with gills and everything.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122675.jpg" style="width:100%"><br>
-
-###### 21. This curly fry is in ìtreble.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122676.jpeg" style="width:100%"><br>
-
-###### 22. ìThe ice on my building window looks like a cat.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122677.jpg" style="width:100%"><br>
-
-###### 23. This womanís upside-down face looks like a mildly disappointed dwarf.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122678.jpg" style="width:100%"><br>
-
-###### 24. ìMy kid is levitating on the ice rink.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122679.jpg" style="width:100%"><br>
-
-###### 25. ìPyramidsî in the distance<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122680.jpg" style="width:100%"><br>
-
-###### 26. ìUltra-rare, double-ended horse spotted this morning.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122681.jpg" style="width:100%"><br>
-
-###### 27. This ìdragon-breathingî fire.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122682.jpg" style="width:100%"><br>
-
-###### 28. ìI found a creepy face in my spade.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122683.jpeg" style="width:100%"><br>
-
-###### 29. ìShe looks as if she has no legs.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122684.jpg" style="width:100%"><br>
-
-###### 30. ìI caught a rainbow in a clear mineral, and now it looks like Marvelís íInfinity Stone.íî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87122685.jpeg" style="width:100%"><br>
-
-## <a href="#23" id="22">28 Memes That Escaped From a Maximum Dankness Prison</a><br>
-
-###### 1. A meme about the gluttony involved with daily life. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124652.jpg" style="width:100%"><br>
-
-###### 2. A solid plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124653.jpg" style="width:100%"><br>
-
-###### 3. Weve all been there. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124654.png" style="width:100%"><br>
-
-###### 4. Not the time for moral dilemmas. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124656.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124657.png" style="width:100%"><br>
-
-###### 6. Theres only one explanation for this...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124658.jpg" style="width:100%"><br>
-
-###### 7. It really is that simple. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124659.jpg" style="width:100%"><br>
-
-###### 8. Ah, ignorance is bliss. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124660.jpg" style="width:100%"><br>
-
-###### 9. Fire roasted. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124661.png" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124662.jpg" style="width:100%"><br>
-
-###### 11. Its the name of the game. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124663.jpg" style="width:100%"><br>
-
-###### 12. That seems fair. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124664.jpg" style="width:100%"><br>
-
-###### 13. Hope it was worth it, bud. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124665.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124666.png" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124667.jpg" style="width:100%"><br>
-
-###### 16. One would hope. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124668.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124669.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124670.jpg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124671.png" style="width:100%"><br>
-
-###### 20. Welcome to adulthood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124672.jpg" style="width:100%"><br>
-
-###### 21. Punctuations important, kids. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124673.jpg" style="width:100%"><br>
-
-###### 22. Water aint what it used to be. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124674.png" style="width:100%"><br>
-
-###### 23. Ive never met Steve Jobs. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124675.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124676.jpg" style="width:100%"><br>
-
-###### 25. When a fire-hydrant has a strong opinion. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124679.jpg" style="width:100%"><br>
-
-###### 26. Ssshhhh.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124677.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124678.jpg" style="width:100%"><br>
-
-###### 28. Bullet dodged. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124680.jpg" style="width:100%"><br>
 
 ## <a href="#24" id="23">23 Worksites That Are Infinitely More Dangerous Because of These People</a><br>
 
@@ -1287,710 +1387,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87123378.png" style="width:100%"><br>
 
-## <a href="#26" id="25">25 Pieces of Advice We Wish We Could Give Our Teenage Selves</a><br>
-
-###### 1. Get checked out for ADHD, try harder in school, focus more on music than sports, and lift some weights. -u/OneHandedPaperHanger <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125106.jpg" style="width:100%"><br>
-
-###### 2. Dont marry her. Someone who thinks every problem is your fault and never sees her part in things is someone whos never going to be able to love you in a meaningful way. -u/meddlingbarista<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125107.jpg" style="width:100%"><br>
-
-###### 3. When you get your first job out of college, please put 15% in retirement. -u/RedheadedMermaid980<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125108.jpg" style="width:100%"><br>
-
-###### 4. Your parents dont actually know what the hell theyre talking about most of the time. -u/dragonfiremalus<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125109.jpg" style="width:100%"><br>
-
-###### 5. Being a nerd may be painful in high school, but it more than pays off in college and as an adult. Just embrace your geekiness! -u/Muchnowless<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125110.jpg" style="width:100%"><br>
-
-###### 6. Follow your dream course, and not what others told you. Asian problems. -u/CakeDramatic4155<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125112.jpg" style="width:100%"><br>
-
-###### 7. Just ask her out now so you can love her longer. She is the one you end up with anyway in 25 years and itís great. -u/BmwM5racer<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125114.jpg" style="width:100%"><br>
-
-###### 8. My 16-year-old self would not listen to a damn thing I have to say. -u/Sector_Independent<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125113.jpg" style="width:100%"><br>
-
-###### 9. Heís not the one but just enjoy your time with him while it lasts. -u/cinnamontingles<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125115.jpg" style="width:100%"><br>
-
-###### 10. I dont even feel much smarter than you right now. Cant give you any advice really. -u/owjfaigs222<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125116.jpg" style="width:100%"><br>
-
-###### 11. We go bald just like Dad. Grow your hair long right now while you still can. -u/Thirty_Helens_Agree<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125117.jpg" style="width:100%"><br>
-
-###### 12. This girl with the blonde hair is flirting with you. Also theres a cool looking stick in the grass nearby, get it before your brother does. -u/Lenka420<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125111.jpg" style="width:100%"><br>
-
-###### 13. Stop being such a wallflower. Tell that girl in your German class youre interested in her. -u/GrumpyCatStevens<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125118.jpg" style="width:100%"><br>
-
-###### 14. Start saving whilst your life is cheap. It will buy things later down the road. -u/RickOxlarge<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125119.jpg" style="width:100%"><br>
-
-###### 15. Get your Eagle Project done now. Oh and also, cancer is f*cking hell. Get ready. -u/Weak_Carpenter_7060<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125120.jpg" style="width:100%"><br>
-
-###### 16. Cool it with the booze and drugs dumba**. Its gonna get you in a whole heap of trouble. -u/Jondajonda<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125121.jpg" style="width:100%"><br>
-
-###### 17. Leicester wins the Premier League with Claudio Ranieri as their manager. Also dont go to music college playing an instrument you hate, you absolute sausage roll. -u/uwu-lmao-xD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125122.jpg" style="width:100%"><br>
-
-###### 18. Strap yourself in boy. From here on out itís going to be a b*tch. -u/jakeblutarski<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125123.jpg" style="width:100%"><br>
-
-###### 19. Stop letting your self-consciousness/fear of not being good enough, or perfect get in the way of you truly living your life and making many good memories to look back on later in life. Because looking back youíll realize that the majority of people donít really care/wouldnít have criticized you as much as you thought they would. 
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125124.png" style="width:100%"><br>
-
-###### 
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125125.jpg" style="width:100%"><br>
-
-###### 
-Your life is yours to live, so live it for you and not based on anyone elseís opinion because you only get one chance at this life, you canít rewind. Youíre only young once so try to make the most of it and enjoy it because memories and regret are the only things that last. -u/Ungodly_Goddess<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125126.jpg" style="width:100%"><br>
-
-###### 20. No, that dude on Discord is not the love of your life. -u/finchyem<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125127.jpg" style="width:100%"><br>
-
-###### 21. Youíre getting severely depressed, get help. -u/Noodlesandwings<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125128.jpg" style="width:100%"><br>
-
-###### 22. You and your mom will email back and forth every single day that youíre away at college. All four years. Print out EVERY SINGLE MESSAGE from her and save it. Sheís going to die two years after you graduate. You will wish you had those emails to look back on. -u/quivx<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125129.jpg" style="width:100%"><br>
-
-###### 23. Donít buy things with the bitcoin you received. Save it. -u/G6LE<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125130.jpeg" style="width:100%"><br>
-
-## <a href="#27" id="26">25 Words That Give Us Way Too Much Joy When Said Out Loud</a><br>
-
-###### 1. Chicanery. -u/bennietime<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125045.jpg" style="width:100%"><br>
-
-###### 2. Saskatchewan. -u/brunch_blanket<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125046.jpg" style="width:100%"><br>
-
-###### 3. Chupacabra. -u/skywolfsilver<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125047.jpg" style="width:100%"><br>
-
-###### 4. Discombobulated. -u/stuck_here_4ever<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125048.png" style="width:100%"><br>
-
-###### 5. Indubitably. -u/paperdoll07<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125049.jpg" style="width:100%"><br>
-
-###### 6. My favorite word ever is doppelg‰nger! -u/Tenor_Gurll<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125050.jpg" style="width:100%"><br>
-
-###### 7. Phenomenon...Do dooo dee do do.-u/Conquerors_Quill<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125051.jpg" style="width:100%"><br>
-
-###### 8. Rutabaga. -u/darnskippy234<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125052.jpg" style="width:100%"><br>
-
-###### 9. Evisceration. -u/Homo-Homie<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125053.jpg" style="width:100%"><br>
-
-###### 10. Perpendicular. -u/pirate_pen<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125055.png" style="width:100%"><br>
-
-###### 11. Shenanigans. -u/glorified_throwaway<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125056.jpg" style="width:100%"><br>
-
-###### 12. Loquacious. -u/ooo-ooo-oooyea<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125057.jpg" style="width:100%"><br>
-
-###### 13. Onomatopoeia. -u/WholyFunny<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125058.jpg" style="width:100%"><br>
-
-###### 14. Exacerbate. It just sounds so naughty. -u/Odd_Improvement578<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125059.jpg" style="width:100%"><br>
-
-###### 15. Haberdashery. -u/Electronic-Ad3386<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125060.jpg" style="width:100%"><br>
-
-###### 16. Cacophony. -u/Xenoraiser<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125062.jpg" style="width:100%"><br>
-
-###### 17. Didgeridoo. -u/Wiriwi_Seco <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125063.jpg" style="width:100%"><br>
-
-###### 18. Isosceles .-u/BudgetHero<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125064.jpg" style="width:100%"><br>
-
-###### 19. Serpendipity. Its got a dipity in it. -u/Snoringdragon<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125065.jpg" style="width:100%"><br>
-
-###### 20. Malarkey. -u/Either-Brief8055<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125066.jpg" style="width:100%"><br>
-
-###### 21. Kerfuffle. -u/Bashful_Maiden<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125067.jpg" style="width:100%"><br>
-
-###### 22. Im partial to oink because it makes my 5-year-old grandson break out into giggles. -u/jbeech-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125069.jpg" style="width:100%"><br>
-
-###### 23. Gobsmacked. -u/TheDudeWithNoName_<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125070.jpg" style="width:100%"><br>
-
-###### 24. Baba ganoush. -u/FlappyPaddleGearBox1<br><img src="https://cdn.ebaumsworld.com/2022/03/16/021513/87125102/baba.jpg" style="width:100%"><br>
-
-###### 25.  Flabbergasted. -u/Ok_Candle_4310<br><img src="https://cdn.ebaumsworld.com/2022/03/16/021513/87125103/flabbergasted.jpg" style="width:100%"><br>
-
-## <a href="#28" id="27">21 Times People Saw Cool Things That Impressed Them</a><br>
-
-###### 1. ìThe cameraís flash made the spider look radioactive.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124500.jpg" style="width:100%"><br>
-
-###### 2. This gas station in Cincinnati has a full bar inside it.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113231/87124968/87117655.jpg" style="width:100%"><br>
-
-###### 3. ìThis sweetgum leaf looks like itís on fire.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124501.jpg" style="width:100%"><br>
-
-###### 4. ìThe rain on my screen door makes the outside seem like a watercolor painting.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124502.jpg" style="width:100%"><br>
-
-###### 5. This awesome Marvel chess set I saw at a buddys house.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113304/87124971/Chess.jpg" style="width:100%"><br>
-
-###### 6. ìTook this when half the sky was clear after the rain.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124503.jpg" style="width:100%"><br>
-
-###### 7. ìAn iPhone sitting in a chair cupholderî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124504.jpg" style="width:100%"><br>
-
-###### 8. The sun made my door an exclamation point.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113242/87124969/87117666.jpg" style="width:100%"><br>
-
-###### 9. ìYes, I feel comfy here.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124505.jpg" style="width:100%"><br>
-
-###### 10. Got a quarter minted in 2022 today.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113253/87124970/87122732.jpg" style="width:100%"><br>
-
-###### 11. ìIt looks like a hand is coming out of the sky.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124506.jpg" style="width:100%"><br>
-
-###### 12. ìThe reflections make the barriers appear transparent.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124507.jpg" style="width:100%"><br>
-
-###### 13. ìA plane ruined my long exposure shot at the beach last night and created an unintentional sky lightsaber.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124508.jpg" style="width:100%"><br>
-
-###### 14. ìI took a panoramic photo at a concert and the lights changed in the middle of it. This is the result.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124509.jpg" style="width:100%"><br>
-
-###### 15. ìThis view from the laundry room seems fake.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124510.jpg" style="width:100%"><br>
-
-###### 16. ìThis boat I came across looks somewhat intimidating.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124511.jpg" style="width:100%"><br>
-
-###### 17. ìMy friendís jacket makes him invisible when you take a picture with the flash.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124512.jpg" style="width:100%"><br>
-
-###### 18. ìThis jellyfish I caught a picture of appears to be in space.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124513.jpg" style="width:100%"><br>
-
-###### 19. ìThe wells on this baking pan look both concave and raised in this photo.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124514.jpg" style="width:100%"><br>
-
-###### 20. This cool table with a glowing resin finish.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113220/87124967/87121143.jpg" style="width:100%"><br>
-
-###### 21. Darth Vader Grill is perfect for any Star Wars fan.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113315/87124972/Darth.jpg" style="width:100%"><br>
-
-## <a href="#30" id="29">35 Irish Memes for Gingers and Daywalkers Alike</a><br>
-
-###### 1. I love Jennifer Aniston.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125527.jpg" style="width:100%"><br>
-
-###### 2. Listen, if it runs it runs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125548.jpg" style="width:100%"><br>
-
-###### 3. How New Orleans does St. Patricks Day.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125524.jpg" style="width:100%"><br>
-
-###### 4. Already making spelling mistakes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125525.jpg" style="width:100%"><br>
-
-###### 5. Words wisdom Lloyd, words of wisdom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125526.jpg" style="width:100%"><br>
-
-###### 6. Irish more people were like these guys.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125530.jpg" style="width:100%"><br>
-
-###### 7. LOL, what do you want from us? We go HAM over here in the states.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125539.jpg" style="width:100%"><br>
-
-###### 8. Welcome to the club. We have jackets.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125529.jpg" style="width:100%"><br>
-
-###### 9. Actually, Ireland never had snakes, the temperatures are too cold. Snakes = pagans. Now you know.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125528.jpg" style="width:100%"><br>
-
-###### 10. Two of my favorite words to use.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125532.jpg" style="width:100%"><br>
-
-###### 11. This seems safe and healthy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125533.jpg" style="width:100%"><br>
-
-###### 12. A wee bit o irish malarkey never hurt anybody.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125537.jpg" style="width:100%"><br>
-
-###### 13. This is a big mood.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125538.jpg" style="width:100%"><br>
-
-###### 14. What else could a guy ask for?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125531.png" style="width:100%"><br>
-
-###### 15. I dont think there is enough green in this pic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125541.jpg" style="width:100%"><br>
-
-###### 16. I can feel this cats hangover.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125542.jpg" style="width:100%"><br>
-
-###### 17. Irish and proud about it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125543.jpg" style="width:100%"><br>
-
-###### 18. Now Im hungry for potatoes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125544.jpg" style="width:100%"><br>
-
-###### 19. Get it? Because its all beer themed.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125546.jpg" style="width:100%"><br>
-
-###### 20. Lol, alcohol is hilarious.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125547.jpg" style="width:100%"><br>
-
-###### 21. Please and thank you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125549.jpg" style="width:100%"><br>
-
-###### 22. I mean if you have to piss really bad...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125550.jpg" style="width:100%"><br>
-
-###### 23. Yet here I am, an Irishman, stuck at work.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125534.jpg" style="width:100%"><br>
-
-###### 24. Bro lets get wasted, bro.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125558.png" style="width:100%"><br>
-
-###### 25. Ireland could never.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125551.png" style="width:100%"><br>
-
-###### 26. Cabbage for all!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125552.jpeg" style="width:100%"><br>
-
-###### 27. Riding shotgun on the struggle bus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125553.jpg" style="width:100%"><br>
-
-###### 28. Honestly looks super comfy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125555.jpg" style="width:100%"><br>
-
-###### 29. My sisters husbands great great grandfather was 1/18th Irish.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125556.png" style="width:100%"><br>
-
-###### 30. Name something more beautiful. Ill wait...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125568.jpg" style="width:100%"><br>
-
-###### 31. That wasnt me, that was Patricia.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125557.jpeg" style="width:100%"><br>
-
-###### 32. High as a kite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125554.jpg" style="width:100%"><br>
-
-###### 33. Shrek! Im a donkey, Shrek!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125559.jpg" style="width:100%"><br>
-
-###### 34. Nailed it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125560.jpg" style="width:100%"><br>
-
-###### 35. Mmm, looks super healthy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125561.jpg" style="width:100%"><br>
-
-## <a href="#31" id="30">30 Creepy Pics Full of WTF</a><br>
-
-###### 1. Sharks Photographed Upside Down<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125677.jpg" style="width:100%"><br>
-
-###### 2. A Wet Owl<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125678.jpg" style="width:100%"><br>
-
-###### 3. This Is An Australian Moth, It Can Also Fly<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125679.jpg" style="width:100%"><br>
-
-###### 4. A Patient With Claustrophobia Panicking During A Ct Scan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125680.jpg" style="width:100%"><br>
-
-###### 5. Sfx Painted On My Hand<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125682.jpg" style="width:100%"><br>
-
-###### 6. Out For A Ride<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125683.jpg" style="width:100%"><br>
-
-###### 7. A Picture Of A Bridge With Snow I Took<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125684.jpg" style="width:100%"><br>
-
-###### 8. Sign On A Cemetery Gate<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125685.jpg" style="width:100%"><br>
-
-###### 9. Portland Man Found His Tires Slashed, And This Note On His Car<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125681.jpg" style="width:100%"><br>
-
-###### 10. Just Sit Still And Youíll Be Fine<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125686.jpg" style="width:100%"><br>
-
-###### 11. Chick Born With The Genetic Defect Polymelia, Causing It To Have 4 Legs<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125687.jpg" style="width:100%"><br>
-
-###### 12. This Abandoned Hospital Had A Visitor Last Night<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125688.jpg" style="width:100%"><br>
-
-###### 13. My Friend Cooked Red Rice But She Put Too Much Water<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125689.jpg" style="width:100%"><br>
-
-###### 14. No Filters. Australia Was Red From Wildfires [2019]<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125690.jpg" style="width:100%"><br>
-
-###### 15. My Friend And His Girlfriend Came Across This In Somebodyís House<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125691.jpg" style="width:100%"><br>
-
-###### 16. Last Thing A Fish Sees In Antarctica<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125692.jpg" style="width:100%"><br>
-
-###### 17. Building A Mountain Road In China<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125693.jpg" style="width:100%"><br>
-
-###### 18. Big Eye Grendalier, They Live Deep Down Near The Sea Floor<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125694.jpg" style="width:100%"><br>
-
-###### 19. I Left Netflix Running In My Bedroom This Morning And Came Back To See This Frozen On The Screen<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125695.jpg" style="width:100%"><br>
-
-###### 20. Face Swap On Horse And Dog<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125696.jpg" style="width:100%"><br>
-
-###### 21. A Mother Hiding Her Face As She Puts Her Children On Sale (Chicago USA, 1948)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125697.jpg" style="width:100%"><br>
-
-###### 22. Saturns North Pole Is A Hexagon<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125698.jpg" style="width:100%"><br>
-
-###### 23. I Just Learned About Muffler Hair And I Am Not Okay<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125699.jpg" style="width:100%"><br>
-
-###### 24. These Pointy Hat Fellas Enjoying A Ferris Wheel Ride<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125700.jpg" style="width:100%"><br>
-
-###### 25. Bluebottle Maggot Under An Electron Microscope<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125701.jpg" style="width:100%"><br>
-
-###### 26. Something Tells Me I Should Find Something Else To Eat<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125702.jpg" style="width:100%"><br>
-
-###### 27. Telescopefish. This Deep-Sea Species Can Swallow Prey Larger Than Itself And Lives In Depths Between 500 And 3000 Meters<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125703.jpg" style="width:100%"><br>
-
-###### 28. Sorry For The Phone Camera But Why Did I Suddenly Woke Up In A Silent Hill Game?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125704.jpg" style="width:100%"><br>
-
-###### 29. Abandoned Church In A Small Czech Village Remains A Shrine Filled With Ghost Sculptures Of The Parishioners Who Passed Away There<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125705.jpg" style="width:100%"><br>
-
-###### 30. The Creator Of The Lobotomy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125706.jpg" style="width:100%"><br>
-
-## <a href="#32" id="31">37 Awesome Randoms to Save Your Day</a><br>
-
-###### 1. Check. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126072.jpeg" style="width:100%"><br>
-
-###### 2. Some things cannot be unseen. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126073.gif" style="width:100%"><br>
-
-###### 3. The badass armor of Holy Roman Emperor Ferdinand II<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126074.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126075.jpg" style="width:100%"><br>
-
-###### 5. Cat fact: <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126076.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126077.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126078.jpg" style="width:100%"><br>
-
-###### 8. Satsifying. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126079.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126080.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126081.gif" style="width:100%"><br>
-
-###### 11. A doggo being oddly satisfying. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126082.gif" style="width:100%"><br>
-
-###### 12. A panda shows some attitude. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126083.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126084.gif" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126085.jpg" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126086.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126087.jpg" style="width:100%"><br>
-
-###### 17. An incredibly unsafe way to commute. Possibly invented by a hamster. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126088.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126089.jpg" style="width:100%"><br>
-
-###### 19. A perfectly looped hamster snacking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126090.gif" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126091.jpg" style="width:100%"><br>
-
-###### 21. Some men just want to watch the world burn. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126092.jpg" style="width:100%"><br>
-
-###### 22. A very shiny specimen of a horse. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126093.jpg" style="width:100%"><br>
-
-###### 23. Nip is a  hell of a drug. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126094.gif" style="width:100%"><br>
-
-###### 24. A fact that uplifts some, depresses others. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126095.jpg" style="width:100%"><br>
-
-###### 25. We could all use a new hobby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126096.jpg" style="width:100%"><br>
-
-###### 26. A juvenile fox finds a trophy. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126097.jpg" style="width:100%"><br>
-
-###### 27. This iridescent peacock might be the prettiest bird in the world. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126098.jpeg" style="width:100%"><br>
-
-###### 28. An original gangsta. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126099.jpeg" style="width:100%"><br>
-
-###### 29. Someone flexes their tattoo, literally. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126100.jpg" style="width:100%"><br>
-
-###### 30. A good Samaritan worries aloud about Talyor Swifts ovarian health. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126101.jpg" style="width:100%"><br>
-
-###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126102.jpg" style="width:100%"><br>
-
-###### 32. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126103.jpg" style="width:100%"><br>
-
-###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126104.jpg" style="width:100%"><br>
-
-###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126105.png" style="width:100%"><br>
-
-###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126106.jpg" style="width:100%"><br>
-
-###### 36. Can we get a status update from the cameraman?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126107.jpg" style="width:100%"><br>
-
-###### 37. Size matters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
-
-## <a href="#33" id="32">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
-
-###### 1. Arnold Schwarzenegger gave us a rallying speech from the comfort of his own home. Oh yeah in his hot tub...smoking a cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126698.jpg" style="width:100%"><br>
-
-###### 2. Kim Kardashian pleaded with the internet to social distance while her mother sat across the table from her. Keep in mind this was peak pandemic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126699.jpg" style="width:100%"><br>
-
-###### 3. Priyanka Chopra was seemingly clapping for healthcare workers? But in the video she posted on Twitter, it just looks like she truly appreciates her massive yard.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126700.jpg" style="width:100%"><br>
-
-###### 4. Sam Smith had a mental breakdown, and took pictures of the process.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126702.jpg" style="width:100%"><br>
-
-###### 5. Jennifer Annistons dog was sad. He also has an entire mansion and gorgeous view.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126703.jpg" style="width:100%"><br>
-
-###### 6. Drake was clearly having a rough go of it. The rapper posted an Instagram story from his private basketball court. Life must be tough.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126701.jpg" style="width:100%"><br>
-
-###### 7. Katy Perry was trolled into thinking that people were singing her song Roar on their balconies in Italy. Lol it was all fake.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126704.jpg" style="width:100%"><br>
-
-###### 8. The cringiest video I may have ever seen in my life. Gal Gadot and multiple other wealthy celebs singing Imagine.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126706.jpg" style="width:100%"><br>
-
-###### 9. Vanessa Carlton poked fun at her own song.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126705.jpg" style="width:100%"><br>
-
-###### 10. Sia attempted to look like she was doing her part. Whatever that means.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126707.jpg" style="width:100%"><br>
-
-###### 11. Madonna fell for the same trolling as our girl Katy Perry. Its literally the same video.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126708.jpg" style="width:100%"><br>
-
-###### 12. Madonna took to the internet once again to sing a cover of her own song. The cover complains about the lack of pasta, and the frying of fish.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126710.jpg" style="width:100%"><br>
-
-###### 13. Jennifer Lopez showed us a glimpse of her weird house, and it looks like they just got filming Parasite. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126711.jpg" style="width:100%"><br>
-
-###### 14. Evangeline Lily posted some weird sh*t. None weirder than her hashtag Business as usual when bragging about her kids going to gymnastics.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126714.jpg" style="width:100%"><br>
-
-###### 15. JLO took a weird selfie in which there is clearly a screaming/struggling man in the background.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126712.jpg" style="width:100%"><br>
-
-###### 16. Madonna took a glamorous bath in her home, and lectured about how covid is a great equalizer.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126709.jpg" style="width:100%"><br>
-
-###### 17. Actress Jaime King shared a strange video that actually thanked the coronavirus for bringing humans closer together.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126713.jpg" style="width:100%"><br>
-
-###### 18. Producer and billionaire, David Geffen wished us all well from his yacht. So that was cool.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126715.jpg" style="width:100%"><br>
-
-###### 19. Vanessa Hudgens had some word vomit in an Instagram video that she posted. Ending the video with maybe I shouldnt be saying this.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033533/87126716/van.jpg" style="width:100%"><br>
-
-###### 20. Bette Midler clearly has never cooked or cleaned in her entire life.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033649/87126717/midler.jpg" style="width:100%"><br>
-
-## <a href="#34" id="33">20 People Who Have Horrible Bosses</a><br>
-
-###### 1. ìMy employer sent me this...î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
-
-###### 2. ìMeals (1 per person) we get at my job for shifts that can last up to 12 hoursî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
-
-###### 3. ìMy ëbossí has no regard for a customerís expensive chair even after I told her how much itís worth.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
-
-###### 4. ìThis burrito at my job is $5.54 and weíre not allowed to leave to get food.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
-
-###### 5. ìThis is what I got for working one year at my job. They spelled my last name wrong... pathetic.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
-
-###### 6. ìWhen I resigned, my boss told people to not get me anything for my farewell.î
-
-ìPut in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now theyíre starting to see very small bits of why I canít stand him.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
-
-###### 7. ìCalled my boss and said, íHow do you expect me to work like this.í She said íTry your best.í Iím a barista.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
-
-###### 8. ìA customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
-
-###### 9. ìThis was the only fire alarm system we had in one of the old buildings I worked in.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
-
-###### 10. ìThanksgiving gift from my employer. Not even joking.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
-
-###### 11. ìMy employer contracted out some cable work. This was the result.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
-
-###### 12. ìHow my momís employer shipped her $2,000 work laptopî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
-
-###### 13. ìWe had a birthday at the office today and our boss insisted on cutting the cake.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
-
-###### 14. ìI am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
-
-###### 15. ìThis keyboard at my place of employment. Itís covered with aluminum dust.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
-
-###### 16. ìMy boss has turned our íbreak roomí into a workshop.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
-
-###### 17. ìMy boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
-
-###### 18. ìI told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, í6-6 no exceptionsíî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
-
-###### 19. ì4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. Thatís not even my job!î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
-
-###### 20. When the boss leaves, itís time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
-
-## <a href="#35" id="34">16 Fascinating Photos From Around The World</a><br>
-
-###### 1. Ukrainian soldier captured Russian spetsnaz tseltium shield<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124326.jpg" style="width:100%"><br>
-
-###### 2. Ukraineís first International legion of territorial defence forcesñ fighters from the US, Mexico, India, Sweden, and more<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124325.png" style="width:100%"><br>
-
-###### 3. In 1867, the United States purchased Alaska from the Russian Empire using this check. The US paid $7.2 million (roughly $133 million in 2020 USD) for nearly 365 million acres of land. Thatís less than 2 cents per acre in 1867, or about $0.37 per acre in 2020 USD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124327.jpg" style="width:100%"><br>
-
-###### 4. This is a torii gate made of speakers in Kamiyama, Tokushima. You can plug in your phone and play anything you want.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124328.jpg" style="width:100%"><br>
-
-###### 5. During Russian Channel 1ís evening news broadcast, a woman ran onto the set with a sign: ìNo warÖDonít believe the propaganda. Theyíre lying to you here.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124329.jpg" style="width:100%"><br>
-
-###### 6. The largest sailing yacht in the world has been confiscated in Spainî Officials have taken Russian oligarch Andrey Melnichenkoís yacht worth over 500mil euros due to sanctions<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124330.jpg" style="width:100%"><br>
-
-###### 7. Overnight bus in Japan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124331.jpg" style="width:100%"><br>
-
-###### 8. Al Caponeís cell in Eastern State Penitentiary<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124332.jpg" style="width:100%"><br>
-
-###### 9. Aleksander Doba. He has kayaked solo across the Atlantic 3 times, most recently in 2017 at the age of 70.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124333.jpg" style="width:100%"><br>
-
-###### 10. Krishna Butterball is a massive 250 ton and 20ft high rock boulder on a slippery slope of a hill on less than 4ft base didnít rolled downhill and is in this position for more than 2000 years<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124334.jpg" style="width:100%"><br>
-
-###### 11. These benches are reversible, so you can choose to look at people, or boats.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124335.png" style="width:100%"><br>
-
-###### 12. Vilnius has put up a statue that offers a ìportalî to the Polish city of Lublin, allowing people to see each other in real time<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124336.jpg" style="width:100%"><br>
-
-###### 13. In France, Peyo, a beautiful 15-year-old stallion, often comes to comfort and soothe terminally ill patients at the Techer Hospital in Calais. The horse always chooses which patient he wants to see, kicking his hoof outside the door<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124337.jpg" style="width:100%"><br>
-
-###### 14. Japanís ìKilling Stoneî Breaks open after 1000 years, Legend has it the demon trapped inside is now free<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124338.jpg" style="width:100%"><br>
-
-###### 15. Price of full tank of gasoline as a percentage of average monthly net salary across the world<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124339.jpg" style="width:100%"><br>
-
-###### 16. Nice find Igor!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124340.jpg" style="width:100%"><br>
-
-## <a href="#36" id="35">26 Comments That Really Nailed It</a><br>
-
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124916.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124903.jpg" style="width:100%"><br>
-
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124923.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124904.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124905.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124906.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124907.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124908.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124909.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124910.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124911.jpg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124912.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124913.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124914.jpg" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124915.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124917.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124918.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124920.jpg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124921.jpg" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124922.jpg" style="width:100%"><br>
-
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124924.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124925.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124926.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124927.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124928.jpg" style="width:100%"><br>
-
-## <a href="#37" id="36">The Most Pause-Worthy Moments in Movies</a><br>
-
-###### 1. The Graduate - The seduction scene. Heres to you...Mrs. Robinson.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125883.jpg" style="width:100%"><br>
-
-###### 2. The Seven Year Itch - Arguably Marilyn Monroes most iconic shot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125884.jpg" style="width:100%"><br>
-
-###### 3. Who Framed Roger Rabbit? - At one point in the film its fairly obvious that the animators wanted Jessica Rabbits breasts to move.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125885.jpg" style="width:100%"><br>
-
-###### 4. Road Trip - Amy Smart is gorgeous in this scene with Breckin Meyer. We pause for obvious reasons.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125886.jpg" style="width:100%"><br>
-
-###### 5. Signs - Possibly the scariest reveal in a horror movie, at least for its time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125887.jpg" style="width:100%"><br>
-
-###### 6. Dirty Dancing - I actually tried this exact move at a wedding. It did not end well.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125888.jpg" style="width:100%"><br>
-
-###### 7. The Lion King - Oh, we can definitely feel the love tonight. Thanks Elton.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125896.jpg" style="width:100%"><br>
-
-###### 8. Peter Pan - Some people say that Pan is hanging dong. Others say its just his shirt. The world may never truly know.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125889.jpg" style="width:100%"><br>
-
-###### 9. Titanic - Rose may have been the first woman to show me her tiddies..<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125890.jpg" style="width:100%"><br>
-
-###### 10. Total Recall - If youve never seen the original, go watch it now.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125891.jpg" style="width:100%"><br>
-
-###### 11. The Wolf of Wall Street - Margot Robbie is an absolute smokeshow, so its no wonder everyone pauses this scene.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125892.jpg" style="width:100%"><br>
-
-###### 12. Aladdin - Our friend Sebastian from The Little Mermaid has a small cameo. If you dont pause, you might miss it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125893.jpg" style="width:100%"><br>
-
-###### 13. Spider-man - The most iconic make-out scene of our generation..<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125894.jpg" style="width:100%"><br>
-
-###### 14. The Wizard of Oz - It was rumored for years that a cast member hanged themselves in this scene. Turns out it wasnt true. But you can decide what it looks like for yourself.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125895.jpg" style="width:100%"><br>
-
-###### 15. Basic Instinct - Sharon Stone crossing her legs. Yeah, sign me up.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014243/87125897/basic.jpg" style="width:100%"><br>
-
-###### 16. Jurassic World - Jimmy Buffet coming through with the most epic cameo of all time, saving two margaritas as he runs from a dinosaur.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014254/87125899/jimmy.jpg" style="width:100%"><br>
-
-###### 17. Fight Club - Brad Pitts character shows up in bleeps and flashes. Keep an eye out next time.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014305/87125900/fight.jpg" style="width:100%"><br>
-
-###### 18. Psycho - Dubbed The Shower Scene Janet Leighs infamous shriek is all too pause-worthy.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014316/87125901/shower.jpg" style="width:100%"><br>
-
-###### 19. Teen Wolf - At the end of the film, look up into the stands and youll see this extra with his fly down. Why? Who knows.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014327/87125902/teen.jpg" style="width:100%"><br>
-
-###### 20. The Cabin in the Woods - This scene is amazing just for all of the monsters on the whiteboard. Check it out.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014456/87125903/cabin.jpg" style="width:100%"><br>
-
-## <a href="#38" id="37">43 Funny Photos to Uplift Your Mood</a><br>
-
-###### 1. A very creepy wasp nest. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125711.jpg" style="width:100%"><br>
-
-###### 2. A beautiful view of Niagara Falls. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125712.jpg" style="width:100%"><br>
-
-###### 3. Just some Ninja Turtles with a reasonable amount of Pizza. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125713.jpg" style="width:100%"><br>
-
-###### 4. Commuters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125714.jpg" style="width:100%"><br>
-
-###### 5. A very confusing sign. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125715.jpg" style="width:100%"><br>
-
-###### 6. An excellent idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125716.jpg" style="width:100%"><br>
-
-###### 7. An epic cathedral in France. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125717.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125718.jpg" style="width:100%"><br>
-
-###### 9. A guy with a very minimalist truck. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125719.jpg" style="width:100%"><br>
-
-###### 10. The power of a jet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125720.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125721.jpg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125722.jpg" style="width:100%"><br>
-
-###### 13. A very ambitious tank design. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125723.jpg" style="width:100%"><br>
-
-###### 14. A sandy snowfield. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125724.jpg" style="width:100%"><br>
-
-###### 15. A picture showcasing the destructive power of printing money en-masse. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125725.jpg" style="width:100%"><br>
-
-###### 16. A man biding his time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125726.jpg" style="width:100%"><br>
-
-###### 17. A winner. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125727.jpg" style="width:100%"><br>
-
-###### 18. A man in need of some extra ROM. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125728.jpg" style="width:100%"><br>
-
-###### 19. Just some new recruits. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125729.jpg" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125730.jpg" style="width:100%"><br>
-
-###### 21. A man with a mild affection for Ford.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125731.jpg" style="width:100%"><br>
-
-###### 22. A very bad idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125732.jpg" style="width:100%"><br>
-
-###### 23. A beautiful shot of the Utah desert. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125733.jpg" style="width:100%"><br>
-
-###### 24. An elephant hiding in plain sight. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125734.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125735.jpg" style="width:100%"><br>
-
-###### 26. Two friends. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125736.jpg" style="width:100%"><br>
-
-###### 27. Proof that any job can be creative. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125737.jpg" style="width:100%"><br>
-
-###### 28. A man dual wielding. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125738.jpg" style="width:100%"><br>
-
-###### 29. One epic turtle. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125739.jpg" style="width:100%"><br>
-
-###### 30. Someone who had one job... and failed. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125740.jpg" style="width:100%"><br>
-
-###### 31. A man and his llama, commuting. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125741.jpg" style="width:100%"><br>
-
-###### 32. Just in case. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125742.jpg" style="width:100%"><br>
-
-###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125743.jpg" style="width:100%"><br>
-
-###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125744.jpg" style="width:100%"><br>
-
-###### 35. Moderately terrifying snow mounds. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125745.jpg" style="width:100%"><br>
-
-###### 36. A snake giving people anxiety. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125746.jpg" style="width:100%"><br>
-
-###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125747.jpg" style="width:100%"><br>
-
-###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125748.jpg" style="width:100%"><br>
-
-###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125749.jpg" style="width:100%"><br>
-
-###### 40. A celebration of victory. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125750.jpg" style="width:100%"><br>
-
-###### 41. A trap. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125751.jpg" style="width:100%"><br>
-
-###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125752.jpg" style="width:100%"><br>
-
-###### 43. A doggo spots another of his ilk. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125753.jpg" style="width:100%"><br>
-
-## <a href="#39" id="38">19 Common Things Most People Don't Use Correctly</a><br>
-
-###### 1. The protective plug with a ring right under the main cap may actually be useful. If you turn the ring down and put it back into the bottleís neck, it will work like a valve. You can use it to control the amount of oil that pours out of the bottle.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124827.jpg" style="width:100%"><br>
-
-###### 2. If you often notice the food in the microwave oven heating unevenly (the edges are hot and the middle is cold), try putting the plate near one of the edges, not in the center. This simple trick will allow you to heat the food more evenly.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124828.jpg" style="width:100%"><br>
-
-###### 3. Red plastic cups are usually the star of the holidays. And the lines we see on them are also related to these festivities. They are not part of the design, nor do they serve to grip them better, contrary to what we might believe. These lines are measurements. They indicate the amount to be served according to what you are drinking, the daily amount of juice for kids, and even portions of mouthwash.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023737/87125926/87040576.jpg" style="width:100%"><br>
-
-###### 4.  Laundry pods might be completely useless if you put them on top of the laundry. The right way is to put them into the washing machine first and then put the laundry on the top. By the way, if you wash clothes at a low temperature, the shell of the pod might not dissolve in the water completely and it could leave stains.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124830.jpg" style="width:100%"><br>
-
-###### 5. There are loops on shopping carts that can be used to hold your grocery bags, keep them upright if they have fragile items, or store extra if youíve got a lot of groceries.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023412/87125923/86520379.jpg" style="width:100%"><br>
-
-###### 6. There are tiny markings on tape measures that are there to help you find the right position for wall studs. These black diamonds are known as ìstud finders,î and they can help mark the center point between two studs.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023436/87125925/86520390.jpg" style="width:100%"><br>
-
-###### 7. To make the deodorant as effective as possible, you can also use it on your legs, the inside of your thighs, and other body parts that produce a lot of sweat. Itís not just for your armpits!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124831.jpg" style="width:100%"><br>
-
-###### 8.  A TikTok user found an unusual way to solve an old problem ó how to put a blanket into a duvet cover. You need to put the blanket and the duvet cover on the bed, match the corners, and make a roll. After that, open the slip, put the blanket inside, and button up the slip.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124832.jpg" style="width:100%"><br>
-
-###### 9.  Today, we rarely use the drawer under the oven the way it was meant to be used. It was supposed to be the place where you store the meal youíve just cooked to keep it warm while the dessert is being cooked in the oven.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124833.jpg" style="width:100%"><br>
-
-###### 10. To make the blender work better, you should stick to the right load order. We usually put berries first and then add milk. But in fact, itís better to do it the other way round.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124834.jpg" style="width:100%"><br>
-
-###### 11. If the pillowcase is a bit too big for the pillow, professional cleaners recommend not leaving it hanging loose. They recommend folding it inside, which makes the bed appear neater.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124835.jpg" style="width:100%"><br>
-
-###### 12. In the past, Kleenex had a totally different purpose. They were meant as gas mask filters, and then the company started offering them to women to use during their periods. After that, the manufacturer reconsidered the formula, made the product softer, and started selling them as a makeup removal product.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124836.jpg" style="width:100%"><br>
-
-###### 13.  Spending a bit of time understanding your plungers can be useful, though, because different plungers are used for different problems. A flat plunger is fine for a sink, but if you need to use one on your toilet youíll need one with a tapered end.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023423/87125924/86520380.jpg" style="width:100%"><br>
-
-###### 14. Everyone has probably argued about how a toilet paper roll should be hung. Now, we have an answer thanks to the 1891 patent received by New York businessman Seth Wheeler.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124837.jpg" style="width:100%"><br>
-
-###### 15. There is a thing inside the lid thats designed to get just one piece out. Flip the box, then turn it on its side, and open, there should be one Tik Tac sitting in its place.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023358/87125920/86520355.jpg" style="width:100%"><br>
-
-###### 16.  Isnt it annoying when you need to use foil, often the whole roll comes out. Thereís a simple solution right there on the box, it even says: ìPress Ends To Lock Rollî and thatís exactly what it does. If you look on the sides of the box, you will see the little grips, you just push them in and they hold the roll in place.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023401/87125921/86520363.jpg" style="width:100%"><br>
-
-###### 17. That drawer at the bottom of your oven isnt for storing pots, pans, and baking sheets, its actual purpose is to keep your food warm.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023410/87125922/86520367.jpg" style="width:100%"><br>
-
-###### 18. To ensure the maximum efficiency of the dishwasher, donít overload it and put plates on top of each other. Also, experts advise putting plates from carbs (potatoes and tomatoes) in the middle and protein (eggs) ó on the edges.If you do this, the carb spots will be under the most powerful water streams. And the edges will soak for a longer time which is perfect for protein spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124829.jpg" style="width:100%"><br>
-
-###### 19. Chinese takeout containers can be unfolded into a plate.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023738/87125927/85959564.jpg" style="width:100%"><br>
-
-## <a href="#40" id="39">55 Rambunctious Randoms to Rule the Day With</a><br>
+## <a href="#25" id="24">55 Rambunctious Randoms to Rule the Day With</a><br>
 
 ###### 1. This looks like something out of an apocalyptic movie!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87124366.jpg" style="width:100%"><br>
 
@@ -2102,65 +1499,904 @@ Your life is yours to live, so live it for you and not based on anyone elseís op
 
 ###### 55. <br><img src="https://cdn.ebaumsworld.com/2022/03/16/100821/87124965/87124746.jpg" style="width:100%"><br>
 
-## <a href="#41" id="40">30 Unlucky People at The Moment of Their Misfortune</a><br>
+## <a href="#26" id="25">28 Memes That Escaped From a Maximum Dankness Prison</a><br>
 
-###### 1. ííI fell asleep on my charging cable. I have client-facing Zoom meetings today.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123879.jpg" style="width:100%"><br>
+###### 1. A meme about the gluttony involved with daily life. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124652.jpg" style="width:100%"><br>
 
-###### 2. ííI broke my apple slicer and accidentally created a very dangerous apple.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123870.jpg" style="width:100%"><br>
+###### 2. A solid plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124653.jpg" style="width:100%"><br>
 
-###### 3. ííToday is not my day, apparently.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123871.jpg" style="width:100%"><br>
+###### 3. Weve all been there. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124654.png" style="width:100%"><br>
 
-###### 4. ííI decided to change barbers. I also have a date in 1 hour.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123868.jpg" style="width:100%"><br>
+###### 4. Not the time for moral dilemmas. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124656.jpg" style="width:100%"><br>
 
-###### 5. ííSo I ordered a pizza today...íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123872.jpg" style="width:100%"><br>
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124657.png" style="width:100%"><br>
 
-###### 6. ííI just pulled into our campsite 450 miles away from home.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123873.jpg" style="width:100%"><br>
+###### 6. Theres only one explanation for this...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124658.jpg" style="width:100%"><br>
 
-###### 7. ííI found a coupon for a free grilled chicken salad and I did this when popping it open.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123874.jpg" style="width:100%"><br>
+###### 7. It really is that simple. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124659.jpg" style="width:100%"><br>
 
-###### 8. íííHave kids,í they said, íIt will be fun,í they said.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123875.jpg" style="width:100%"><br>
+###### 8. Ah, ignorance is bliss. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124660.jpg" style="width:100%"><br>
 
-###### 9. ííHow my momís surprise birthday cake arrivedíí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123876.jpg" style="width:100%"><br>
+###### 9. Fire roasted. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124661.png" style="width:100%"><br>
 
-###### 10. ííI missed my breakfast.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123877.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124662.jpg" style="width:100%"><br>
 
-###### 11. ííI found my kidís watch he lost 3 months ago.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123878.jpg" style="width:100%"><br>
+###### 11. Its the name of the game. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124663.jpg" style="width:100%"><br>
 
-###### 12. ííI walked around all day with a thong hanging out of my hood.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123867.jpg" style="width:100%"><br>
+###### 12. That seems fair. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124664.jpg" style="width:100%"><br>
 
-###### 13. ííI have a school concert in 2.5 hours.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123880.jpg" style="width:100%"><br>
+###### 13. Hope it was worth it, bud. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124665.jpg" style="width:100%"><br>
 
-###### 14. ííMy brother wanted a wireless mouse, and a kid wanted to help.íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123881.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124666.png" style="width:100%"><br>
 
-###### 15. ìI asked my girlfriend if she ever made a snowman and she showed me this photo of her childhood.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123882.jpg" style="width:100%"><br>
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124667.jpg" style="width:100%"><br>
 
-###### 16. ìWhat? Why are you still here? What did I throw out in the morning?î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123883.jpg" style="width:100%"><br>
+###### 16. One would hope. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124668.jpg" style="width:100%"><br>
 
-###### 17. ìGrabbing breakfast before running to the office on Mondayî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123884.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124669.jpg" style="width:100%"><br>
 
-###### 18. ìIím not going the toilet at my job ever again.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123885.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124670.jpg" style="width:100%"><br>
 
-###### 19. All catsí thoughts about winter in one photo<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123886.jpg" style="width:100%"><br>
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124671.png" style="width:100%"><br>
 
-###### 20. ìMy long boy gets stuck and canít turn around.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123887.jpg" style="width:100%"><br>
+###### 20. Welcome to adulthood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124672.jpg" style="width:100%"><br>
 
-###### 21. An incident with starch ó it doesnít look like heís sorry.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123888.jpg" style="width:100%"><br>
+###### 21. Punctuations important, kids. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124673.jpg" style="width:100%"><br>
 
-###### 22. ìHe accidentally left his sunroof open during the snowstorm.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123889.jpg" style="width:100%"><br>
+###### 22. Water aint what it used to be. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124674.png" style="width:100%"><br>
 
-###### 23. ìMy son did it.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123890.jpg" style="width:100%"><br>
+###### 23. Ive never met Steve Jobs. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124675.jpg" style="width:100%"><br>
 
-###### 24. ìTry to walk a mile in boots that are both for left feet.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123891.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124676.jpg" style="width:100%"><br>
 
-###### 25. ìFree business idea: a pasta package that doesnít explode when you try to open itî<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123892.jpg" style="width:100%"><br>
+###### 25. When a fire-hydrant has a strong opinion. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124679.jpg" style="width:100%"><br>
 
-###### 26. ìSomebody must be having a bad day.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123893.jpg" style="width:100%"><br>
+###### 26. Ssshhhh.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124677.jpg" style="width:100%"><br>
 
-###### 27. We wonder what happened to the owner of this bag.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123894.jpg" style="width:100%"><br>
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124678.jpg" style="width:100%"><br>
 
-###### 28. ìIím very patiently waiting for my fiancÈ to wake up so I can find out why there is a bite mark in the butter.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123895.jpg" style="width:100%"><br>
+###### 28. Bullet dodged. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87124680.jpg" style="width:100%"><br>
 
-###### 29. ìA student in my class tried using 4 devices to cheat on a quiz but somehow managed to get the wrong answer on all of them.î<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123896.jpg" style="width:100%"><br>
+## <a href="#27" id="26">25 Words That Give Us Way Too Much Joy When Said Out Loud</a><br>
 
-###### 30. ííWhy would you buy groceries when you can grow your own?íí<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123869.jpg" style="width:100%"><br>
+###### 1. Chicanery. -u/bennietime<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125045.jpg" style="width:100%"><br>
+
+###### 2. Saskatchewan. -u/brunch_blanket<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125046.jpg" style="width:100%"><br>
+
+###### 3. Chupacabra. -u/skywolfsilver<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125047.jpg" style="width:100%"><br>
+
+###### 4. Discombobulated. -u/stuck_here_4ever<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125048.png" style="width:100%"><br>
+
+###### 5. Indubitably. -u/paperdoll07<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125049.jpg" style="width:100%"><br>
+
+###### 6. My favorite word ever is doppelg√§nger! -u/Tenor_Gurll<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125050.jpg" style="width:100%"><br>
+
+###### 7. Phenomenon...Do dooo dee do do.-u/Conquerors_Quill<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125051.jpg" style="width:100%"><br>
+
+###### 8. Rutabaga. -u/darnskippy234<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125052.jpg" style="width:100%"><br>
+
+###### 9. Evisceration. -u/Homo-Homie<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125053.jpg" style="width:100%"><br>
+
+###### 10. Perpendicular. -u/pirate_pen<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125055.png" style="width:100%"><br>
+
+###### 11. Shenanigans. -u/glorified_throwaway<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125056.jpg" style="width:100%"><br>
+
+###### 12. Loquacious. -u/ooo-ooo-oooyea<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125057.jpg" style="width:100%"><br>
+
+###### 13. Onomatopoeia. -u/WholyFunny<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125058.jpg" style="width:100%"><br>
+
+###### 14. Exacerbate. It just sounds so naughty. -u/Odd_Improvement578<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125059.jpg" style="width:100%"><br>
+
+###### 15. Haberdashery. -u/Electronic-Ad3386<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125060.jpg" style="width:100%"><br>
+
+###### 16. Cacophony. -u/Xenoraiser<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125062.jpg" style="width:100%"><br>
+
+###### 17. Didgeridoo. -u/Wiriwi_Seco <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125063.jpg" style="width:100%"><br>
+
+###### 18. Isosceles .-u/BudgetHero<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125064.jpg" style="width:100%"><br>
+
+###### 19. Serpendipity. Its got a dipity in it. -u/Snoringdragon<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125065.jpg" style="width:100%"><br>
+
+###### 20. Malarkey. -u/Either-Brief8055<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125066.jpg" style="width:100%"><br>
+
+###### 21. Kerfuffle. -u/Bashful_Maiden<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125067.jpg" style="width:100%"><br>
+
+###### 22. Im partial to oink because it makes my 5-year-old grandson break out into giggles. -u/jbeech-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125069.jpg" style="width:100%"><br>
+
+###### 23. Gobsmacked. -u/TheDudeWithNoName_<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125070.jpg" style="width:100%"><br>
+
+###### 24. Baba ganoush. -u/FlappyPaddleGearBox1<br><img src="https://cdn.ebaumsworld.com/2022/03/16/021513/87125102/baba.jpg" style="width:100%"><br>
+
+###### 25.  Flabbergasted. -u/Ok_Candle_4310<br><img src="https://cdn.ebaumsworld.com/2022/03/16/021513/87125103/flabbergasted.jpg" style="width:100%"><br>
+
+## <a href="#28" id="27">21 Times People Saw Cool Things That Impressed Them</a><br>
+
+###### 1. ‚ÄúThe camera‚Äôs flash made the spider look radioactive.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124500.jpg" style="width:100%"><br>
+
+###### 2. This gas station in Cincinnati has a full bar inside it.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113231/87124968/87117655.jpg" style="width:100%"><br>
+
+###### 3. ‚ÄúThis sweetgum leaf looks like it‚Äôs on fire.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124501.jpg" style="width:100%"><br>
+
+###### 4. ‚ÄúThe rain on my screen door makes the outside seem like a watercolor painting.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124502.jpg" style="width:100%"><br>
+
+###### 5. This awesome Marvel chess set I saw at a buddys house.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113304/87124971/Chess.jpg" style="width:100%"><br>
+
+###### 6. ‚ÄúTook this when half the sky was clear after the rain.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124503.jpg" style="width:100%"><br>
+
+###### 7. ‚ÄúAn iPhone sitting in a chair cupholder‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124504.jpg" style="width:100%"><br>
+
+###### 8. The sun made my door an exclamation point.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113242/87124969/87117666.jpg" style="width:100%"><br>
+
+###### 9. ‚ÄúYes, I feel comfy here.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124505.jpg" style="width:100%"><br>
+
+###### 10. Got a quarter minted in 2022 today.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113253/87124970/87122732.jpg" style="width:100%"><br>
+
+###### 11. ‚ÄúIt looks like a hand is coming out of the sky.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124506.jpg" style="width:100%"><br>
+
+###### 12. ‚ÄúThe reflections make the barriers appear transparent.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124507.jpg" style="width:100%"><br>
+
+###### 13. ‚ÄúA plane ruined my long exposure shot at the beach last night and created an unintentional sky lightsaber.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124508.jpg" style="width:100%"><br>
+
+###### 14. ‚ÄúI took a panoramic photo at a concert and the lights changed in the middle of it. This is the result.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124509.jpg" style="width:100%"><br>
+
+###### 15. ‚ÄúThis view from the laundry room seems fake.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124510.jpg" style="width:100%"><br>
+
+###### 16. ‚ÄúThis boat I came across looks somewhat intimidating.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124511.jpg" style="width:100%"><br>
+
+###### 17. ‚ÄúMy friend‚Äôs jacket makes him invisible when you take a picture with the flash.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124512.jpg" style="width:100%"><br>
+
+###### 18. ‚ÄúThis jellyfish I caught a picture of appears to be in space.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124513.jpg" style="width:100%"><br>
+
+###### 19. ‚ÄúThe wells on this baking pan look both concave and raised in this photo.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124514.jpg" style="width:100%"><br>
+
+###### 20. This cool table with a glowing resin finish.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113220/87124967/87121143.jpg" style="width:100%"><br>
+
+###### 21. Darth Vader Grill is perfect for any Star Wars fan.<br><img src="https://cdn.ebaumsworld.com/2022/03/16/113315/87124972/Darth.jpg" style="width:100%"><br>
+
+## <a href="#29" id="28">26 Comments That Really Nailed It</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124916.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124903.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124923.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124904.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124905.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124906.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124907.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124908.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124909.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124910.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124911.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124912.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124913.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124914.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124915.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124917.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124918.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124920.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124921.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124922.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124924.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124925.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124926.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124927.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124928.jpg" style="width:100%"><br>
+
+## <a href="#30" id="29">31 Dank Memes from The Twitter-verse</a><br>
+
+###### 1. Aint that the truth. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124775.jpg" style="width:100%"><br>
+
+###### 2. Being an adult is hard. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124776.jpg" style="width:100%"><br>
+
+###### 3. An actor ponders their choices. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124777.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124778.jpeg" style="width:100%"><br>
+
+###### 5. Its entirely possible. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124779.jpeg" style="width:100%"><br>
+
+###### 6. Someone requests an update. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124780.jpeg" style="width:100%"><br>
+
+###### 7. He has a point. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124781.jpg" style="width:100%"><br>
+
+###### 8. A man waxes nostalgic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124782.jpeg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124783.png" style="width:100%"><br>
+
+###### 10. A man has no chance. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124784.jpg" style="width:100%"><br>
+
+###### 11. Technically correct. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124785.jpeg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124786.jpeg" style="width:100%"><br>
+
+###### 13. Its a special kind of awkwardness. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124787.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124788.jpeg" style="width:100%"><br>
+
+###### 15. Took me a couple tries. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124789.jpg" style="width:100%"><br>
+
+###### 16. Someone is enthralled by a birds wicked stache. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124790.jpeg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124791.jpeg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124792.jpeg" style="width:100%"><br>
+
+###### 19. Universal appeal. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124793.jpeg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124794.jpg" style="width:100%"><br>
+
+###### 21. A joke about Nurse email signatures Im sure everyone will be able to relate to. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124795.png" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124796.png" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124797.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124798.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124799.jpeg" style="width:100%"><br>
+
+###### 26. Nothing changes. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124800.png" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124801.jpeg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124802.jpg" style="width:100%"><br>
+
+###### 29. A tweet about something.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124803.jpg" style="width:100%"><br>
+
+###### 30. Now thats an idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124804.jpeg" style="width:100%"><br>
+
+###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124805.jpg" style="width:100%"><br>
+
+## <a href="#31" id="30">30 Creepy Pics Full of WTF</a><br>
+
+###### 1. Sharks Photographed Upside Down<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125677.jpg" style="width:100%"><br>
+
+###### 2. A Wet Owl<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125678.jpg" style="width:100%"><br>
+
+###### 3. This Is An Australian Moth, It Can Also Fly<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125679.jpg" style="width:100%"><br>
+
+###### 4. A Patient With Claustrophobia Panicking During A Ct Scan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125680.jpg" style="width:100%"><br>
+
+###### 5. Sfx Painted On My Hand<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125682.jpg" style="width:100%"><br>
+
+###### 6. Out For A Ride<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125683.jpg" style="width:100%"><br>
+
+###### 7. A Picture Of A Bridge With Snow I Took<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125684.jpg" style="width:100%"><br>
+
+###### 8. Sign On A Cemetery Gate<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125685.jpg" style="width:100%"><br>
+
+###### 9. Portland Man Found His Tires Slashed, And This Note On His Car<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125681.jpg" style="width:100%"><br>
+
+###### 10. Just Sit Still And You‚Äôll Be Fine<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125686.jpg" style="width:100%"><br>
+
+###### 11. Chick Born With The Genetic Defect Polymelia, Causing It To Have 4 Legs<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125687.jpg" style="width:100%"><br>
+
+###### 12. This Abandoned Hospital Had A Visitor Last Night<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125688.jpg" style="width:100%"><br>
+
+###### 13. My Friend Cooked Red Rice But She Put Too Much Water<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125689.jpg" style="width:100%"><br>
+
+###### 14. No Filters. Australia Was Red From Wildfires [2019]<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125690.jpg" style="width:100%"><br>
+
+###### 15. My Friend And His Girlfriend Came Across This In Somebody‚Äôs House<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125691.jpg" style="width:100%"><br>
+
+###### 16. Last Thing A Fish Sees In Antarctica<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125692.jpg" style="width:100%"><br>
+
+###### 17. Building A Mountain Road In China<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125693.jpg" style="width:100%"><br>
+
+###### 18. Big Eye Grendalier, They Live Deep Down Near The Sea Floor<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125694.jpg" style="width:100%"><br>
+
+###### 19. I Left Netflix Running In My Bedroom This Morning And Came Back To See This Frozen On The Screen<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125695.jpg" style="width:100%"><br>
+
+###### 20. Face Swap On Horse And Dog<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125696.jpg" style="width:100%"><br>
+
+###### 21. A Mother Hiding Her Face As She Puts Her Children On Sale (Chicago USA, 1948)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125697.jpg" style="width:100%"><br>
+
+###### 22. Saturns North Pole Is A Hexagon<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125698.jpg" style="width:100%"><br>
+
+###### 23. I Just Learned About Muffler Hair And I Am Not Okay<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125699.jpg" style="width:100%"><br>
+
+###### 24. These Pointy Hat Fellas Enjoying A Ferris Wheel Ride<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125700.jpg" style="width:100%"><br>
+
+###### 25. Bluebottle Maggot Under An Electron Microscope<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125701.jpg" style="width:100%"><br>
+
+###### 26. Something Tells Me I Should Find Something Else To Eat<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125702.jpg" style="width:100%"><br>
+
+###### 27. Telescopefish. This Deep-Sea Species Can Swallow Prey Larger Than Itself And Lives In Depths Between 500 And 3000 Meters<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125703.jpg" style="width:100%"><br>
+
+###### 28. Sorry For The Phone Camera But Why Did I Suddenly Woke Up In A Silent Hill Game?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125704.jpg" style="width:100%"><br>
+
+###### 29. Abandoned Church In A Small Czech Village Remains A Shrine Filled With Ghost Sculptures Of The Parishioners Who Passed Away There<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125705.jpg" style="width:100%"><br>
+
+###### 30. The Creator Of The Lobotomy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125706.jpg" style="width:100%"><br>
+
+## <a href="#32" id="31">15 Titanic Specimens That Tower Over Their Peers</a><br>
+
+###### 1. ‚ÄúFound this old photo of me and my friends next to a giant pizza.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125227.jpg" style="width:100%"><br>
+
+###### 2. ‚ÄúWent to a farm show and saw the biggest pumpkin in the state. For reference I‚Äôm 5‚Äô5‚Äù.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125228.jpg" style="width:100%"><br>
+
+###### 3. ‚ÄúMe in my kindergarten class reading room.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125229.jpg" style="width:100%"><br>
+
+###### 4. ‚ÄúA door we found on a trip to London a few years ago. My husband (6‚Äô1‚Äù) for size.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125230.jpg" style="width:100%"><br>
+
+###### 5. ‚ÄúFound a really big worm and used my sister for scale.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125231.jpg" style="width:100%"><br>
+
+###### 6. ‚ÄúMy parent‚Äôs dog who I got to see over the holidays‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125224.jpg" style="width:100%"><br>
+
+###### 7. ‚ÄúThe smallest house in Great Britain and my girlfriend in front who is only 5‚Ä≤ tall‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125232.png" style="width:100%"><br>
+
+###### 8. ‚ÄúA street light and my mom‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125226.jpg" style="width:100%"><br>
+
+###### 9. ‚Äú3 baby octopuses and a thumb for scale‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125233.jpg" style="width:100%"><br>
+
+###### 10. ‚ÄúIt‚Äôs called a ponderosa lemon.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125234.jpg" style="width:100%"><br>
+
+###### 11. ‚ÄúA Netflix soundstage and me for scale‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125235.jpg" style="width:100%"><br>
+
+###### 12. ‚ÄúI found a gigantic leaf at the park, and I compared it with a banana and me.‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125236.jpg" style="width:100%"><br>
+
+###### 13. ‚ÄúMy new phone and my newborn for scale‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125225.jpg" style="width:100%"><br>
+
+###### 14. ‚ÄúMy girlfriend‚Äôs hand next to a Great Dane‚Äôs paw‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125237.jpg" style="width:100%"><br>
+
+###### 15. ‚ÄúMy son meeting this giant bronze horse in Michigan‚Äù<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125238.jpg" style="width:100%"><br>
+
+## <a href="#33" id="32">30 Ordinary People Who Helped Shape History</a><br>
+
+###### 1. On 28 May 2013 during the Turkish Occupy Gezi protests, the woman in red, Ceyda Sungur, was pepper-sprayed by police, which became the defining photo of the movement. The protests began against the development of Gezi Park in Istanbul but transformed into a national movement against the increasing authoritarianism of the right-wing government of Recep Tayyip Erdoƒüan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125661.jpg" style="width:100%"><br>
+
+###### 
+
+ A university worker, Sungur didnt want notoriety, saying a lot of people who were at the park and they were also tear-gassed‚Ä¶ There is not (a) difference between them and I. She was subsequently arrested for ‚Äúprovoking people to disobey laws‚Äù, although the following year the charges were dismissed.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125637.jpg" style="width:100%"><br>
+
+###### 2. On 13 April 1985, Danuta Danielsson, a woman of Polish-Jewish origin whose mother had been put in a concentration camp during the Second World War, hit a neo-nazi of the now defunct Nordic Reich Party on the head with her handbag in V√§xj√∂, Sweden. The fascists were subsequently chased out of town.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125638.jpg" style="width:100%"><br>
+
+###### 3. On 27 October 1962, at the height of the Cuban Missile Crisis, second-in-command Vasili Arkhipov of the Soviet submarine B-59 refused to agree with his Captains order to launch nuclear torpedos against US warships and setting off what might well have been a terminal superpower nuclear war. The US had been dropping depth charges near the submarine in an attempt to force it to the surface, unaware it was carrying nuclear arms. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125639.jpg" style="width:100%"><br>
+
+###### 
+
+The Soviet officers, who had lost radio contact with Moscow, concluded that World War III had begun, and two of the officers agreed to blast the warships out of the water. Arkhipov refused to agree - unanimous consent of three officers was required - and thanks to him, we are here to post about it on the internet!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125640.jpg" style="width:100%"><br>
+
+###### 4. On 29 December 1939, French physician, libertarian socialist, and womens rights activist Madeleine Pelletier died in an asylum where she had been interned after openly assisting an abortion for a teenage survivor of incest. Born into a poor family in 1874, Pelletier became a feminist and socialist and was arrested for breaking a window at a polling place after she and other women were denied entry. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125641.jpg" style="width:100%"><br>
+
+###### 
+
+While never admitted into intellectual circles, she was a pioneer of advanced feminist ideas, like gender roles being largely determined by society, rather than biology. While expressing no interest in sex in her personal life, and so possibly asexual, Pelletier advocated for womens rights to sexual pleasure, as well as to contraception and abortion. Despite all the misfortune she experienced, Pelletier declared: I remain a feminist. I will remain one until my death even though I dont like women as they are now any more than I like the working class as it is. Slave mentalities revolt me.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125642.jpg" style="width:100%"><br>
+
+###### 5. On 2 November 1970, actor and Vietnam GI resistance supporter Jane Fonda was arrested at Cleveland airport as she returned from an event put on by Vietnam Veterans Against the War (VVAW) in Canada and charged with drug smuggling. The following day Fonda was also charged with supposedly kicking a police officer when a more famous mugshot was taken as she raised her fist in defiance at the police. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125643.jpg" style="width:100%"><br>
+
+###### 
+
+Both charges were bogus ‚Äì the drugs were vitamin tablets ‚Äì and they were both later dismissed. Although Fonda is clear that the intention was to discredit her due to her valuable support for the GI anti-war movement. In addition to being a patron of VVAW, Fonda was a leading organiser of and participant in the FTA (Fuck The Army) tour, and anti-war alternative to the USO shows to serving GIs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125644.jpg" style="width:100%"><br>
+
+###### 6. On 14 October 1977, anti-gay crusader Anita Bryant was pied in the face by Tom Higgins, a gay rights activist. Bryant, who was already well-known as a singer, led Save Our Children, a homophobic campaigning group that successfully overturned legal protections for LGBT+ people in Dade County, Florida. Bryant had declared about homosexuality: I will lead such a crusade to stop it as this country has not seen before. After being pied, Bryant burst into tears and began praying. Bryant was also a brand ambassador for Florida orange juice, which then became subject to a mass boycott campaign. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125645.jpg" style="width:100%"><br>
+
+###### 
+
+Gay bars replaced screwdrivers (vodka and orange juice cocktails) with Anita Bryants ‚Äì made with vodka and apple juice, with the profits donated to the campaign. Bryants lucrative orange contract subsequently lapsed and her marriage failed, which caused her to be ostracised by some Christian fundamentalists who did not approve of her divorce. Later in life, Bryants homophobic views softened, and she stated she was more inclined to say live and let live. In 1998, Dade County reintroduced legal protections for LGBT+ people, and efforts by Christian groups to overturn them failed.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125646.jpg" style="width:100%"><br>
+
+###### 7. On 28 November 1919, Faye Schulman, photographer, and Jewish resistance partisan, was born in Lenin, Poland (now Belarus). In 1942, the Nazis murdered 1,850 Jews in the Lenin ghetto, leaving only Faye and 25 others alive, making Schulman take and develop photos of the massacre. Covertly she made copies of the photographs for herself. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125647.jpg" style="width:100%"><br>
+
+###### 
+
+She soon fled and joined the partisan resistance, serving as a fighter and nurse. While on a raid in Lenin with her unit, Schulman managed to retrieve her camera equipment and then began documenting the resistance movement, developing her photos under blankets. I want people to know that there was resistance. Jews did not go like sheep to the slaughter. I was a photographer. I have pictures. I have proof. Schulman survived the war and moved to Canada, eventually passing away on April 24, 2021, aged 101.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125648.jpg" style="width:100%"><br>
+
+###### 8. On 31 May 1927, Fred Trump, the father of US President Donald Trump, was arrested at a rally of the Ku Klux Klan in Queens, New York. He was initially arrested for refusing to disperse along with six other people after the rally descended into disorder. The Long Island Daily Press reported that all seven arrestees were wearing Klan robes. After Donald Trump was endorsed by David Duke, the former grand wizard of the Ku Klux Klan, Trump was questioned about his fathers arrest. Donald claimed to journalist Jason Horowitz that it never happened, despite it being reported in several newspapers. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125649.jpg" style="width:100%"><br>
+
+###### 
+
+When Horowitz asked Trump if the address reported for his father in the newspapers, 175-24 Devonshire Rd, was accurate, Donald dismissed it as totally false. However, Fred Trumps wedding announcement in the Daily Press listed his address at 175-24 Devonshire Rd. Fred Trump was subjected to legal action by the Justice Department on multiple occasions for racist behaviour as a landlord, and one of his former tenants, folk singer Woody Guthrie once wrote in a song mentioning Trump: I suppose / Old Man Trump knows / Just how much / Racial Hate / He stirred up.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125650.jpg" style="width:100%"><br>
+
+###### 9. On 13 June 1936, this photograph was taken at a rally for workers launching a new ship in Nazi Germany. The man circled, defiantly folding his arms rather than perform the Nazi salute is believed to be August Landmesser, a shipyard worker who fell in love with a Jewish woman. He was later imprisoned for the relationship and drafted into the army. During his military service he was killed in action, whereas his partner was murdered in the concentration camps.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125651.jpg" style="width:100%"><br>
+
+###### 10. On 11 June 1943, Karl Gorath, a 20-year-old gay German nurse, was deported to the Auschwitz concentration camp. He was first arrested for homosexuality after being denounced by a jealous lover in 1939 and given a prison sentence. After his release, he was sent to the Neuengamme concentration camp, where he was made to wear a pink triangle denoting LGBT+ prisoners. Working in the camps health department, with some comrades he attempted to smuggle food to Russian prisoners, who were being starved to death. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125652.jpg" style="width:100%"><br>
+
+###### 
+
+Their plan was discovered by the Nazis, who then sentenced Gorath to transportation to Auschwitz as a criminal and political prisoner, to be denoted with a red triangle. Despite contracting dysentery, he managed to survive the war and was released in 1945. But within a few months, he was arrested again by West German authorities, who had kept the homophobic Nazi laws intact. His case was overseen by the same judge, who greeted him with the words You are already here again! and gave him the maximum sentence of five years. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125653.jpg" style="width:100%"><br>
+
+###### 
+
+His lawyer requested that his time served in the concentration camps be counted as part of this, but his request was denied. After his release, because of his convictions, he was unable to get a job for a decade. And when the time came to draw his pension, his years interned in concentration camps were deducted from his allowance, as were his unemployment payments. He died in 2003, having never received compensation for his treatment, unlike some other Holocaust survivors. He told his story in a 2000 documentary, Paragraph 175, named after the relevant section of the penal code.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125654.jpg" style="width:100%"><br>
+
+###### 11. On 4 August 1990, the term Two-Spirit, for Indigenous people who embody diverse (or non-normative) sexualities, genders, gender roles, and/or gender expressions, was adopted at the 3rd Annual Gathering of Native American Gays and Lesbians being held near Beausejour, Manitoba, Canada. Teacher, counselor, administrator, mentor, and elder, Dr. Myra Laramee (First Nations Cree) brought the term to a sharing circle of 80 Indigenous LGBT+ people from across North America at the 1990 Gathering, and it was quickly adopted. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125655.jpg" style="width:100%"><br>
+
+###### 
+
+As Harlan Pruden, the managing editor of the Two-Spirit Journal, put it: [Two-Spirit evokes] the time before the harshness of colonisation where many, not all, First Peoples had traditions and ways that were non-binary, where some Nations had 3, 4, 5, 6, or even 7+ different genders and these genders were not only accepted and honoured but also had distinct roles within their respective Nations. Today, we would generally refer to these individuals as Two-Spirit.‚Äù Pictured: Two-spirit Zuni princess We‚Äôwha, New Mexico, c1886.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125656.jpg" style="width:100%"><br>
+
+###### 12. On 28 February 1972, the trial of legendary Black communist Angela Davis for murder, kidnapping, and conspiracy began in San Jose, California. The trial resulted from a courtroom shootout in 1970 in which four people were killed. Davis had purchased some of the firearms used in the incident. However, Davis herself was not present, and she declared herself innocent of all charges. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125657.jpg" style="width:100%"><br>
+
+###### 
+
+By the time the trial had begun, nearly 300 groups had sprung up around the world supporting her and working for her freedom, and John Lennon and Yoko Ono contributed the song Angela to the campaign. Angela Davis had a team of experienced lawyers, but she delivered her opening defence address herself. The defense demolished the prosecutions case, and eventually, on 4 June, the all-white jury came back with not-guilty verdicts on all charges.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125658.jpg" style="width:100%"><br>
+
+###### 13. On 8 April 2013, former Conservative prime minister Margaret Thatcher died. Street parties broke out across the UK, particularly in working-class areas and in former mining communities which were ravaged by her policies. Her legacy is best remembered for her destruction of the British workers movement, after the defeat of the miners strike of 1984-5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125659.jpg" style="width:100%"><br>
+
+###### 
+
+This enabled the drastic increase of economic inequality and unemployment in the 1980s. Her government also slashed social housing, helping to create the situation today where it is unavailable for most people, and private property prices are mostly unaffordable for the young. Thatcher also complained that children were being cheated of a sound start in life by being taught that they have an inalienable right to be gay, so she introduced the vicious section 28 law prohibiting the teaching of homosexuality as acceptable. Abroad, Thatcher was a powerful advocate for racism, advising the Australian foreign minister to beware of Asians, else his country would end up like Fiji, where the Indian migrants have taken over. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125660.jpg" style="width:100%"><br>
+
+###### 
+
+She hosted apartheid South Africas head of state while denouncing the African National Congress as a typical terrorist organization. Chilean dictator General Augusto Pinochet, responsible for the rape, murder and torture of tens of thousands of people, was a close personal friend. Back in Britain, she protected numerous politicians accused of paedophilia including Sir Peter Hayman, and MPs Peter Morrison and Cyril Smith. She also lobbied for her friend, serial child abuser Jimmy Savile, to be knighted despite being warned about his behavior. Margaret Thatcher was eventually forced to step down after the defeat of her hated poll tax by a mass non-payment campaign. Pictured: Jimmy Savile welcoming Thatcher to hell, reportedly.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125662.jpg" style="width:100%"><br>
+
+###### 14. On 25 December 1914, 100,000 troops on the Western Front during World War I held an unofficial truce where they refused to fight one another. German troops began singing Silent Night in German, French, and English, along with other Christmas carols. They decorated the trenches with Christmas trees, lit candles, and hung multilingual banners wishing opposing armies Merry Christmas. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125663.jpg" style="width:100%"><br>
+
+###### 
+
+Across much of the front artillery fell silent, British troops joined in the carol singing and both sides began to shout Christmas greetings at one another. On Christmas Day, soldiers began to climb out of the trenches to fraternize with the other side, bring back bodies from no mans land, and exchange gifts like tobacco, chocolate, and alcohol. In several areas, there are first-hand accounts of often-improvised football matches being played. The truce covered about 100,000 men, almost entirely on the Western front however there was also a small truce along part of the Eastern front between Austrian and Russian troops. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125664.jpg" style="width:100%"><br>
+
+## <a href="#34" id="33">The Most Pause-Worthy Moments in Movies</a><br>
+
+###### 1. The Graduate - The seduction scene. Heres to you...Mrs. Robinson.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125883.jpg" style="width:100%"><br>
+
+###### 2. The Seven Year Itch - Arguably Marilyn Monroes most iconic shot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125884.jpg" style="width:100%"><br>
+
+###### 3. Who Framed Roger Rabbit? - At one point in the film its fairly obvious that the animators wanted Jessica Rabbits breasts to move.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125885.jpg" style="width:100%"><br>
+
+###### 4. Road Trip - Amy Smart is gorgeous in this scene with Breckin Meyer. We pause for obvious reasons.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125886.jpg" style="width:100%"><br>
+
+###### 5. Signs - Possibly the scariest reveal in a horror movie, at least for its time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125887.jpg" style="width:100%"><br>
+
+###### 6. Dirty Dancing - I actually tried this exact move at a wedding. It did not end well.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125888.jpg" style="width:100%"><br>
+
+###### 7. The Lion King - Oh, we can definitely feel the love tonight. Thanks Elton.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125896.jpg" style="width:100%"><br>
+
+###### 8. Peter Pan - Some people say that Pan is hanging dong. Others say its just his shirt. The world may never truly know.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125889.jpg" style="width:100%"><br>
+
+###### 9. Titanic - Rose may have been the first woman to show me her tiddies..<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125890.jpg" style="width:100%"><br>
+
+###### 10. Total Recall - If youve never seen the original, go watch it now.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125891.jpg" style="width:100%"><br>
+
+###### 11. The Wolf of Wall Street - Margot Robbie is an absolute smokeshow, so its no wonder everyone pauses this scene.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125892.jpg" style="width:100%"><br>
+
+###### 12. Aladdin - Our friend Sebastian from The Little Mermaid has a small cameo. If you dont pause, you might miss it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125893.jpg" style="width:100%"><br>
+
+###### 13. Spider-man - The most iconic make-out scene of our generation..<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125894.jpg" style="width:100%"><br>
+
+###### 14. The Wizard of Oz - It was rumored for years that a cast member hanged themselves in this scene. Turns out it wasnt true. But you can decide what it looks like for yourself.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87125895.jpg" style="width:100%"><br>
+
+###### 15. Basic Instinct - Sharon Stone crossing her legs. Yeah, sign me up.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014243/87125897/basic.jpg" style="width:100%"><br>
+
+###### 16. Jurassic World - Jimmy Buffet coming through with the most epic cameo of all time, saving two margaritas as he runs from a dinosaur.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014254/87125899/jimmy.jpg" style="width:100%"><br>
+
+###### 17. Fight Club - Brad Pitts character shows up in bleeps and flashes. Keep an eye out next time.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014305/87125900/fight.jpg" style="width:100%"><br>
+
+###### 18. Psycho - Dubbed The Shower Scene Janet Leighs infamous shriek is all too pause-worthy.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014316/87125901/shower.jpg" style="width:100%"><br>
+
+###### 19. Teen Wolf - At the end of the film, look up into the stands and youll see this extra with his fly down. Why? Who knows.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014327/87125902/teen.jpg" style="width:100%"><br>
+
+###### 20. The Cabin in the Woods - This scene is amazing just for all of the monsters on the whiteboard. Check it out.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/014456/87125903/cabin.jpg" style="width:100%"><br>
+
+## <a href="#35" id="34">19 Common Things Most People Don't Use Correctly</a><br>
+
+###### 1. The protective plug with a ring right under the main cap may actually be useful. If you turn the ring down and put it back into the bottle‚Äôs neck, it will work like a valve. You can use it to control the amount of oil that pours out of the bottle.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124827.jpg" style="width:100%"><br>
+
+###### 2. If you often notice the food in the microwave oven heating unevenly (the edges are hot and the middle is cold), try putting the plate near one of the edges, not in the center. This simple trick will allow you to heat the food more evenly.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124828.jpg" style="width:100%"><br>
+
+###### 3. Red plastic cups are usually the star of the holidays. And the lines we see on them are also related to these festivities. They are not part of the design, nor do they serve to grip them better, contrary to what we might believe. These lines are measurements. They indicate the amount to be served according to what you are drinking, the daily amount of juice for kids, and even portions of mouthwash.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023737/87125926/87040576.jpg" style="width:100%"><br>
+
+###### 4.  Laundry pods might be completely useless if you put them on top of the laundry. The right way is to put them into the washing machine first and then put the laundry on the top. By the way, if you wash clothes at a low temperature, the shell of the pod might not dissolve in the water completely and it could leave stains.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124830.jpg" style="width:100%"><br>
+
+###### 5. There are loops on shopping carts that can be used to hold your grocery bags, keep them upright if they have fragile items, or store extra if you‚Äôve got a lot of groceries.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023412/87125923/86520379.jpg" style="width:100%"><br>
+
+###### 6. There are tiny markings on tape measures that are there to help you find the right position for wall studs. These black diamonds are known as ‚Äústud finders,‚Äù and they can help mark the center point between two studs.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023436/87125925/86520390.jpg" style="width:100%"><br>
+
+###### 7. To make the deodorant as effective as possible, you can also use it on your legs, the inside of your thighs, and other body parts that produce a lot of sweat. It‚Äôs not just for your armpits!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124831.jpg" style="width:100%"><br>
+
+###### 8.  A TikTok user found an unusual way to solve an old problem ‚Äî how to put a blanket into a duvet cover. You need to put the blanket and the duvet cover on the bed, match the corners, and make a roll. After that, open the slip, put the blanket inside, and button up the slip.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124832.jpg" style="width:100%"><br>
+
+###### 9.  Today, we rarely use the drawer under the oven the way it was meant to be used. It was supposed to be the place where you store the meal you‚Äôve just cooked to keep it warm while the dessert is being cooked in the oven.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124833.jpg" style="width:100%"><br>
+
+###### 10. To make the blender work better, you should stick to the right load order. We usually put berries first and then add milk. But in fact, it‚Äôs better to do it the other way round.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124834.jpg" style="width:100%"><br>
+
+###### 11. If the pillowcase is a bit too big for the pillow, professional cleaners recommend not leaving it hanging loose. They recommend folding it inside, which makes the bed appear neater.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124835.jpg" style="width:100%"><br>
+
+###### 12. In the past, Kleenex had a totally different purpose. They were meant as gas mask filters, and then the company started offering them to women to use during their periods. After that, the manufacturer reconsidered the formula, made the product softer, and started selling them as a makeup removal product.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124836.jpg" style="width:100%"><br>
+
+###### 13.  Spending a bit of time understanding your plungers can be useful, though, because different plungers are used for different problems. A flat plunger is fine for a sink, but if you need to use one on your toilet you‚Äôll need one with a tapered end.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023423/87125924/86520380.jpg" style="width:100%"><br>
+
+###### 14. Everyone has probably argued about how a toilet paper roll should be hung. Now, we have an answer thanks to the 1891 patent received by New York businessman Seth Wheeler.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124837.jpg" style="width:100%"><br>
+
+###### 15. There is a thing inside the lid thats designed to get just one piece out. Flip the box, then turn it on its side, and open, there should be one Tik Tac sitting in its place.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023358/87125920/86520355.jpg" style="width:100%"><br>
+
+###### 16.  Isnt it annoying when you need to use foil, often the whole roll comes out. There‚Äôs a simple solution right there on the box, it even says: ‚ÄúPress Ends To Lock Roll‚Äù and that‚Äôs exactly what it does. If you look on the sides of the box, you will see the little grips, you just push them in and they hold the roll in place.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023401/87125921/86520363.jpg" style="width:100%"><br>
+
+###### 17. That drawer at the bottom of your oven isnt for storing pots, pans, and baking sheets, its actual purpose is to keep your food warm.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023410/87125922/86520367.jpg" style="width:100%"><br>
+
+###### 18. To ensure the maximum efficiency of the dishwasher, don‚Äôt overload it and put plates on top of each other. Also, experts advise putting plates from carbs (potatoes and tomatoes) in the middle and protein (eggs) ‚Äî on the edges.If you do this, the carb spots will be under the most powerful water streams. And the edges will soak for a longer time which is perfect for protein spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124829.jpg" style="width:100%"><br>
+
+###### 19. Chinese takeout containers can be unfolded into a plate.<br><img src="https://cdn.ebaumsworld.com/2022/03/17/023738/87125927/85959564.jpg" style="width:100%"><br>
+
+## <a href="#36" id="35">27 Moments People Proved Insanely Unlucky</a><br>
+
+###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
+
+###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
+
+###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
+
+###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
+
+###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
+
+###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
+
+###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
+
+###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
+
+###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
+
+###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
+
+###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
+
+###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
+
+###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
+
+###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
+
+###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
+
+###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
+
+###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
+
+###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
+
+## <a href="#37" id="36">29 Fresh Memes That Deal in Dankness</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
+
+## <a href="#38" id="37">25 Pieces of Advice We Wish We Could Give Our Teenage Selves</a><br>
+
+###### 1. Get checked out for ADHD, try harder in school, focus more on music than sports, and lift some weights. -u/OneHandedPaperHanger <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125106.jpg" style="width:100%"><br>
+
+###### 2. Dont marry her. Someone who thinks every problem is your fault and never sees her part in things is someone whos never going to be able to love you in a meaningful way. -u/meddlingbarista<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125107.jpg" style="width:100%"><br>
+
+###### 3. When you get your first job out of college, please put 15% in retirement. -u/RedheadedMermaid980<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125108.jpg" style="width:100%"><br>
+
+###### 4. Your parents dont actually know what the hell theyre talking about most of the time. -u/dragonfiremalus<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125109.jpg" style="width:100%"><br>
+
+###### 5. Being a nerd may be painful in high school, but it more than pays off in college and as an adult. Just embrace your geekiness! -u/Muchnowless<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125110.jpg" style="width:100%"><br>
+
+###### 6. Follow your dream course, and not what others told you. Asian problems. -u/CakeDramatic4155<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125112.jpg" style="width:100%"><br>
+
+###### 7. Just ask her out now so you can love her longer. She is the one you end up with anyway in 25 years and it‚Äôs great. -u/BmwM5racer<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125114.jpg" style="width:100%"><br>
+
+###### 8. My 16-year-old self would not listen to a damn thing I have to say. -u/Sector_Independent<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125113.jpg" style="width:100%"><br>
+
+###### 9. He‚Äôs not the one but just enjoy your time with him while it lasts. -u/cinnamontingles<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125115.jpg" style="width:100%"><br>
+
+###### 10. I dont even feel much smarter than you right now. Cant give you any advice really. -u/owjfaigs222<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125116.jpg" style="width:100%"><br>
+
+###### 11. We go bald just like Dad. Grow your hair long right now while you still can. -u/Thirty_Helens_Agree<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125117.jpg" style="width:100%"><br>
+
+###### 12. This girl with the blonde hair is flirting with you. Also theres a cool looking stick in the grass nearby, get it before your brother does. -u/Lenka420<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125111.jpg" style="width:100%"><br>
+
+###### 13. Stop being such a wallflower. Tell that girl in your German class youre interested in her. -u/GrumpyCatStevens<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125118.jpg" style="width:100%"><br>
+
+###### 14. Start saving whilst your life is cheap. It will buy things later down the road. -u/RickOxlarge<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125119.jpg" style="width:100%"><br>
+
+###### 15. Get your Eagle Project done now. Oh and also, cancer is f*cking hell. Get ready. -u/Weak_Carpenter_7060<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125120.jpg" style="width:100%"><br>
+
+###### 16. Cool it with the booze and drugs dumba**. Its gonna get you in a whole heap of trouble. -u/Jondajonda<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125121.jpg" style="width:100%"><br>
+
+###### 17. Leicester wins the Premier League with Claudio Ranieri as their manager. Also dont go to music college playing an instrument you hate, you absolute sausage roll. -u/uwu-lmao-xD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125122.jpg" style="width:100%"><br>
+
+###### 18. Strap yourself in boy. From here on out it‚Äôs going to be a b*tch. -u/jakeblutarski<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125123.jpg" style="width:100%"><br>
+
+###### 19. Stop letting your self-consciousness/fear of not being good enough, or perfect get in the way of you truly living your life and making many good memories to look back on later in life. Because looking back you‚Äôll realize that the majority of people don‚Äôt really care/wouldn‚Äôt have criticized you as much as you thought they would. 
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125124.png" style="width:100%"><br>
+
+###### 
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125125.jpg" style="width:100%"><br>
+
+###### 
+Your life is yours to live, so live it for you and not based on anyone else‚Äôs opinion because you only get one chance at this life, you can‚Äôt rewind. You‚Äôre only young once so try to make the most of it and enjoy it because memories and regret are the only things that last. -u/Ungodly_Goddess<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125126.jpg" style="width:100%"><br>
+
+###### 20. No, that dude on Discord is not the love of your life. -u/finchyem<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125127.jpg" style="width:100%"><br>
+
+###### 21. You‚Äôre getting severely depressed, get help. -u/Noodlesandwings<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125128.jpg" style="width:100%"><br>
+
+###### 22. You and your mom will email back and forth every single day that you‚Äôre away at college. All four years. Print out EVERY SINGLE MESSAGE from her and save it. She‚Äôs going to die two years after you graduate. You will wish you had those emails to look back on. -u/quivx<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125129.jpg" style="width:100%"><br>
+
+###### 23. Don‚Äôt buy things with the bitcoin you received. Save it. -u/G6LE<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87125130.jpeg" style="width:100%"><br>
+
+## <a href="#39" id="38">23 Funny Memes From the Games We Play </a><br>
+
+###### 1. This is the moment weve all been waiting for boys. Take notes! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124348/87125769/funny-gaming-memes19.png" style="width:100%"><br>
+
+###### 2. Live look at Nintendo anytime someone emulates one of their games. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124353/87125770/funny-gaming-memes17.png" style="width:100%"><br>
+
+###### 3. It might not look cool, but man it is powerful. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124359/87125771/funny-gaming-memes18.png" style="width:100%"><br>
+
+###### 4. Haha, we are so good! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124404/87125772/funny-gaming-memes11.png" style="width:100%"><br>
+
+###### 5. Elden Ring, Elden Ring, oh where is my Elden Ring. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124412/87125773/funny-gaming-memes10.png" style="width:100%"><br>
+
+###### 6. More like BloodButt amirite? <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124415/87125774/funny-gaming-memes9.png" style="width:100%"><br>
+
+###### 7. You know Im something of a gamer myself. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124422/87125775/funny-gaming-memes22.png" style="width:100%"><br>
+
+###### 8. Yeah i got you bro! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124427/87125776/funny-gaming-memes14.png" style="width:100%"><br>
+
+###### 9. Random bullshit go! Dont knock the player, if it works it works. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124433/87125777/funny-gaming-memes20.png" style="width:100%"><br>
+
+###### 10. People want one things and its... <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124439/87125778/funny-gaming-memes21.png" style="width:100%"><br>
+
+###### 11. Roblox is a foreign language to us. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124446/87125779/funny-gaming-memes16.png" style="width:100%"><br>
+
+###### 12. Stares in Smart Fridge. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124449/87125780/funny-gaming-memes13.png" style="width:100%"><br>
+
+###### 13. More, yes much much more! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124457/87125781/funny-gaming-memes8.png" style="width:100%"><br>
+
+###### 14. Ha it the amount of times this has happened is too damn high. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124500/87125782/funny-gaming-memes6.png" style="width:100%"><br>
+
+###### 15. And so I says. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124510/87125783/funny-gaming-memes4.png" style="width:100%"><br>
+
+###### 16. We dont give the Fortnite kids enough credit for secluding themselves! <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124513/87125784/funny-gaming-memes23.png" style="width:100%"><br>
+
+###### 17. Ha, totally meant to do that. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124521/87125785/funny-gaming-memes3.png" style="width:100%"><br>
+
+###### 18. Bro, can you please get a working mic, thank you. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124525/87125786/funny-gaming-memes12.png" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124533/87125787/funny-gaming-memes15.png" style="width:100%"><br>
+
+###### 20. It was only for a moment, but I saw my face in the blank screen and I began to reevaluate my entire lifes trajectory. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124535/87125788/funny-gaming-memes7.png" style="width:100%"><br>
+
+###### 21. You will be missed little buddy. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124544/87125789/funny-gaming-memes5.png" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124546/87125790/funny-gaming-memes2.png" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/17/124556/87125791/funny-gaming-memes1.png" style="width:100%"><br>
+
+## <a href="#40" id="39">43 Funny Photos to Uplift Your Mood</a><br>
+
+###### 1. A very creepy wasp nest. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125711.jpg" style="width:100%"><br>
+
+###### 2. A beautiful view of Niagara Falls. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125712.jpg" style="width:100%"><br>
+
+###### 3. Just some Ninja Turtles with a reasonable amount of Pizza. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125713.jpg" style="width:100%"><br>
+
+###### 4. Commuters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125714.jpg" style="width:100%"><br>
+
+###### 5. A very confusing sign. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125715.jpg" style="width:100%"><br>
+
+###### 6. An excellent idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125716.jpg" style="width:100%"><br>
+
+###### 7. An epic cathedral in France. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125717.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125718.jpg" style="width:100%"><br>
+
+###### 9. A guy with a very minimalist truck. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125719.jpg" style="width:100%"><br>
+
+###### 10. The power of a jet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125720.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125721.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125722.jpg" style="width:100%"><br>
+
+###### 13. A very ambitious tank design. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125723.jpg" style="width:100%"><br>
+
+###### 14. A sandy snowfield. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125724.jpg" style="width:100%"><br>
+
+###### 15. A picture showcasing the destructive power of printing money en-masse. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125725.jpg" style="width:100%"><br>
+
+###### 16. A man biding his time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125726.jpg" style="width:100%"><br>
+
+###### 17. A winner. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125727.jpg" style="width:100%"><br>
+
+###### 18. A man in need of some extra ROM. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125728.jpg" style="width:100%"><br>
+
+###### 19. Just some new recruits. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125729.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125730.jpg" style="width:100%"><br>
+
+###### 21. A man with a mild affection for Ford.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125731.jpg" style="width:100%"><br>
+
+###### 22. A very bad idea. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125732.jpg" style="width:100%"><br>
+
+###### 23. A beautiful shot of the Utah desert. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125733.jpg" style="width:100%"><br>
+
+###### 24. An elephant hiding in plain sight. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125734.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125735.jpg" style="width:100%"><br>
+
+###### 26. Two friends. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125736.jpg" style="width:100%"><br>
+
+###### 27. Proof that any job can be creative. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125737.jpg" style="width:100%"><br>
+
+###### 28. A man dual wielding. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125738.jpg" style="width:100%"><br>
+
+###### 29. One epic turtle. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125739.jpg" style="width:100%"><br>
+
+###### 30. Someone who had one job... and failed. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125740.jpg" style="width:100%"><br>
+
+###### 31. A man and his llama, commuting. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125741.jpg" style="width:100%"><br>
+
+###### 32. Just in case. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125742.jpg" style="width:100%"><br>
+
+###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125743.jpg" style="width:100%"><br>
+
+###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125744.jpg" style="width:100%"><br>
+
+###### 35. Moderately terrifying snow mounds. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125745.jpg" style="width:100%"><br>
+
+###### 36. A snake giving people anxiety. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125746.jpg" style="width:100%"><br>
+
+###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125747.jpg" style="width:100%"><br>
+
+###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125748.jpg" style="width:100%"><br>
+
+###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125749.jpg" style="width:100%"><br>
+
+###### 40. A celebration of victory. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125750.jpg" style="width:100%"><br>
+
+###### 41. A trap. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125751.jpg" style="width:100%"><br>
+
+###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125752.jpg" style="width:100%"><br>
+
+###### 43. A doggo spots another of his ilk. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87125753.jpg" style="width:100%"><br>
+
+## <a href="#41" id="40">35 Irish Memes for Gingers and Daywalkers Alike</a><br>
+
+###### 1. I love Jennifer Aniston.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125527.jpg" style="width:100%"><br>
+
+###### 2. Listen, if it runs it runs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125548.jpg" style="width:100%"><br>
+
+###### 3. How New Orleans does St. Patricks Day.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125524.jpg" style="width:100%"><br>
+
+###### 4. Already making spelling mistakes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125525.jpg" style="width:100%"><br>
+
+###### 5. Words wisdom Lloyd, words of wisdom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125526.jpg" style="width:100%"><br>
+
+###### 6. Irish more people were like these guys.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125530.jpg" style="width:100%"><br>
+
+###### 7. LOL, what do you want from us? We go HAM over here in the states.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125539.jpg" style="width:100%"><br>
+
+###### 8. Welcome to the club. We have jackets.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125529.jpg" style="width:100%"><br>
+
+###### 9. Actually, Ireland never had snakes, the temperatures are too cold. Snakes = pagans. Now you know.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125528.jpg" style="width:100%"><br>
+
+###### 10. Two of my favorite words to use.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125532.jpg" style="width:100%"><br>
+
+###### 11. This seems safe and healthy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125533.jpg" style="width:100%"><br>
+
+###### 12. A wee bit o irish malarkey never hurt anybody.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125537.jpg" style="width:100%"><br>
+
+###### 13. This is a big mood.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125538.jpg" style="width:100%"><br>
+
+###### 14. What else could a guy ask for?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125531.png" style="width:100%"><br>
+
+###### 15. I dont think there is enough green in this pic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125541.jpg" style="width:100%"><br>
+
+###### 16. I can feel this cats hangover.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125542.jpg" style="width:100%"><br>
+
+###### 17. Irish and proud about it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125543.jpg" style="width:100%"><br>
+
+###### 18. Now Im hungry for potatoes.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125544.jpg" style="width:100%"><br>
+
+###### 19. Get it? Because its all beer themed.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125546.jpg" style="width:100%"><br>
+
+###### 20. Lol, alcohol is hilarious.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125547.jpg" style="width:100%"><br>
+
+###### 21. Please and thank you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125549.jpg" style="width:100%"><br>
+
+###### 22. I mean if you have to piss really bad...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125550.jpg" style="width:100%"><br>
+
+###### 23. Yet here I am, an Irishman, stuck at work.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125534.jpg" style="width:100%"><br>
+
+###### 24. Bro lets get wasted, bro.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125558.png" style="width:100%"><br>
+
+###### 25. Ireland could never.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125551.png" style="width:100%"><br>
+
+###### 26. Cabbage for all!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125552.jpeg" style="width:100%"><br>
+
+###### 27. Riding shotgun on the struggle bus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125553.jpg" style="width:100%"><br>
+
+###### 28. Honestly looks super comfy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125555.jpg" style="width:100%"><br>
+
+###### 29. My sisters husbands great great grandfather was 1/18th Irish.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125556.png" style="width:100%"><br>
+
+###### 30. Name something more beautiful. Ill wait...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125568.jpg" style="width:100%"><br>
+
+###### 31. That wasnt me, that was Patricia.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125557.jpeg" style="width:100%"><br>
+
+###### 32. High as a kite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125554.jpg" style="width:100%"><br>
+
+###### 33. Shrek! Im a donkey, Shrek!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125559.jpg" style="width:100%"><br>
+
+###### 34. Nailed it.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125560.jpg" style="width:100%"><br>
+
+###### 35. Mmm, looks super healthy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87125561.jpg" style="width:100%"><br>
 
