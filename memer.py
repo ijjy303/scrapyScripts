@@ -4,15 +4,15 @@ from git import Repo
 
 nowwie = datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
 
-def fusRoDah(nowwie):
+def fusRoDah():
     try:
         repo = Repo('./')
-        repo.git.add(update=True)
-        repo.index.commit(nowwie)
+        repo.git.add(update=True) # Fus ## Add
+        repo.index.commit(nowwie) # Roh ## Commit
         origin = repo.remote(name='origin')
-        origin.push()
+        origin.push() # Dah ## Push
     except:
-        print('Error')
+        print('Error') # Fus Roh Duh.
         pass
 
 class memerSpider(scrapy.Spider):
@@ -22,7 +22,6 @@ class memerSpider(scrapy.Spider):
 	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
 	start_urls = ['https://www.ebaumsworld.com']
 	outputHtml = 'README.md'#'output.html'
-	#datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
 	hdr = f'<!DOCTYPE html>\n<html lang="en">\n<head>\n<meta charset="utf-8"/>\n<b><font size="6">All ur Memez R belog to Uz</b><br></font>\n<font size="4">Last updated: {nowwie}</font><br><br>'
 	
@@ -65,4 +64,4 @@ if __name__ == "__main__":
 	process = CrawlerProcess()
 	process.crawl(memerSpider)
 	process.start()
-	fusRoDah(nowwie)
+	fusRoDah()

@@ -3,63 +3,7 @@
 <head>
 <meta charset="utf-8"/>
 <b><font size="6">All ur Memez R belog to Uz</b><br></font>
-<font size="4">Last updated: 03/20/2022-00:00:21</font><br><br><font size="6"><u><b><a href="#2" id="1">31 "Influencers" Who Just Arrived From Planet Cringe</a></u></b></font><br><br><br>
-
-<font size="4">"It's going to suck, cost you money and I'm going to overwork you. But, if you work hard at the job for a quarter of the year, you might <em>get</em> the job."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125590.jpg" style="width:100%"><br>
-
-<font size="4">"Hey, that free ticket and +1 would really free up my schedule to post a pic sooner!"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125588.jpg" style="width:100%"><br>
-
-<font size="4">"Basically, I need you to choose a career path and commit to training and investment in equipment so that I can do none of that."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125597.jpg" style="width:100%"><br>
-
-<font size="4">"Can I just... have them?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125580.jpg" style="width:100%"><br>
-
-<font size="4">"Can I just get free food? Cleaning up after myself is so hard."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125583.jpg" style="width:100%"><br>
-
-<font size="4">"Hey, skilled professional with expensive hardware, can help me make money for free?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125586.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - dish - View Profile Usually my arrangements with restaurants is that you give my friend and I a meal on the house in exchange for instagram coverage and reviews With all due respect I'd say you have as much right to review my restaura</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125576.jpg" style="width:100%"><br>
-
-<font size="4">"Alongside my over-inflated sense of value, let me also quite literally advertise the merits of the establishment itself while making it clear how much of a d**k I am."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125598.jpg" style="width:100%"><br>
-
-<font size="4">"If you agree with me, you get it. If you don't, you don't."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125589.jpg" style="width:100%"><br>
-
-<font size="4">"Exposure can pay your bills, right?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125592.jpg" style="width:100%"><br>
-
-<font size="4">"Yes, I am a fan of free things."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125593.jpg" style="width:100%"><br>
-
-<font size="4">"Surprise me with something for free, and in exchange I'll do what normal people do anyways with things they purchased." </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125594.jpg" style="width:100%"><br>
-
-<font size="4">"After all, what do you have to 'loose?'"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125595.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - mothman statue - Dear Influencer. Before you send that email asking us to 'collab' with you in return for free products to post on you social pages. Please Stop For A Second, And Think, Think about the Restauranters, food producers th</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125582.jpg" style="width:100%"><br>
-
-<font size="4">A business lays down some truth. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125572.jpg" style="width:100%"><br>
-
-<font size="4">I'm starting to sense a theme here. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125574.jpg" style="width:100%"><br>
-
-<font size="4">Ask and you shall receive. If you have enough simps, of course. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125596.jpg" style="width:100%"><br>
-
-<font size="4">A business offers a rational, mutually-beneficial proposition. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125573.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - document -</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125575.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - Restaurant - Coronavirus Not Even the Coronavirus Crisis Can Stop Some Influencers from Asking Restaurants for Free Food Some restaurants are still getting propositions for "collaborations" even as their livelihood teeters on the brin</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125577.jpg" style="width:100%"><br>
-
-<font size="4">Every good ending comes with a moral. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125579.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - handwriting - Doyle, who before her marriage was the wellknown society beauty, Miss Linnet Ridgeway. Mr. and Mrs. Doyle are spending their holiday in Egypt. Rosalie said, You'd to move on to Egypt, Mother? Yes, I would, Mrs. Otterbour</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125581.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - media - O. 51% YouTube How To Get Pr Packages 1 Without ers! How To Get Pr Packages Without ers! Charley Bourne views 3 months ago</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125591.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - media - johnlethlean ers View profile Dear Influencers! We have a new policy in regards influencers' requesting free food & drink in return for social media posts. We will happily provide a bounty of grub & booze for you to post on yo</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125599.jpg" style="width:100%"><br>
-
-<font size="4">Kudos to them for not even pretending like they're "adding" value. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125600.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - multimedia - Elgato Gaming 10 hrs. Take the difficulty out of streaming with Stream Deck Mini. Stream Deck als de For Game Zie Games Memes Live id 14 3 1 0 Comment 14 > Who do I need to talk to about getting one of these sent to me to</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125601.jpg" style="width:100%"><br>
-
-<font size="4">cringe influencers - cvt soft serve - Sava Twist Influencers Pay ! Double .N i Unilad 3 Min Read Ice Cream Man Charges Influencers Double Because They keep Asking For Free Ice Cream Know your t f ing place, trash</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125602.jpg" style="width:100%"><br>
-
-<font size="6"><u><b><a href="#3" id="2">24 People Who Are Just Plain Stupid</a></u></b></font><br><br><br>
+<font size="4">Last updated: 03/20/2022-00:03:55</font><br><br><font size="6"><u><b><a href="#2" id="1">24 People Who Are Just Plain Stupid</a></u></b></font><br><br><br>
 
 <font size="4">I think just cut your losses and go to the ER.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
 
@@ -109,47 +53,133 @@
 
 <font size="4">I love swimming in the at land tick oat shin.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
 
-<font size="6"><u><b><a href="#4" id="3">Best Summer Camp Movies Ever</a></u></b></font><br><br><br>
+<font size="6"><u><b><a href="#3" id="2">29 Fresh Memes That Deal in Dankness</a></u></b></font><br><br><br>
 
-<font size="4">'Heavyweights' - My personal favorite, and a Ben Stiller classic. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - Everyone told him those Google ads saying "Meet hot cougars within 5 miles" were fake. They laughed at him when he clicked the ad. Who's laughing now?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
 
-<font size="4">'Ernest Goes to Camp' - Jim Varney could do no wrong.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126512.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - man - her what is that beautiful scent you are wearing it smells expensive him it is, it's gasoline</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
 
-<font size="4">'Addams Family Values' - Pugsley and Wednesday get sent to summer camp and don't try to fit in at all.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126510.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - world would look like - The World If People Flushed The Toilet In Public Bathrooms</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
 
-<font size="4">'Friday the 13th' - Warning to all camp counselors; don't party, have sex, or do drugs!</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126513.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - pronouns nor mal - Have you been mocking us since the begining of recorded civilization!? Yes</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
 
-<font size="4">'Race for Your Life, Charlie Brown' - The gang goes camping and madness ensues.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126509.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - dog at home - The teacher hypes up the party all year The party The underpaid Teacher who brought it with his own money</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
 
-<font size="4">'Cabin Fever' - If you like flesh-eating bacteria, you're gonna LOVE 'Cabin Fever.'</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126520.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - thumbs up kid meme - Since I can't afford gas, I'll just go out and buy a $60k eletric car.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
 
-<font size="4">'Wet Hot American Summer' - One of Paul Rudd's most iconic roles. Watch the original.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126514.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - robert pattinson batman - In order to prepare for his role as the broody and depressed Batman, Robert Pattison spent 14 years playing League of Legends.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
 
-<font size="4">'Fear Street Part 2: 1978' - This netflix trilogy takes the summer camp horror flick and flips it on its head.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126516.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - cartoon - My subtitles. I can't hear without my subtitles...</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
 
-<font size="4">'It Takes Two' - One of the first movies on this list about twins at summer camp.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126511.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - Geothermal energy - World's deepest hole offers 'inexhaustible clean energy Anthony Cuthbertson , 320 km Deep World's disepest hole offers exhaustible clean energy A Us company is planning to dig the world's deepest hole in orde</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
 
-<font size="4">'The Final Girls' - Another incredible contemporary horror movie, with a fun twist on the summer camp slasher.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126521.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - crossed arms meme guy - Tom Brady announcing that he's coming out of retirement The guy who bought his "final" ball for $ Bago</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
 
-<font size="4">'The Parent Trap' - Obviously if this isn't on your list, GTFO.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126522.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - doge comparison memes - students in 350 Bce students today can't wait to become an expert in everything and discover stuff just came up with a title for my essay that's enough writing for today</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
 
-<font size="4">'The Cabin in the Woods' - This movie makes fun of itself so well. It's arguably the perfect horror film.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126523.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - man of steel - "Superman's build should be thin and Scrawny because nothing is heavy enough to offer him a proper resistance workout.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
 
-<font size="4">'Camp Cucamonga' - This made for TV movie stars Jennifer Aniston and Jaleel White, because of course it does. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126518.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - lighting - Average winter fan. Average summer fan.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
 
-<font size="4">'The Great Outdoors' - John Candy is an absolute legend in this movie.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126517.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - penguin memes - me, slowly dissociating in class as | struggle to hold in a fart that could kill everyone in the room</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
 
-<font size="4">'Camp Rock' - The iconic Disney channel movie that gave us The Jo-Bros.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126519.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - cartoon - Animals are the better humans, they would never have wars. Hey let's kill this other group of chimps, so we can have more bananas.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
 
-<font size="4">'American Pie: Band Camp' - Not as terrible as it might seem. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126515.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - rey is going to bury my lightsaber - Grandfather, I Really This Girl. What Should I Say To Her? . MENOName i Have You Tried Telling Her You Hate Sand</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
 
-<font size="4">'Dirty Dancing' - Not a children's movie by any means.</font><br><img src="https://cdn.ebaumsworld.com/2022/03/18/103405/87126529/dancing.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - housing market 2021 meme - Nobody Housing market of 2022 New Listing Coming Soon! List Price $299,900</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
 
-<font size="4">'Camp Nowhere' - Nostalgia overload. This film follows a bunch of kids who create their OWN summer camp. No adults allowed!</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126524.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - office characters - I think the most unrealistic thing about The Office is the idea that a company would have nearly all employees stay 10 years, and never experience staffing shortages</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
 
-<font size="4">'Moonrise Kingdom' - Gotta get a little artsy sometimes. Bill Murray stars in this charming Wes Anderson film. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126526.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - media - Girls' achievements "I graduated college with all A's" Boys' achievements 44 I Made Pizza and Didn't Poison Anyone penguinzo</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
 
-<font size="4">'Grown Ups' - Say what you want about Adam Sandler movies, but this one has its bright spots.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
+<font size="4">dank memes - funny memes - cartoon - "Go outside and touch grass" The gardener D Such a worthless technique. a</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
+
+<font size="4">dank memes - funny memes - material - Girls "How easy do you want my signs to be?" Me __16. Mental break time. This is your last regular nonfinal test of the year. You desery an easy question. What is 1 1? a. Not this one b. Still not this one c. 2 d. You</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
+
+<font size="4">dank memes - funny memes - natural foods - What if we kissed next to the shreketables Www</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
+
+<font size="4">dank memes - funny memes - attack on titan netflix - A wasp lands on my body What I see What the wasp sees</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
+
+<font size="4">dank memes - funny memes - hey vsauce michael here you can t contain me forever - Hey Vsauce Michael here. Your home security system is good, or is it?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
+
+<font size="4">dank memes - funny memes - rule 34 samsung assistant sam nsfw - My internet ping The math teachers answers Numbers I've never seen before</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
+
+<font size="6"><u><b><a href="#4" id="3">37 Awesome Randoms to Save Your Day</a></u></b></font><br><br><br>
+
+<font size="4">Check. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126072.jpeg" style="width:100%"><br>
+
+<font size="4">Some things cannot be unseen. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126073.gif" style="width:100%"><br>
+
+<font size="4">The badass armor of Holy Roman Emperor Ferdinand II</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126074.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - science memes - I'm surprised more people don't love science. It's so fascinating. By science, do you mean spending countless hours collecting data and studying dense research articles? Or do you just think space is pretty. VectorBelly.com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126075.jpg" style="width:100%"><br>
+
+<font size="4">Cat fact: </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126076.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - book face - Tas Een Ssion GyTwombly CyTwombly Bosch Dumitriu 1erbier Hi Du Mo Petru Dumitriu L'homme aux yeux gris tes A Manch</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126077.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - pilot jokes - We Are Now Approaching The Airport.CoPilot, Please Ensure If All Passengers Have Fastened Their Seat Belts. 00000 0000 Yes. Noitego.Com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126078.jpg" style="width:100%"><br>
+
+<font size="4">Satsifying. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126079.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - they can talk comic - do you even taste your food when you eat that fast? that's what burping is for. they cantalk.com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126080.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - cat candle gif</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126081.gif" style="width:100%"><br>
+
+<font size="4">A doggo being oddly satisfying. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126082.gif" style="width:100%"><br>
+
+<font size="4">A panda shows some attitude. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126083.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - cat freak out gif</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126084.gif" style="width:100%"><br>
+
+<font size="4">fun randoms - saeid mohammadpourkarkaragh</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126085.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - I'm this old</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126086.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - shaggy pirate bay - After Scooby passed away, he lost touch with the world... Ugog</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126087.jpg" style="width:100%"><br>
+
+<font size="4">An incredibly unsafe way to commute. Possibly invented by a hamster. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126088.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - they can talk squirrel - you can see where the squirrel's footprints stop and where he sprouted wings and flew away Es theycantalk.com whoa</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126089.jpg" style="width:100%"><br>
+
+<font size="4">A perfectly looped hamster snacking. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126090.gif" style="width:100%"><br>
+
+<font size="4">fun randoms - quotes about microwaves - Microwaving Butter for 13.2 seconds Spread meil I am soft Microwaving Butter for 13.3 seconds hahaha Nope. The Oatmeal</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126091.jpg" style="width:100%"><br>
+
+<font size="4">Some men just want to watch the world burn. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126092.jpg" style="width:100%"><br>
+
+<font size="4">A very shiny specimen of a horse. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126093.jpg" style="width:100%"><br>
+
+<font size="4">Nip is a  hell of a drug. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126094.gif" style="width:100%"><br>
+
+<font size="4">A fact that uplifts some, depresses others. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126095.jpg" style="width:100%"><br>
+
+<font size="4">We could all use a new hobby. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126096.jpg" style="width:100%"><br>
+
+<font size="4">A juvenile fox finds a trophy. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126097.jpg" style="width:100%"><br>
+
+<font size="4">This iridescent peacock might be the prettiest bird in the world. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126098.jpeg" style="width:100%"><br>
+
+<font size="4">An original gangsta. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126099.jpeg" style="width:100%"><br>
+
+<font size="4">Someone flexes their tattoo, literally. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126100.jpg" style="width:100%"><br>
+
+<font size="4">A good Samaritan worries aloud about Talyor Swift's ovarian health. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126101.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - zenit and jose - A bomb sniffing dog named Oopey gets his toe nails clipped, before a mission in Kandahar, Afghanistan...</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126102.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - united states prison - Public Housing For Women Who Can'T Financially Support Their Children. Public Housing For Men Who Can'T Financially Support Their Children.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126103.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - kim kardashian pete davidson apartment - ming ling when u walk into a "party" but it's just a group of guys smoking blunts and 2 girls in the corner on their phones 12,490 23,167</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126104.jpg" style="width:100%"><br>
+
+<font size="4">fun randoms - design - Inwy hther be Are we wy Fun Je Sowice Aut Bluurro</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126105.png" style="width:100%"><br>
+
+<font size="4">fun randoms - flying peacock</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126106.jpg" style="width:100%"><br>
+
+<font size="4">Can we get a status update from the cameraman?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126107.jpg" style="width:100%"><br>
+
+<font size="4">Size matters. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
 
 <font size="6"><u><b><a href="#5" id="4">20 Celebs Who Gave Us Cringey Content during the Pandemic</a></u></b></font><br><br><br>
 
@@ -193,57 +223,49 @@
 
 <font size="4">Bette Midler clearly has never cooked or cleaned in her entire life.</font><br><img src="https://cdn.ebaumsworld.com/2022/03/18/033649/87126717/midler.jpg" style="width:100%"><br>
 
-<font size="6"><u><b><a href="#6" id="5">25 Funny Headlines From Messed Up World </a></u></b></font><br><br><br>
+<font size="6"><u><b><a href="#6" id="5">20 People Who Have Horrible Bosses</a></u></b></font><br><br><br>
 
-<font size="4">Was the photo album made of steel? And why is she so happy about it? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
+<font size="4">“My employer sent me this...”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
 
-<font size="4">Prove it. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124017.jpg" style="width:100%"><br>
+<font size="4">“Meals (1 per person) we get at my job for shifts that can last up to 12 hours”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
 
-<font size="4">This actually sounds kind of nice. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124018.jpg" style="width:100%"><br>
+<font size="4">“My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
 
-<font size="4">Now that's a good idea if you ask me. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124020.jpg" style="width:100%"><br>
+<font size="4">“This burrito at my job is $5.54 and we’re not allowed to leave to get food.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
 
-<font size="4">This can't be real right? Oh sweet summer child, you have no idea.  </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124029.jpg" style="width:100%"><br>
+<font size="4">“This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
 
-<font size="4">That will show Putin. Pack it up boys, we've done it! </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124022.jpg" style="width:100%"><br>
+<font size="4">“When I resigned, my boss told people to not get me anything for my farewell.”
+
+“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
 
-<font size="4">In his defense he was inside of a Taco Bell. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124023.jpg" style="width:100%"><br>
+<font size="4">“Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
 
-<font size="4">How does someone get shot by an unarmed man? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124025.jpg" style="width:100%"><br>
+<font size="4">“A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
 
-<font size="4">This guy is living out his childhood dreams !</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124021.jpg" style="width:100%"><br>
+<font size="4">“This was the only fire alarm system we had in one of the old buildings I worked in.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
 
-<font size="4">"Oh but you have heard of me." </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124027.jpg" style="width:100%"><br>
+<font size="4">“Thanksgiving gift from my employer. Not even joking.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
 
-<font size="4">funny and wtf news headlines - display device - Cal 911 Ca Cat Attaci Caller He'S Charging At Us. He' Bedroom Door. Dispatch One Moment, Okay? Cat Raaaaaarrrrrrr! Samsung</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124028.jpg" style="width:100%"><br>
+<font size="4">“My employer contracted out some cable work. This was the result.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
 
-<font size="4">Live life as if you just want to visit your grandma. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124030.jpg" style="width:100%"><br>
+<font size="4">“How my mom’s employer shipped her $2,000 work laptop”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
 
-<font size="4">Oh you don't say? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124031.jpg" style="width:100%"><br>
+<font size="4">“We had a birthday at the office today and our boss insisted on cutting the cake.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
 
-<font size="4">Man this rocks! </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124032.jpg" style="width:100%"><br>
+<font size="4">“I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
 
-<font size="4">Actually yes, that's exactly what I'm going to do.  - The Stabber </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124033.jpg" style="width:100%"><br>
+<font size="4">“This keyboard at my place of employment. It’s covered with aluminum dust.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
 
-<font size="4">funny and wtf news headlines - blursed goose - Blind bisexual goose named Thomas who spent six years in a love triangle with two swans and helped raise 68 babies dies at the ripe old age of 40 By Nic White For Daily Mail Australia , updated</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124034.jpg" style="width:100%"><br>
+<font size="4">“My boss has turned our ’break room’ into a workshop.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
 
-<font size="4">funny and wtf news headlines - wedding photographer denied food - Rode Community Hungry photographer deletes all photos and leaves after being denied food at wedding</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124035.jpg" style="width:100%"><br>
+<font size="4">“My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
 
-<font size="4">funny and wtf news headlines - opera definition - Opera Singer Can't Stop Farting After Surgery, Loses Job Q Expand</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124036.jpg" style="width:100%"><br>
+<font size="4">“I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
 
-<font size="4">Rawr. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124037.jpg" style="width:100%"><br>
+<font size="4">“4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
 
-<font size="4">Oh man this dude must have a bad time on dates. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124038.jpg" style="width:100%"><br>
-
-<font size="4">funny and wtf news headlines - worst names - kody Hd KXLY4 Hd News Man With Bizarre Name Arrested Beezow DooDoo ZopittybopBopBop</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124040.jpg" style="width:100%"><br>
-
-<font size="4">funny and wtf news headlines - florida news titles - Florida Man Arrested For Calling 911 After His Kitten Was Denied Entry Into A Strip Club By Complex Mag Tweet 202 U Everett Lages</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124041.jpg" style="width:100%"><br>
-
-<font size="4">funny and wtf news headlines - old man with walking stick - I've been posting my letters in the dog poo box for Two Years Auf, 91, Confuses Disposal Bin For Nearby Postbox</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124042.jpg" style="width:100%"><br>
-
-<font size="4">How does this happen? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124043.jpg" style="width:100%"><br>
-
-<font size="4">The headline is true but the story wasn't exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream can't he. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
+<font size="4">"When the boss leaves, it’s time to celebrate!"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
 
 <font size="6"><u><b><a href="#7" id="6">16 Fascinating Photos From Around The World</a></u></b></font><br><br><br>
 
@@ -343,135 +365,49 @@
 
 <font size="4">twitter memes - funny memes - angle - Nicksy My age is news to me every single time I remember . jojocinco . 1d sometimes i can't believe i'm a grownup</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87124805.jpg" style="width:100%"><br>
 
-<font size="6"><u><b><a href="#9" id="8">37 Awesome Randoms to Save Your Day</a></u></b></font><br><br><br>
+<font size="6"><u><b><a href="#9" id="8">Best Summer Camp Movies Ever</a></u></b></font><br><br><br>
 
-<font size="4">Check. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126072.jpeg" style="width:100%"><br>
+<font size="4">'Heavyweights' - My personal favorite, and a Ben Stiller classic. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
 
-<font size="4">Some things cannot be unseen. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126073.gif" style="width:100%"><br>
+<font size="4">'Ernest Goes to Camp' - Jim Varney could do no wrong.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126512.jpg" style="width:100%"><br>
 
-<font size="4">The badass armor of Holy Roman Emperor Ferdinand II</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126074.jpg" style="width:100%"><br>
+<font size="4">'Addams Family Values' - Pugsley and Wednesday get sent to summer camp and don't try to fit in at all.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126510.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - science memes - I'm surprised more people don't love science. It's so fascinating. By science, do you mean spending countless hours collecting data and studying dense research articles? Or do you just think space is pretty. VectorBelly.com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126075.jpg" style="width:100%"><br>
+<font size="4">'Friday the 13th' - Warning to all camp counselors; don't party, have sex, or do drugs!</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126513.jpg" style="width:100%"><br>
 
-<font size="4">Cat fact: </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126076.jpg" style="width:100%"><br>
+<font size="4">'Race for Your Life, Charlie Brown' - The gang goes camping and madness ensues.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126509.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - book face - Tas Een Ssion GyTwombly CyTwombly Bosch Dumitriu 1erbier Hi Du Mo Petru Dumitriu L'homme aux yeux gris tes A Manch</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126077.jpg" style="width:100%"><br>
+<font size="4">'Cabin Fever' - If you like flesh-eating bacteria, you're gonna LOVE 'Cabin Fever.'</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126520.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - pilot jokes - We Are Now Approaching The Airport.CoPilot, Please Ensure If All Passengers Have Fastened Their Seat Belts. 00000 0000 Yes. Noitego.Com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126078.jpg" style="width:100%"><br>
+<font size="4">'Wet Hot American Summer' - One of Paul Rudd's most iconic roles. Watch the original.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126514.jpg" style="width:100%"><br>
 
-<font size="4">Satsifying. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126079.jpg" style="width:100%"><br>
+<font size="4">'Fear Street Part 2: 1978' - This netflix trilogy takes the summer camp horror flick and flips it on its head.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126516.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - they can talk comic - do you even taste your food when you eat that fast? that's what burping is for. they cantalk.com</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126080.jpg" style="width:100%"><br>
+<font size="4">'It Takes Two' - One of the first movies on this list about twins at summer camp.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126511.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - cat candle gif</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126081.gif" style="width:100%"><br>
+<font size="4">'The Final Girls' - Another incredible contemporary horror movie, with a fun twist on the summer camp slasher.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126521.jpg" style="width:100%"><br>
 
-<font size="4">A doggo being oddly satisfying. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126082.gif" style="width:100%"><br>
+<font size="4">'The Parent Trap' - Obviously if this isn't on your list, GTFO.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126522.jpg" style="width:100%"><br>
 
-<font size="4">A panda shows some attitude. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126083.jpg" style="width:100%"><br>
+<font size="4">'The Cabin in the Woods' - This movie makes fun of itself so well. It's arguably the perfect horror film.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126523.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - cat freak out gif</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126084.gif" style="width:100%"><br>
+<font size="4">'Camp Cucamonga' - This made for TV movie stars Jennifer Aniston and Jaleel White, because of course it does. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126518.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - saeid mohammadpourkarkaragh</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126085.jpg" style="width:100%"><br>
+<font size="4">'The Great Outdoors' - John Candy is an absolute legend in this movie.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126517.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - I'm this old</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126086.jpg" style="width:100%"><br>
+<font size="4">'Camp Rock' - The iconic Disney channel movie that gave us The Jo-Bros.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126519.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - shaggy pirate bay - After Scooby passed away, he lost touch with the world... Ugog</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126087.jpg" style="width:100%"><br>
+<font size="4">'American Pie: Band Camp' - Not as terrible as it might seem. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126515.jpg" style="width:100%"><br>
 
-<font size="4">An incredibly unsafe way to commute. Possibly invented by a hamster. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126088.jpg" style="width:100%"><br>
+<font size="4">'Dirty Dancing' - Not a children's movie by any means.</font><br><img src="https://cdn.ebaumsworld.com/2022/03/18/103405/87126529/dancing.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - they can talk squirrel - you can see where the squirrel's footprints stop and where he sprouted wings and flew away Es theycantalk.com whoa</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126089.jpg" style="width:100%"><br>
+<font size="4">'Camp Nowhere' - Nostalgia overload. This film follows a bunch of kids who create their OWN summer camp. No adults allowed!</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126524.jpg" style="width:100%"><br>
 
-<font size="4">A perfectly looped hamster snacking. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126090.gif" style="width:100%"><br>
+<font size="4">'Moonrise Kingdom' - Gotta get a little artsy sometimes. Bill Murray stars in this charming Wes Anderson film. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126526.jpg" style="width:100%"><br>
 
-<font size="4">fun randoms - quotes about microwaves - Microwaving Butter for 13.2 seconds Spread meil I am soft Microwaving Butter for 13.3 seconds hahaha Nope. The Oatmeal</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126091.jpg" style="width:100%"><br>
+<font size="4">'Grown Ups' - Say what you want about Adam Sandler movies, but this one has its bright spots.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
 
-<font size="4">Some men just want to watch the world burn. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126092.jpg" style="width:100%"><br>
-
-<font size="4">A very shiny specimen of a horse. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126093.jpg" style="width:100%"><br>
-
-<font size="4">Nip is a  hell of a drug. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126094.gif" style="width:100%"><br>
-
-<font size="4">A fact that uplifts some, depresses others. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126095.jpg" style="width:100%"><br>
-
-<font size="4">We could all use a new hobby. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126096.jpg" style="width:100%"><br>
-
-<font size="4">A juvenile fox finds a trophy. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126097.jpg" style="width:100%"><br>
-
-<font size="4">This iridescent peacock might be the prettiest bird in the world. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126098.jpeg" style="width:100%"><br>
-
-<font size="4">An original gangsta. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126099.jpeg" style="width:100%"><br>
-
-<font size="4">Someone flexes their tattoo, literally. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126100.jpg" style="width:100%"><br>
-
-<font size="4">A good Samaritan worries aloud about Talyor Swift's ovarian health. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126101.jpg" style="width:100%"><br>
-
-<font size="4">fun randoms - zenit and jose - A bomb sniffing dog named Oopey gets his toe nails clipped, before a mission in Kandahar, Afghanistan...</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126102.jpg" style="width:100%"><br>
-
-<font size="4">fun randoms - united states prison - Public Housing For Women Who Can'T Financially Support Their Children. Public Housing For Men Who Can'T Financially Support Their Children.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126103.jpg" style="width:100%"><br>
-
-<font size="4">fun randoms - kim kardashian pete davidson apartment - ming ling when u walk into a "party" but it's just a group of guys smoking blunts and 2 girls in the corner on their phones 12,490 23,167</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126104.jpg" style="width:100%"><br>
-
-<font size="4">fun randoms - design - Inwy hther be Are we wy Fun Je Sowice Aut Bluurro</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126105.png" style="width:100%"><br>
-
-<font size="4">fun randoms - flying peacock</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126106.jpg" style="width:100%"><br>
-
-<font size="4">Can we get a status update from the cameraman?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126107.jpg" style="width:100%"><br>
-
-<font size="4">Size matters. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
-
-<font size="6"><u><b><a href="#10" id="9">29 Fresh Memes That Deal in Dankness</a></u></b></font><br><br><br>
-
-<font size="4">dank memes - funny memes - Everyone told him those Google ads saying "Meet hot cougars within 5 miles" were fake. They laughed at him when he clicked the ad. Who's laughing now?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - man - her what is that beautiful scent you are wearing it smells expensive him it is, it's gasoline</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - world would look like - The World If People Flushed The Toilet In Public Bathrooms</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - pronouns nor mal - Have you been mocking us since the begining of recorded civilization!? Yes</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - dog at home - The teacher hypes up the party all year The party The underpaid Teacher who brought it with his own money</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - thumbs up kid meme - Since I can't afford gas, I'll just go out and buy a $60k eletric car.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - robert pattinson batman - In order to prepare for his role as the broody and depressed Batman, Robert Pattison spent 14 years playing League of Legends.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - cartoon - My subtitles. I can't hear without my subtitles...</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - Geothermal energy - World's deepest hole offers 'inexhaustible clean energy Anthony Cuthbertson , 320 km Deep World's disepest hole offers exhaustible clean energy A Us company is planning to dig the world's deepest hole in orde</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - crossed arms meme guy - Tom Brady announcing that he's coming out of retirement The guy who bought his "final" ball for $ Bago</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - doge comparison memes - students in 350 Bce students today can't wait to become an expert in everything and discover stuff just came up with a title for my essay that's enough writing for today</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - man of steel - "Superman's build should be thin and Scrawny because nothing is heavy enough to offer him a proper resistance workout.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - lighting - Average winter fan. Average summer fan.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - penguin memes - me, slowly dissociating in class as | struggle to hold in a fart that could kill everyone in the room</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - cartoon - Animals are the better humans, they would never have wars. Hey let's kill this other group of chimps, so we can have more bananas.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - rey is going to bury my lightsaber - Grandfather, I Really This Girl. What Should I Say To Her? . MENOName i Have You Tried Telling Her You Hate Sand</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - housing market 2021 meme - Nobody Housing market of 2022 New Listing Coming Soon! List Price $299,900</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - office characters - I think the most unrealistic thing about The Office is the idea that a company would have nearly all employees stay 10 years, and never experience staffing shortages</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - media - Girls' achievements "I graduated college with all A's" Boys' achievements 44 I Made Pizza and Didn't Poison Anyone penguinzo</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - cartoon - "Go outside and touch grass" The gardener D Such a worthless technique. a</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - material - Girls "How easy do you want my signs to be?" Me __16. Mental break time. This is your last regular nonfinal test of the year. You desery an easy question. What is 1 1? a. Not this one b. Still not this one c. 2 d. You</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - natural foods - What if we kissed next to the shreketables Www</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - attack on titan netflix - A wasp lands on my body What I see What the wasp sees</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - hey vsauce michael here you can t contain me forever - Hey Vsauce Michael here. Your home security system is good, or is it?</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
-
-<font size="4">dank memes - funny memes - rule 34 samsung assistant sam nsfw - My internet ping The math teachers answers Numbers I've never seen before</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
-
-<font size="6"><u><b><a href="#11" id="10">32 Unique People with Rare Body Features</a></u></b></font><br><br><br>
+<font size="6"><u><b><a href="#10" id="9">32 Unique People with Rare Body Features</a></u></b></font><br><br><br>
 
 <font size="4">My grandpa’s cool eye.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124210.jpg" style="width:100%"><br>
 
@@ -537,6 +473,62 @@
 
 <font size="4">The guy next to me on the bus has 6 fingers.</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124241.jpg" style="width:100%"><br>
 
+<font size="6"><u><b><a href="#11" id="10">31 "Influencers" Who Just Arrived From Planet Cringe</a></u></b></font><br><br><br>
+
+<font size="4">"It's going to suck, cost you money and I'm going to overwork you. But, if you work hard at the job for a quarter of the year, you might <em>get</em> the job."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125590.jpg" style="width:100%"><br>
+
+<font size="4">"Hey, that free ticket and +1 would really free up my schedule to post a pic sooner!"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125588.jpg" style="width:100%"><br>
+
+<font size="4">"Basically, I need you to choose a career path and commit to training and investment in equipment so that I can do none of that."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125597.jpg" style="width:100%"><br>
+
+<font size="4">"Can I just... have them?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125580.jpg" style="width:100%"><br>
+
+<font size="4">"Can I just get free food? Cleaning up after myself is so hard."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125583.jpg" style="width:100%"><br>
+
+<font size="4">"Hey, skilled professional with expensive hardware, can help me make money for free?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125586.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - dish - View Profile Usually my arrangements with restaurants is that you give my friend and I a meal on the house in exchange for instagram coverage and reviews With all due respect I'd say you have as much right to review my restaura</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125576.jpg" style="width:100%"><br>
+
+<font size="4">"Alongside my over-inflated sense of value, let me also quite literally advertise the merits of the establishment itself while making it clear how much of a d**k I am."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125598.jpg" style="width:100%"><br>
+
+<font size="4">"If you agree with me, you get it. If you don't, you don't."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125589.jpg" style="width:100%"><br>
+
+<font size="4">"Exposure can pay your bills, right?"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125592.jpg" style="width:100%"><br>
+
+<font size="4">"Yes, I am a fan of free things."</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125593.jpg" style="width:100%"><br>
+
+<font size="4">"Surprise me with something for free, and in exchange I'll do what normal people do anyways with things they purchased." </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125594.jpg" style="width:100%"><br>
+
+<font size="4">"After all, what do you have to 'loose?'"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125595.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - mothman statue - Dear Influencer. Before you send that email asking us to 'collab' with you in return for free products to post on you social pages. Please Stop For A Second, And Think, Think about the Restauranters, food producers th</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125582.jpg" style="width:100%"><br>
+
+<font size="4">A business lays down some truth. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125572.jpg" style="width:100%"><br>
+
+<font size="4">I'm starting to sense a theme here. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125574.jpg" style="width:100%"><br>
+
+<font size="4">Ask and you shall receive. If you have enough simps, of course. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125596.jpg" style="width:100%"><br>
+
+<font size="4">A business offers a rational, mutually-beneficial proposition. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125573.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - document -</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125575.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - Restaurant - Coronavirus Not Even the Coronavirus Crisis Can Stop Some Influencers from Asking Restaurants for Free Food Some restaurants are still getting propositions for "collaborations" even as their livelihood teeters on the brin</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125577.jpg" style="width:100%"><br>
+
+<font size="4">Every good ending comes with a moral. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125579.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - handwriting - Doyle, who before her marriage was the wellknown society beauty, Miss Linnet Ridgeway. Mr. and Mrs. Doyle are spending their holiday in Egypt. Rosalie said, You'd to move on to Egypt, Mother? Yes, I would, Mrs. Otterbour</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125581.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - media - O. 51% YouTube How To Get Pr Packages 1 Without ers! How To Get Pr Packages Without ers! Charley Bourne views 3 months ago</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125591.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - media - johnlethlean ers View profile Dear Influencers! We have a new policy in regards influencers' requesting free food & drink in return for social media posts. We will happily provide a bounty of grub & booze for you to post on yo</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125599.jpg" style="width:100%"><br>
+
+<font size="4">Kudos to them for not even pretending like they're "adding" value. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125600.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - multimedia - Elgato Gaming 10 hrs. Take the difficulty out of streaming with Stream Deck Mini. Stream Deck als de For Game Zie Games Memes Live id 14 3 1 0 Comment 14 > Who do I need to talk to about getting one of these sent to me to</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125601.jpg" style="width:100%"><br>
+
+<font size="4">cringe influencers - cvt soft serve - Sava Twist Influencers Pay ! Double .N i Unilad 3 Min Read Ice Cream Man Charges Influencers Double Because They keep Asking For Free Ice Cream Know your t f ing place, trash</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125602.jpg" style="width:100%"><br>
+
 <font size="6"><u><b><a href="#12" id="11">27 Moments People Proved Insanely Unlucky</a></u></b></font><br><br><br>
 
 <font size="4">The worst part of this is actually the dust. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
@@ -591,47 +583,55 @@
 
 <font size="4">A randomly generated staircase. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
 
-<font size="6"><u><b><a href="#13" id="12">20 People Who Have Horrible Bosses</a></u></b></font><br><br><br>
+<font size="6"><u><b><a href="#13" id="12">25 Funny Headlines From Messed Up World </a></u></b></font><br><br><br>
 
-<font size="4">“My employer sent me this...”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+<font size="4">Was the photo album made of steel? And why is she so happy about it? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
 
-<font size="4">“Meals (1 per person) we get at my job for shifts that can last up to 12 hours”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+<font size="4">Prove it. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124017.jpg" style="width:100%"><br>
 
-<font size="4">“My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+<font size="4">This actually sounds kind of nice. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124018.jpg" style="width:100%"><br>
 
-<font size="4">“This burrito at my job is $5.54 and we’re not allowed to leave to get food.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+<font size="4">Now that's a good idea if you ask me. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124020.jpg" style="width:100%"><br>
 
-<font size="4">“This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+<font size="4">This can't be real right? Oh sweet summer child, you have no idea.  </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124029.jpg" style="width:100%"><br>
 
-<font size="4">“When I resigned, my boss told people to not get me anything for my farewell.”
-
-“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+<font size="4">That will show Putin. Pack it up boys, we've done it! </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124022.jpg" style="width:100%"><br>
 
-<font size="4">“Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+<font size="4">In his defense he was inside of a Taco Bell. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124023.jpg" style="width:100%"><br>
 
-<font size="4">“A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+<font size="4">How does someone get shot by an unarmed man? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124025.jpg" style="width:100%"><br>
 
-<font size="4">“This was the only fire alarm system we had in one of the old buildings I worked in.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+<font size="4">This guy is living out his childhood dreams !</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124021.jpg" style="width:100%"><br>
 
-<font size="4">“Thanksgiving gift from my employer. Not even joking.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+<font size="4">"Oh but you have heard of me." </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124027.jpg" style="width:100%"><br>
 
-<font size="4">“My employer contracted out some cable work. This was the result.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+<font size="4">funny and wtf news headlines - display device - Cal 911 Ca Cat Attaci Caller He'S Charging At Us. He' Bedroom Door. Dispatch One Moment, Okay? Cat Raaaaaarrrrrrr! Samsung</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124028.jpg" style="width:100%"><br>
 
-<font size="4">“How my mom’s employer shipped her $2,000 work laptop”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+<font size="4">Live life as if you just want to visit your grandma. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124030.jpg" style="width:100%"><br>
 
-<font size="4">“We had a birthday at the office today and our boss insisted on cutting the cake.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+<font size="4">Oh you don't say? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124031.jpg" style="width:100%"><br>
 
-<font size="4">“I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+<font size="4">Man this rocks! </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124032.jpg" style="width:100%"><br>
 
-<font size="4">“This keyboard at my place of employment. It’s covered with aluminum dust.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+<font size="4">Actually yes, that's exactly what I'm going to do.  - The Stabber </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124033.jpg" style="width:100%"><br>
 
-<font size="4">“My boss has turned our ’break room’ into a workshop.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+<font size="4">funny and wtf news headlines - blursed goose - Blind bisexual goose named Thomas who spent six years in a love triangle with two swans and helped raise 68 babies dies at the ripe old age of 40 By Nic White For Daily Mail Australia , updated</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124034.jpg" style="width:100%"><br>
 
-<font size="4">“My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+<font size="4">funny and wtf news headlines - wedding photographer denied food - Rode Community Hungry photographer deletes all photos and leaves after being denied food at wedding</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124035.jpg" style="width:100%"><br>
 
-<font size="4">“I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+<font size="4">funny and wtf news headlines - opera definition - Opera Singer Can't Stop Farting After Surgery, Loses Job Q Expand</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124036.jpg" style="width:100%"><br>
 
-<font size="4">“4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+<font size="4">Rawr. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124037.jpg" style="width:100%"><br>
 
-<font size="4">"When the boss leaves, it’s time to celebrate!"</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
+<font size="4">Oh man this dude must have a bad time on dates. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124038.jpg" style="width:100%"><br>
+
+<font size="4">funny and wtf news headlines - worst names - kody Hd KXLY4 Hd News Man With Bizarre Name Arrested Beezow DooDoo ZopittybopBopBop</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124040.jpg" style="width:100%"><br>
+
+<font size="4">funny and wtf news headlines - florida news titles - Florida Man Arrested For Calling 911 After His Kitten Was Denied Entry Into A Strip Club By Complex Mag Tweet 202 U Everett Lages</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124041.jpg" style="width:100%"><br>
+
+<font size="4">funny and wtf news headlines - old man with walking stick - I've been posting my letters in the dog poo box for Two Years Auf, 91, Confuses Disposal Bin For Nearby Postbox</font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124042.jpg" style="width:100%"><br>
+
+<font size="4">How does this happen? </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124043.jpg" style="width:100%"><br>
+
+<font size="4">The headline is true but the story wasn't exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream can't he. </font><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
 
