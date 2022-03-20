@@ -23,7 +23,7 @@ class memerSpider(scrapy.Spider):
 	start_urls = ['https://www.ebaumsworld.com']
 	outputHtml = 'README.md'#'output.html'
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
-	hdr = f'# All ur Memez R belog to Uz<br>\nLast updated: {nowwie}\n<br><br>\n'
+	hdr = f'# All ur Memez R belog to Uz<br>\nLast updated: {nowwie}\n<br>\n'
 	
 	try:
 		os.remove(outputHtml)
@@ -45,7 +45,7 @@ class memerSpider(scrapy.Spider):
 	def recursiveParse(self, response):
 		self.numb += 1 # Crawling a successful link, up counter.
 		header = response.xpath('//*[@id="detailPage"]/header/h1/text()').get() # Header for meme collection
-		titles = response.xpath('//div[@class="overlay gridOverlay"]/h2/text()')#('//li[@class="galleryListItem"]/text()')#response.xpath('//li[@class="galleryListItem"]//img/@title') # Context/Caption for meme
+		titles = response.xpath('//div[@class="overlay gridOverlay"]/h2/text()')# Context/Caption for meme
 		links = response.xpath('//li[@class="galleryListItem"]//img/@data-src') # Link to image
 		nextNumb = self.numb + 1 # If not interested in this meme dump, link to next dump on page
 		html = f'## <a href="#{nextNumb}" id="{self.numb}">{header}</a><br>\n\n'
@@ -55,7 +55,7 @@ class memerSpider(scrapy.Spider):
 			link = item[1].get()
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
-				html += f'###### {title}<br><img src="{link}" style="width:100%"><br>\n\n'
+				html += f'###### "{title}"<br><img src="{link}" style="width:100%"><br>\n\n'
 
 		with open(self.outputHtml, 'a+') as w: 
 			w.write(html)
