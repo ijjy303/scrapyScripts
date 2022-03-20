@@ -1,5 +1,19 @@
 import scrapy, datetime, os
 from scrapy.crawler import CrawlerProcess
+from git import Repo
+
+nowwie = datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
+
+def fusRoDah(nowwie):
+    try:
+        repo = Repo('./')
+        repo.git.add(update=True)
+        repo.index.commit(nowwie)
+        origin = repo.remote(name='origin')
+        origin.push()
+    except:
+        print('Error')
+        pass
 
 class memerSpider(scrapy.Spider):
 	"""Collect all meme dumps from front page of Ebaumsworld.
@@ -8,7 +22,7 @@ class memerSpider(scrapy.Spider):
 	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
 	start_urls = ['https://www.ebaumsworld.com']
 	outputHtml = 'README.md'#'output.html'
-	nowwie = datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
+	#datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
 	hdr = f'<!DOCTYPE html>\n<html lang="en">\n<head>\n<meta charset="utf-8"/>\n<b><font size="6">All ur Memez R belog to Uz</b><br></font>\n<font size="4">Last updated: {nowwie}</font><br><br>'
 	
@@ -51,3 +65,4 @@ if __name__ == "__main__":
 	process = CrawlerProcess()
 	process.crawl(memerSpider)
 	process.start()
+	fusRoDah(nowwie)
