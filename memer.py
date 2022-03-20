@@ -1,4 +1,4 @@
-import scrapy, os
+import scrapy, datetime, os
 from scrapy.crawler import CrawlerProcess
 
 class memerSpider(scrapy.Spider):
@@ -7,8 +7,10 @@ class memerSpider(scrapy.Spider):
 
 	name = 'memer' #allowed_domains = ['www.ebaumsworld.com/']
 	start_urls = ['https://www.ebaumsworld.com']
-	outputHtml = 'output.html'
+	outputHtml = 'README.md'#'output.html'
+	nowwie = datetime.datetime.now().strftime("%m/%d/%Y-%H:%M:%S")
 	numb = 0 # Counter for successful crawls cuz links are parsed in random pattern.
+	html = f'<!DOCTYPE html>\n<html lang="en">\n<head>\n<meta charset="utf-8"/>\n<b><font size="6">All ur Memez R belog to Uz</b><br></font>\n<font size="4">Last updated: {nowwie}</font><br><br>'
 	
 	try:
 		os.remove(outputHtml)
@@ -31,17 +33,17 @@ class memerSpider(scrapy.Spider):
 		titles = response.xpath('//li[@class="galleryListItem"]//img/@title') # Context/Caption for meme
 		links = response.xpath('//li[@class="galleryListItem"]//img/@data-src') # Link to image
 		nextNumb = self.numb + 1 # If not interested in this meme dump, link to next dump on page
-		html = f'<font size="6"><u><b><a href="#{nextNumb}" id="{self.numb}">{header}</a></u></b></font><br><br><br>\n\n'
+		self.html += f'<font size="6"><u><b><a href="#{nextNumb}" id="{self.numb}">{header}</a></u></b></font><br><br><br>\n\n'
 
 		for item in zip(titles, links):
 			title = item[0].get()
 			link = item[1].get()
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
-				html += f'<font size="4">{title}</font><br><img src="{link}" style="width:100%"><br>\n\n'
+				self.html += f'<font size="4">{title}</font><br><img src="{link}" style="width:100%"><br>\n\n'
 
 		with open(self.outputHtml, 'a+', encoding="utf-8") as w: 
-			w.write(html)
+			w.write(self.html)
 
 if __name__ == "__main__":
 	process = CrawlerProcess()
