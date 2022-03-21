@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/20/2022-22:11:31
+Last updated: 03/20/2022-23:11:31
 <br>
 ## <a href="#2" id="1">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
 
@@ -63,57 +63,59 @@ Last updated: 03/20/2022-22:11:31
 
 ###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">29 Fresh Memes That Deal in Dankness</a><br>
+## <a href="#3" id="2">27 Moments People Proved Insanely Unlucky</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
+###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
+###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
+###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
+###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
+###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
+###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
+###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
+###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
+###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
+###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
+###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
+###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
+###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
+###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
+###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
+###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
+###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
 
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
 
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
+
+###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
 
 ## <a href="#4" id="3">16 Fascinating Photos From Around The World</a><br>
 
@@ -423,59 +425,63 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 50. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125632.jpg" style="width:100%"><br>
 
-## <a href="#9" id="8">27 Moments People Proved Insanely Unlucky</a><br>
+## <a href="#9" id="8">28 Signs That Are Confusing AF to Read</a><br>
 
-###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
+###### 1. We dont care. Stop!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125260.jpg" style="width:100%"><br>
 
-###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
+###### 2. I dont think thats the correct order at all.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125240.jpg" style="width:100%"><br>
 
-###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
+###### 3. You know...the universe, hearing aids, my wife. I could go on forever baby.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125241.jpg" style="width:100%"><br>
 
-###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
+###### 4. Im not going to even try this one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125242.jpg" style="width:100%"><br>
 
-###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
+###### 5. Is this the 11th movie in the franchise?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125243.jpg" style="width:100%"><br>
 
-###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
+###### 6. Wast energy today, tomorrow, yesterday, whenever!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125244.jpg" style="width:100%"><br>
 
-###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
+###### 7. Come on now, this doesnt have to be that complicated.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125245.jpg" style="width:100%"><br>
 
-###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
+###### 8. Yeah sorry dawg, thats gonna be a No for butterfly sex.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125246.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
+###### 9. Honestly cant read the order or the spelling. Win/win.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125247.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
+###### 10. I see what they were going for. So close.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125248.jpg" style="width:100%"><br>
 
-###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
+###### 11. Mmm, sounds delicious. Ill have that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125249.jpg" style="width:100%"><br>
 
-###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
+###### 12. Im gonna try to break some soup and see what happens.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125250.jpg" style="width:100%"><br>
 
-###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
+###### 13. Huh? Can someone explain this one?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125251.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
+###### 14. What else comes with the dark special, I wonder?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125252.jpg" style="width:100%"><br>
 
-###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
+###### 15. Fire city federal police county credit union!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125253.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
+###### 16. The worst tattoo doesnt exis-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125254.jpg" style="width:100%"><br>
 
-###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
+###### 17. We stand with Ukraine! Wait Ive just been handed another message...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125255.jpg" style="width:100%"><br>
 
-###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
+###### 18. Bold. Brave. Byou. So inspirational.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125256.jpg" style="width:100%"><br>
 
-###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
+###### 19. Ms. Eaglae was definitely a third grade teacher.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125257.jpg" style="width:100%"><br>
 
-###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
+###### 20. He is the gun. Ammo in my cuffs. Keys to my jelly donut.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125258.jpg" style="width:100%"><br>
 
-###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
+###### 21. Why is everything underlined? It makes it so much wors.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125259.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
+###### 22. Theres just way too much to unpack here.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125261.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
+###### 23. Cant wait to try this when Im absolutely hammered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125262.jpg" style="width:100%"><br>
 
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
+###### 24. Good luck with this one as well.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125263.jpg" style="width:100%"><br>
 
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
+###### 25. Id love to dream happy or whatnot but I cant even read your message.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125264.jpg" style="width:100%"><br>
 
-###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
+###### 26. Not til not. Were youre happy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125265.jpg" style="width:100%"><br>
+
+###### 27. Its soccer, so Im not sure why I expected anything different.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125266.jpg" style="width:100%"><br>
+
+###### 28. Looks good to me!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125267.jpg" style="width:100%"><br>
 
 ## <a href="#10" id="9">46 Peculiar Pics to Please Your Peepers</a><br>
 
@@ -571,65 +577,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
-## <a href="#11" id="10">28 Signs That Are Confusing AF to Read</a><br>
-
-###### 1. We dont care. Stop!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125260.jpg" style="width:100%"><br>
-
-###### 2. I dont think thats the correct order at all.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125240.jpg" style="width:100%"><br>
-
-###### 3. You know...the universe, hearing aids, my wife. I could go on forever baby.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125241.jpg" style="width:100%"><br>
-
-###### 4. Im not going to even try this one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125242.jpg" style="width:100%"><br>
-
-###### 5. Is this the 11th movie in the franchise?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125243.jpg" style="width:100%"><br>
-
-###### 6. Wast energy today, tomorrow, yesterday, whenever!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125244.jpg" style="width:100%"><br>
-
-###### 7. Come on now, this doesnt have to be that complicated.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125245.jpg" style="width:100%"><br>
-
-###### 8. Yeah sorry dawg, thats gonna be a No for butterfly sex.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125246.jpg" style="width:100%"><br>
-
-###### 9. Honestly cant read the order or the spelling. Win/win.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125247.jpg" style="width:100%"><br>
-
-###### 10. I see what they were going for. So close.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125248.jpg" style="width:100%"><br>
-
-###### 11. Mmm, sounds delicious. Ill have that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125249.jpg" style="width:100%"><br>
-
-###### 12. Im gonna try to break some soup and see what happens.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125250.jpg" style="width:100%"><br>
-
-###### 13. Huh? Can someone explain this one?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125251.jpg" style="width:100%"><br>
-
-###### 14. What else comes with the dark special, I wonder?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125252.jpg" style="width:100%"><br>
-
-###### 15. Fire city federal police county credit union!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125253.jpg" style="width:100%"><br>
-
-###### 16. The worst tattoo doesnt exis-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125254.jpg" style="width:100%"><br>
-
-###### 17. We stand with Ukraine! Wait Ive just been handed another message...<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125255.jpg" style="width:100%"><br>
-
-###### 18. Bold. Brave. Byou. So inspirational.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125256.jpg" style="width:100%"><br>
-
-###### 19. Ms. Eaglae was definitely a third grade teacher.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125257.jpg" style="width:100%"><br>
-
-###### 20. He is the gun. Ammo in my cuffs. Keys to my jelly donut.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125258.jpg" style="width:100%"><br>
-
-###### 21. Why is everything underlined? It makes it so much wors.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125259.jpg" style="width:100%"><br>
-
-###### 22. Theres just way too much to unpack here.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125261.jpg" style="width:100%"><br>
-
-###### 23. Cant wait to try this when Im absolutely hammered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125262.jpg" style="width:100%"><br>
-
-###### 24. Good luck with this one as well.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125263.jpg" style="width:100%"><br>
-
-###### 25. Id love to dream happy or whatnot but I cant even read your message.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125264.jpg" style="width:100%"><br>
-
-###### 26. Not til not. Were youre happy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125265.jpg" style="width:100%"><br>
-
-###### 27. Its soccer, so Im not sure why I expected anything different.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125266.jpg" style="width:100%"><br>
-
-###### 28. Looks good to me!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125267.jpg" style="width:100%"><br>
-
-## <a href="#12" id="11">25 Funny Headlines From Messed Up World </a><br>
+## <a href="#11" id="10">25 Funny Headlines From Messed Up World </a><br>
 
 ###### 1. Was the photo album made of steel? And why is she so happy about it? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
 
@@ -681,51 +629,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 25. The headline is true but the story wasnt exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream cant he. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
 
-## <a href="#13" id="12">20 People Who Have Horrible Bosses</a><br>
-
-###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
-
-###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
-
-###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
-
-###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
-
-###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
-
-###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
-
-“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
-
-###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
-
-###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
-
-###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
-
-###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
-
-###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
-
-###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
-
-###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
-
-###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
-
-###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
-
-###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
-
-###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
-
-###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
-
-###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
-
-###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
-
-## <a href="#14" id="13">Best Summer Camp Movies Ever</a><br>
+## <a href="#12" id="11">Best Summer Camp Movies Ever</a><br>
 
 ###### 1. Heavyweights - My personal favorite, and a Ben Stiller classic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
 
@@ -767,7 +671,7 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 20. Grown Ups - Say what you want about Adam Sandler movies, but this one has its bright spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
 
-## <a href="#15" id="14">37 Awesome Randoms to Save Your Day</a><br>
+## <a href="#13" id="12">37 Awesome Randoms to Save Your Day</a><br>
 
 ###### 1. Check. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126072.jpeg" style="width:100%"><br>
 
@@ -842,6 +746,102 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 ###### 36. Can we get a status update from the cameraman?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126107.jpg" style="width:100%"><br>
 
 ###### 37. Size matters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
+
+## <a href="#14" id="13">29 Fresh Memes That Deal in Dankness</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
+
+## <a href="#15" id="14">20 People Who Have Horrible Bosses</a><br>
+
+###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+
+###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+
+###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+
+###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+
+###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+
+###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
+
+“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+
+###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+
+###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+
+###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+
+###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+
+###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+
+###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+
+###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+
+###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+
+###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+
+###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+
+###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+
+###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+
+###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+
+###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
 
 ## <a href="#16" id="15">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
 
