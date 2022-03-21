@@ -1,105 +1,51 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/21/2022-11:11:31
+Last updated: 03/21/2022-12:11:31
 <br>
-## <a href="#2" id="1">Monday Morning Randomness: Mizuka Edition</a><br>
+## <a href="#2" id="1">22 Awesome Things That Are Cool to Look At </a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105503/87127414/87114983.jpg" style="width:100%"><br>
+###### 1. “There was a pink Tesla in my parking lot this morning.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105515/87127415/87114982.jpg" style="width:100%"><br>
+###### 2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105526/87127416/87114992.jpg" style="width:100%"><br>
+###### 3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105537/87127417/87115003.jpg" style="width:100%"><br>
+###### 4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105546/87127418/87114999.jpg" style="width:100%"><br>
+###### 5. “This pan matches my sink.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105548/87127419/87117254.png" style="width:100%"><br>
+###### 6. “These damaged phones on display next to a rollercoaster.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105558/87127420/87117260.jpg" style="width:100%"><br>
+###### 7. “This weird egg my chicken laid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105602/87127421/87117283.jpg" style="width:100%"><br>
+###### 8. $55,000 Gatling gun. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105609/87127422/87117288.jpg" style="width:100%"><br>
+###### 9. “My wife saw this tree growing entirely on a wall.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105613/87127423/87119551.jpg" style="width:100%"><br>
+###### 10. “My Venus Flytrap is flowering.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105620/87127424/87119552.jpg" style="width:100%"><br>
+###### 11. “One of our cups came printed inside out.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105624/87127425/87119577.jpg" style="width:100%"><br>
+###### 12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105631/87127426/87119576.jpg" style="width:100%"><br>
+###### 13. “My chickens greeting me when I come home from work.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105635/87127427/87121213.jpg" style="width:100%"><br>
+###### 14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105642/87127428/87121225.jpg" style="width:100%"><br>
+###### 15. “This ikea plant that looks like a creature.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105646/87127429/87121226.jpg" style="width:100%"><br>
+###### 16. “My flight had a window in the washroom.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105653/87127430/87121218.jpg" style="width:100%"><br>
+###### 17. “Found Diehard in a grocery store today.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105658/87127431/87121230.jpg" style="width:100%"><br>
+###### 18. “Three years worth of shark teeth found along the Florida coastline.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105704/87127432/87121994.jpg" style="width:100%"><br>
+###### 19. “A duckling that hatched 12 hours ago.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105709/87127433/87121995.jpg" style="width:100%"><br>
+###### 20. “All colors that the trim in my 100 year old house have been painted.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105715/87127434/87121996.jpg" style="width:100%"><br>
+###### 21. “These crisps tell you the name of the person who made them.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105720/87127435/87122010.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105726/87127436/87122013.png" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105732/87127437/87122014.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105738/87127438/87122015.jpg" style="width:100%"><br>
-
-###### 26. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105745/87127439/87126178.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105749/87127440/87126182.jpg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105756/87127441/87126186.jpg" style="width:100%"><br>
-
-###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105800/87127442/87126193.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105808/87127443/87126198.jpg" style="width:100%"><br>
-
-###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105811/87127444/87126194.jpg" style="width:100%"><br>
-
-###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105820/87127445/87126200.jpg" style="width:100%"><br>
-
-###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126835.jpg" style="width:100%"><br>
-
-###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126837.png" style="width:100%"><br>
-
-###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126838.jpg" style="width:100%"><br>
-
-###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126840.png" style="width:100%"><br>
-
-###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126845.jpg" style="width:100%"><br>
-
-###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126846.png" style="width:100%"><br>
-
-###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126847.jpg" style="width:100%"><br>
-
-###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126834.jpg" style="width:100%"><br>
-
-###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126850.jpg" style="width:100%"><br>
-
-###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126851.jpg" style="width:100%"><br>
-
-###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126852.jpg" style="width:100%"><br>
-
-###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126855.jpg" style="width:100%"><br>
-
-###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126856.jpg" style="width:100%"><br>
-
-###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126859.jpg" style="width:100%"><br>
-
-###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126857.jpg" style="width:100%"><br>
-
-###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126861.jpg" style="width:100%"><br>
-
-###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
+###### 22. “A dedicated bench for Jim, some miles into a hiking trail.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
 
 ## <a href="#3" id="2">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
 
@@ -295,109 +241,7 @@ Last updated: 03/21/2022-11:11:31
 
 ###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
-## <a href="#6" id="5">30 Things Found After A Really Long Time</a><br>
-
-###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
-
-###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
-
-###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
-
-###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
-
-###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
-
-###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
-
-###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
-
-###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
-
-###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
-
-###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
-
-###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
-
-###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
-
-###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
-
-###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
-
-###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
-
-###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
-
-###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
-
-###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
-
-###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
-
-###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
-
-###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
-
-###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
-
-###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
-
-###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
-
-## <a href="#7" id="6">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
-
-###### 1. Sometimes all you really need is just one person to care.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126722.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126727.jpg" style="width:100%"><br>
-
-###### 3. Such wise words from such a young child.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126726.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126729.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126730.jpg" style="width:100%"><br>
-
-###### 6. How could you not?! Those eyes!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126728.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126719.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126731.jpg" style="width:100%"><br>
-
-###### 9. We could all learn a lot from the unconditional love of dogs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126720.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126732.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126721.jpg" style="width:100%"><br>
-
-###### 12. It is the thought and effort that count with things like this, not the final appearance or how it turns out.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126724.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126733.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126734.jpg" style="width:100%"><br>
-
-###### 15. An incredible idea to help those without sight experience the beauty of things most of us take for granted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126725.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126735.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126736.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126737.jpg" style="width:100%"><br>
-
-###### 19. Some of mankinds most inspiring and feel good moments are when people come together to help others.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126723.jpg" style="width:100%"><br>
-
-## <a href="#8" id="7">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
+## <a href="#6" id="5">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
 
 ###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
 
@@ -459,51 +303,147 @@ Last updated: 03/21/2022-11:11:31
 
 ###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
 
-## <a href="#9" id="8">20 People Who Have Horrible Bosses</a><br>
+## <a href="#7" id="6">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
 
-###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+###### 1. Sometimes all you really need is just one person to care.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126722.jpg" style="width:100%"><br>
 
-###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126727.jpg" style="width:100%"><br>
 
-###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+###### 3. Such wise words from such a young child.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126726.jpg" style="width:100%"><br>
 
-###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126729.jpg" style="width:100%"><br>
 
-###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126730.jpg" style="width:100%"><br>
 
-###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
-
-“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+###### 6. How could you not?! Those eyes!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126728.jpg" style="width:100%"><br>
 
-###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126719.jpg" style="width:100%"><br>
 
-###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126731.jpg" style="width:100%"><br>
 
-###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+###### 9. We could all learn a lot from the unconditional love of dogs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126720.jpg" style="width:100%"><br>
 
-###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126732.jpg" style="width:100%"><br>
 
-###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126721.jpg" style="width:100%"><br>
 
-###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+###### 12. It is the thought and effort that count with things like this, not the final appearance or how it turns out.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126724.jpg" style="width:100%"><br>
 
-###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126733.jpg" style="width:100%"><br>
 
-###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126734.jpg" style="width:100%"><br>
 
-###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+###### 15. An incredible idea to help those without sight experience the beauty of things most of us take for granted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126725.jpg" style="width:100%"><br>
 
-###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126735.jpg" style="width:100%"><br>
 
-###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126736.jpg" style="width:100%"><br>
 
-###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126737.jpg" style="width:100%"><br>
 
-###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+###### 19. Some of mankinds most inspiring and feel good moments are when people come together to help others.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126723.jpg" style="width:100%"><br>
 
-###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
+## <a href="#8" id="7">Monday Morning Randomness: Mizuka Edition</a><br>
 
-## <a href="#10" id="9">24 People Who Are Just Plain Stupid</a><br>
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105503/87127414/87114983.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105515/87127415/87114982.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105526/87127416/87114992.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105537/87127417/87115003.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105546/87127418/87114999.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105548/87127419/87117254.png" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105558/87127420/87117260.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105602/87127421/87117283.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105609/87127422/87117288.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105613/87127423/87119551.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105620/87127424/87119552.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105624/87127425/87119577.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105631/87127426/87119576.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105635/87127427/87121213.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105642/87127428/87121225.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105646/87127429/87121226.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105653/87127430/87121218.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105658/87127431/87121230.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105704/87127432/87121994.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105709/87127433/87121995.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105715/87127434/87121996.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105720/87127435/87122010.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105726/87127436/87122013.png" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105732/87127437/87122014.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105738/87127438/87122015.jpg" style="width:100%"><br>
+
+###### 26. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105745/87127439/87126178.jpg" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105749/87127440/87126182.jpg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105756/87127441/87126186.jpg" style="width:100%"><br>
+
+###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105800/87127442/87126193.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105808/87127443/87126198.jpg" style="width:100%"><br>
+
+###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105811/87127444/87126194.jpg" style="width:100%"><br>
+
+###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105820/87127445/87126200.jpg" style="width:100%"><br>
+
+###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126835.jpg" style="width:100%"><br>
+
+###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126837.png" style="width:100%"><br>
+
+###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126838.jpg" style="width:100%"><br>
+
+###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126840.png" style="width:100%"><br>
+
+###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126845.jpg" style="width:100%"><br>
+
+###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126846.png" style="width:100%"><br>
+
+###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126847.jpg" style="width:100%"><br>
+
+###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126834.jpg" style="width:100%"><br>
+
+###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126850.jpg" style="width:100%"><br>
+
+###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126851.jpg" style="width:100%"><br>
+
+###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126852.jpg" style="width:100%"><br>
+
+###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126855.jpg" style="width:100%"><br>
+
+###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126856.jpg" style="width:100%"><br>
+
+###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126859.jpg" style="width:100%"><br>
+
+###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126857.jpg" style="width:100%"><br>
+
+###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126861.jpg" style="width:100%"><br>
+
+###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
+
+## <a href="#9" id="8">24 People Who Are Just Plain Stupid</a><br>
 
 ###### 1. I think just cut your losses and go to the ER.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
 
@@ -552,6 +492,68 @@ Last updated: 03/21/2022-11:11:31
 ###### 23. Never ever been whered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126065.jpg" style="width:100%"><br>
 
 ###### 24. I love swimming in the at land tick oat shin.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
+
+## <a href="#10" id="9">30 Things Found After A Really Long Time</a><br>
+
+###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
+
+###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
+
+###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
+
+###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
+
+###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
+
+###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
+
+###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
+
+###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
+
+###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
+
+###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
+
+###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
+
+###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
+
+###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
+
+###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
+
+###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
+
+###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
+
+###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
+
+###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
+
+###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
+
+###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
+
+###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
+
+###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
+
+###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
+
+###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
 
 ## <a href="#11" id="10">16 Fascinating Photos From Around The World</a><br>
 
@@ -748,4 +750,48 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 ###### 20. Wife had a pain in her shoulder and told me about it. Said it was uncomfortable but not a big deal. I told her to send her doctor a message. Went in for an appointment immediately. She had internal bleeding from an ectopic pregnancy and had about 12 oz of blood floating around in her.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126360.jpg" style="width:100%"><br>
 
 ###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
+
+## <a href="#14" id="13">20 People Who Have Horrible Bosses</a><br>
+
+###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+
+###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+
+###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+
+###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+
+###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+
+###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
+
+“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+
+###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+
+###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+
+###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+
+###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+
+###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+
+###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+
+###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+
+###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+
+###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+
+###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+
+###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+
+###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+
+###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+
+###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
 
