@@ -1,93 +1,101 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/21/2022-12:11:31
+Last updated: 03/21/2022-13:11:31
 <br>
-## <a href="#2" id="1">22 Awesome Things That Are Cool to Look At </a><br>
+## <a href="#2" id="1">25 Celebrities Who Got Away With Committing Crimes</a><br>
 
-###### 1. “There was a pink Tesla in my parking lot this morning.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
+###### 1. Tom Cruise uses slave labor provided by the Church of Scientology to take care of his personal needs and has never once faced legal repercussions for human trafficking nor wage theft.-u/hockey_stick<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128007.jpg" style="width:100%"><br>
 
-###### 2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
+###### 2. Didn’t that nut case Shia Ledouche beat the hell out of some dude for the hat he was wearing? I don’t think he served time for that.-u/tdmmnnl<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128008.jpg" style="width:100%"><br>
 
-###### 3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
+###### 3. Definitely the R. Kelly sh*t. The fact that when I was in secondary school there were jokes about him peeing on girls and it was just taken as banter. -u/notimeforhaste<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128009.jpg" style="width:100%"><br>
 
-###### 4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
+###### 4. Takeshi 69 doing some disgusting sh*t with a kid and somehow got out of prison soon after and going straight back to making music and even collaborating with other rappers.Yet the only problem I hear people say about him is he snitched. Gotta love the priorities -u/TheNameless00<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128010.jpg" style="width:100%"><br>
 
-###### 5. “This pan matches my sink.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
+###### 5. Marcos Alonso, Chelsea footballer - drove drunk, speeding, crashed and killed a young woman.He got a suspended sentence, a small fine, and a short driving ban.There’s a reason rival football fans chant “Marcos Alonso, you know what you did!” -u/qbnaith<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128011.jpg" style="width:100%"><br>
 
-###### 6. “These damaged phones on display next to a rollercoaster.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
+###### 6. Steven Tyler convinced the parents of a 14 year old groupie to sign over her guardian rights to him, essentially adopting her and then dating her at the same time. But wait, there’s more…he eventually gets her pregnant and then forces her to get an abortion.I don’t know if any criminal action was taken against him, but it’s still super messed up.-u/ohvaez<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128012.jpg" style="width:100%"><br>
 
-###### 7. “This weird egg my chicken laid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
+###### 7. Vince Neil from Motley Crue killing another musician by driving drunk and doing no jail time-u/Commercial_Reveal_14<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128013.jpg" style="width:100%"><br>
 
-###### 8. $55,000 Gatling gun. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
+###### 8. Bill Wyman from the Rolling Stones raping Mandy Smith when she was thirteen. He was forty-seven. He said in his biography - She took my breath away - she was a woman at thirteen.Piss-poor word choice.-u/ArthurPounder<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128014.jpg" style="width:100%"><br>
 
-###### 9. “My wife saw this tree growing entirely on a wall.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
+###### 9. Karl Malone impregnated a 13 year old at the age of 20. Also refused to pay 125 dollars a week in child support, though Im not sure if it was this child or from another woman but most people still just remember him as being the mailman from the 90s.-u/bshok<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128015.jpg" style="width:100%"><br>
 
-###### 10. “My Venus Flytrap is flowering.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
+###### 10. Chris Brown not only beat but strangled Rihanna while threatening to kill her and he still sells out entire stadiums.-u/puddlespuddled<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128016.jpg" style="width:100%"><br>
 
-###### 11. “One of our cups came printed inside out.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
+###### 11. Roman Polanski f*cking kids and not being allowed in the US due to an outstanding arrest warrant for f*cking kids? He was applauded at the academy a few years back.-u/Catdaddy33<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128017.jpg" style="width:100%"><br>
 
-###### 12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
+###### 12. Indian superstar Salman Khan has hit and run charges, killed endangered animals and has ruined the career of his ex girlfriends new boyfriend. He got acquitted from all the trials, makes one character cleansing film a year and people forget who he is.-u/BiggerButterBatter<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128018.jpeg" style="width:100%"><br>
 
-###### 13. “My chickens greeting me when I come home from work.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
+###### 13. Pro skater Danny Way helped beat a guy to death because the guy was gay.-u/coyotiii<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128019.jpg" style="width:100%"><br>
 
-###### 14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
+###### 14. James Charles solicited underage boys and tried to fly them out to meet him. He’s a predator but he is funny so it’s totally okay-u/comeformecuzimright<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128020.jpg" style="width:100%"><br>
 
-###### 15. “This ikea plant that looks like a creature.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
+###### 15. Teddy Kennedy drunk driving a young lass to her watery death at Chappaquiddick.-u/Successful_Gap8927<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128021.jpg" style="width:100%"><br>
 
-###### 16. “My flight had a window in the washroom.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
+###### 16. Kirk Douglas (probably) raped a 14-year-old Natalie Wood. Her mother apparently told her to hush it up. He also (possibly) murdered an old girlfriend. They never found her body.-u/KidsTheseDaysYknow<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128022.jpg" style="width:100%"><br>
 
-###### 17. “Found Diehard in a grocery store today.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
+###### 17. Dr. Dres history of abuse is often overlooked and people just admire his money.-u/Pontus_Pilates<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128023.jpg" style="width:100%"><br>
 
-###### 18. “Three years worth of shark teeth found along the Florida coastline.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
+###### 18. I dont think he was ever arrested but wasnt Paul Walker dating under-age girls for the better part of a decade? One was 100% confirmed.-u/Shroom4Yoshi<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128024.jpg" style="width:100%"><br>
 
-###### 19. “A duckling that hatched 12 hours ago.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
+###### 19. He has finally gotten the Me Too treatment, but Woody Allen had standing accusations of molesting his adopted child for 25 years, and went through a very public separation from Mia Farrow to marry her adopted daughter. These were ignored for a very long time because he was pumping out movies annually, and everyone loved him-u/missionman77<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128025.jpg" style="width:100%"><br>
 
-###### 20. “All colors that the trim in my 100 year old house have been painted.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
+###### 20. That piece of sh*t dog fighter Michael Vick.-u/Chiiaaa<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128026.jpg" style="width:100%"><br>
 
-###### 21. “These crisps tell you the name of the person who made them.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
+###### 21. Pretty sure Ben Roethlisberger raped a woman in a bathroom.-u/djjd1996<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128027.jpg" style="width:100%"><br>
 
-###### 22. “A dedicated bench for Jim, some miles into a hiking trail.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
+###### 22. Christopher Walken and Robert Wagners roles in the death of Natalie Wood-u/deathfaces<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128028.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
+###### 23. Theres the numerous musicians from the 1950s-1980s who knowingly raped young teenage girls. This isnt even a case of changing standards. Even back then some of what these guys were doing was thought badly of. Elvis was criticized for marrying a 14-year-old girl. Jimmy Page (Led Zeppelin) had a 14-year-old girl kidnapped and dated her for two years.-u/water_bottle1776<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128029.jpg" style="width:100%"><br>
 
-###### 1. Arnold Schwarzenegger gave us a rallying speech from the comfort of his own home. Oh yeah in his hot tub...smoking a cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126698.jpg" style="width:100%"><br>
+###### 24. Andy Dick regularly seems to sexually assault people on film. He also has a bunch of public urination situations including in front of little kids. Somehow that guy is still a free man and not behind bars.-u/Ganja420Preneur<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128030.jpg" style="width:100%"><br>
 
-###### 2. Kim Kardashian pleaded with the internet to social distance while her mother sat across the table from her. Keep in mind this was peak pandemic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126699.jpg" style="width:100%"><br>
+###### 25. Matthew Broderick killed someone in a car crash when he was being clearly negligent-u/sorryladiesiamtaken<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128031.jpg" style="width:100%"><br>
 
-###### 3. Priyanka Chopra was seemingly clapping for healthcare workers? But in the video she posted on Twitter, it just looks like she truly appreciates her massive yard.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126700.jpg" style="width:100%"><br>
+## <a href="#3" id="2">20 People Who Have Horrible Bosses</a><br>
 
-###### 4. Sam Smith had a mental breakdown, and took pictures of the process.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126702.jpg" style="width:100%"><br>
+###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
 
-###### 5. Jennifer Annistons dog was sad. He also has an entire mansion and gorgeous view.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126703.jpg" style="width:100%"><br>
+###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
 
-###### 6. Drake was clearly having a rough go of it. The rapper posted an Instagram story from his private basketball court. Life must be tough.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126701.jpg" style="width:100%"><br>
+###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
 
-###### 7. Katy Perry was trolled into thinking that people were singing her song Roar on their balconies in Italy. Lol it was all fake.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126704.jpg" style="width:100%"><br>
+###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
 
-###### 8. The cringiest video I may have ever seen in my life. Gal Gadot and multiple other wealthy celebs singing Imagine.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126706.jpg" style="width:100%"><br>
+###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
 
-###### 9. Vanessa Carlton poked fun at her own song.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126705.jpg" style="width:100%"><br>
+###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
+
+“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
 
-###### 10. Sia attempted to look like she was doing her part. Whatever that means.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126707.jpg" style="width:100%"><br>
+###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
 
-###### 11. Madonna fell for the same trolling as our girl Katy Perry. Its literally the same video.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126708.jpg" style="width:100%"><br>
+###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
 
-###### 12. Madonna took to the internet once again to sing a cover of her own song. The cover complains about the lack of pasta, and the frying of fish.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126710.jpg" style="width:100%"><br>
+###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
 
-###### 13. Jennifer Lopez showed us a glimpse of her weird house, and it looks like they just got filming Parasite. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126711.jpg" style="width:100%"><br>
+###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
 
-###### 14. Evangeline Lily posted some weird sh*t. None weirder than her hashtag Business as usual when bragging about her kids going to gymnastics.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126714.jpg" style="width:100%"><br>
+###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
 
-###### 15. JLO took a weird selfie in which there is clearly a screaming/struggling man in the background.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126712.jpg" style="width:100%"><br>
+###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
 
-###### 16. Madonna took a glamorous bath in her home, and lectured about how covid is a great equalizer.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126709.jpg" style="width:100%"><br>
+###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
 
-###### 17. Actress Jaime King shared a strange video that actually thanked the coronavirus for bringing humans closer together.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126713.jpg" style="width:100%"><br>
+###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
 
-###### 18. Producer and billionaire, David Geffen wished us all well from his yacht. So that was cool.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126715.jpg" style="width:100%"><br>
+###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
 
-###### 19. Vanessa Hudgens had some word vomit in an Instagram video that she posted. Ending the video with maybe I shouldnt be saying this.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033533/87126716/van.jpg" style="width:100%"><br>
+###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
 
-###### 20. Bette Midler clearly has never cooked or cleaned in her entire life.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/033649/87126717/midler.jpg" style="width:100%"><br>
+###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+
+###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+
+###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+
+###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
 
 ## <a href="#4" id="3">28 Signs That Are Confusing AF to Read</a><br>
 
@@ -241,67 +249,49 @@ Last updated: 03/21/2022-12:11:31
 
 ###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
-## <a href="#6" id="5">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
+## <a href="#6" id="5">22 People Having A Real Bad Day</a><br>
 
-###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
+###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
 
-###### 2. lol, ya right bro! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119464.jpg" style="width:100%"><br>
+###### 2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
 
-###### 3. Aww thats sweet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119467.jpeg" style="width:100%"><br>
+###### 3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
 
-###### 4. When you have to buy a van but you still want people to know your cool. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119468.jpg" style="width:100%"><br>
+###### 4. “My car did this on my way to school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
 
-###### 5. A truer statement has never been spoken. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119473.jpg" style="width:100%"><br>
+###### 5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
 
-###### 6. Hey bro, watch out those are mine! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119470.jpg" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
 
-###### 7. Yeah baby, dont even think about asking, what I know youre thinking of asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119471.jpg" style="width:100%"><br>
+###### 7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
 
-###### 8. Aww, what a cute couple! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119472.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
 
-###### 9. This is the future liberals want. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119474.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
 
-###### 10. A sure fire plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119475.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
 
-###### 11. Final Destination needs to come back! That sh*t rocked. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119476.jpg" style="width:100%"><br>
+###### 11. “It was just some fuckin butter dude relax.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
 
-###### 12. I mean, did you expect anything less? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119469.jpg" style="width:100%"><br>
+###### 12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119477.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
 
-###### 14. The more you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119478.jpg" style="width:100%"><br>
+###### 14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
 
-###### 15. Dont even think about asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119480.jpg" style="width:100%"><br>
+###### 15. “Door handle broke off at the gas station… With the car running.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
 
-###### 16. it was right in front of our faces the whole time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119481.jpg" style="width:100%"><br>
+###### 16. “Forgot a drinkable yogurt bottle in my car and it exploded..”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119483.jpg" style="width:100%"><br>
+###### 17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
 
-###### 18. Its go time baby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119484.jpg" style="width:100%"><br>
+###### 18. “A McLaren that got hit by a loose truck wheel.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
 
-###### 19. This is some next level trolling. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119485.jpg" style="width:100%"><br>
+###### 19. “My customer’s new RAV4 that she waited 3 months for…”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
 
-###### 20. If you know you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119488.jpg" style="width:100%"><br>
+###### 20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119489.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119491.png" style="width:100%"><br>
-
-###### 23. Found your moms street. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119492.jpg" style="width:100%"><br>
-
-###### 24. Sorry you little shit. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119493.png" style="width:100%"><br>
-
-###### 25. Id worship me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119496.jpg" style="width:100%"><br>
-
-###### 26. Shes up on that pole<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119497.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119498.jpg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119499.png" style="width:100%"><br>
-
-###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119500.png" style="width:100%"><br>
-
-###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
+###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
 ## <a href="#7" id="6">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
 
@@ -443,153 +433,7 @@ Last updated: 03/21/2022-12:11:31
 
 ###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
 
-## <a href="#9" id="8">24 People Who Are Just Plain Stupid</a><br>
-
-###### 1. I think just cut your losses and go to the ER.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
-
-###### 2. This person should not be a parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126040.jpg" style="width:100%"><br>
-
-###### 3. Strum bowling is my absolute favorite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126041.jpg" style="width:100%"><br>
-
-###### 4. I mean they cant talk - must not have brains. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126042.jpg" style="width:100%"><br>
-
-###### 5. 62 the grease. 63 the grease. 64 the grease! OMG!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126043.jpg" style="width:100%"><br>
-
-###### 6. Why though? We need answers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126039.jpg" style="width:100%"><br>
-
-###### 7. Wait what? Ohh, I see what youre trying to say.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126038.jpg" style="width:100%"><br>
-
-###### 8. Toilet trees is technically right when you say it out loud.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126045.jpg" style="width:100%"><br>
-
-###### 9. But like for how long? I have a very busy day today.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126046.jpg" style="width:100%"><br>
-
-###### 10. Yeah guys, come on. Is it really that hard?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126047.jpg" style="width:100%"><br>
-
-###### 11. I would go to church much more often if were lighting cannons there.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126051.jpg" style="width:100%"><br>
-
-###### 12. Build a-pond is definitely a new one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126052.jpg" style="width:100%"><br>
-
-###### 13. This seems a bit racist.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126048.jpg" style="width:100%"><br>
-
-###### 14. Sally Manilla sounds like a stripper name.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126053.jpg" style="width:100%"><br>
-
-###### 15. Mmm poop puree. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126055.jpg" style="width:100%"><br>
-
-###### 16. Oof. So close, but no cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126056.jpg" style="width:100%"><br>
-
-###### 17. Thats not a branch.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126058.jpg" style="width:100%"><br>
-
-###### 18. Speed dominator sounds so much more bada**<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126059.jpg" style="width:100%"><br>
-
-###### 19. Im so confused by this.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126060.jpg" style="width:100%"><br>
-
-###### 20. Finishing off those aarons one by one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126062.jpg" style="width:100%"><br>
-
-###### 21. Did someone from Georgia write this?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126063.jpg" style="width:100%"><br>
-
-###### 22. GENTLEMEN, STARCH YOUR ENGINES.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126064.jpg" style="width:100%"><br>
-
-###### 23. Never ever been whered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126065.jpg" style="width:100%"><br>
-
-###### 24. I love swimming in the at land tick oat shin.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
-
-## <a href="#10" id="9">30 Things Found After A Really Long Time</a><br>
-
-###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
-
-###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
-
-###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
-
-###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
-
-###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
-
-###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
-
-###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
-
-###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
-
-###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
-
-###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
-
-###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
-
-###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
-
-###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
-
-###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
-
-###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
-
-###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
-
-###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
-
-###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
-
-###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
-
-###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
-
-###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
-
-###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
-
-###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
-
-###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
-
-## <a href="#11" id="10">16 Fascinating Photos From Around The World</a><br>
-
-###### 1. Ukrainian soldier captured Russian spetsnaz tseltium shield<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124326.jpg" style="width:100%"><br>
-
-###### 2. Ukraine’s first International legion of territorial defence forces– fighters from the US, Mexico, India, Sweden, and more<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124325.png" style="width:100%"><br>
-
-###### 3. In 1867, the United States purchased Alaska from the Russian Empire using this check. The US paid $7.2 million (roughly $133 million in 2020 USD) for nearly 365 million acres of land. That’s less than 2 cents per acre in 1867, or about $0.37 per acre in 2020 USD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124327.jpg" style="width:100%"><br>
-
-###### 4. This is a torii gate made of speakers in Kamiyama, Tokushima. You can plug in your phone and play anything you want.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124328.jpg" style="width:100%"><br>
-
-###### 5. During Russian Channel 1’s evening news broadcast, a woman ran onto the set with a sign: “No war…Don’t believe the propaganda. They’re lying to you here.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124329.jpg" style="width:100%"><br>
-
-###### 6. The largest sailing yacht in the world has been confiscated in Spain” Officials have taken Russian oligarch Andrey Melnichenko’s yacht worth over 500mil euros due to sanctions<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124330.jpg" style="width:100%"><br>
-
-###### 7. Overnight bus in Japan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124331.jpg" style="width:100%"><br>
-
-###### 8. Al Capone’s cell in Eastern State Penitentiary<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124332.jpg" style="width:100%"><br>
-
-###### 9. Aleksander Doba. He has kayaked solo across the Atlantic 3 times, most recently in 2017 at the age of 70.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124333.jpg" style="width:100%"><br>
-
-###### 10. Krishna Butterball is a massive 250 ton and 20ft high rock boulder on a slippery slope of a hill on less than 4ft base didn’t rolled downhill and is in this position for more than 2000 years<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124334.jpg" style="width:100%"><br>
-
-###### 11. These benches are reversible, so you can choose to look at people, or boats.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124335.png" style="width:100%"><br>
-
-###### 12. Vilnius has put up a statue that offers a “portal” to the Polish city of Lublin, allowing people to see each other in real time<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124336.jpg" style="width:100%"><br>
-
-###### 13. In France, Peyo, a beautiful 15-year-old stallion, often comes to comfort and soothe terminally ill patients at the Techer Hospital in Calais. The horse always chooses which patient he wants to see, kicking his hoof outside the door<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124337.jpg" style="width:100%"><br>
-
-###### 14. Japan’s “Killing Stone” Breaks open after 1000 years, Legend has it the demon trapped inside is now free<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124338.jpg" style="width:100%"><br>
-
-###### 15. Price of full tank of gasoline as a percentage of average monthly net salary across the world<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124339.jpg" style="width:100%"><br>
-
-###### 16. Nice find Igor!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124340.jpg" style="width:100%"><br>
-
-## <a href="#12" id="11">50 Relatable Work Memes that Ring True</a><br>
+## <a href="#9" id="8">50 Relatable Work Memes that Ring True</a><br>
 
 ###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/015023/87127111/86255097.jpg" style="width:100%"><br>
 
@@ -691,7 +535,131 @@ Last updated: 03/21/2022-12:11:31
 
 ###### 50. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125632.jpg" style="width:100%"><br>
 
-## <a href="#13" id="12">21 Health Signs Nobody Should Ignore</a><br>
+## <a href="#10" id="9">30 Things Found After A Really Long Time</a><br>
+
+###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
+
+###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
+
+###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
+
+###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
+
+###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
+
+###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
+
+###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
+
+###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
+
+###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
+
+###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
+
+###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
+
+###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
+
+###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
+
+###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
+
+###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
+
+###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
+
+###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
+
+###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
+
+###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
+
+###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
+
+###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
+
+###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
+
+###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
+
+###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
+
+## <a href="#11" id="10">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
+
+###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
+
+###### 2. lol, ya right bro! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119464.jpg" style="width:100%"><br>
+
+###### 3. Aww thats sweet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119467.jpeg" style="width:100%"><br>
+
+###### 4. When you have to buy a van but you still want people to know your cool. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119468.jpg" style="width:100%"><br>
+
+###### 5. A truer statement has never been spoken. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119473.jpg" style="width:100%"><br>
+
+###### 6. Hey bro, watch out those are mine! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119470.jpg" style="width:100%"><br>
+
+###### 7. Yeah baby, dont even think about asking, what I know youre thinking of asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119471.jpg" style="width:100%"><br>
+
+###### 8. Aww, what a cute couple! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119472.jpg" style="width:100%"><br>
+
+###### 9. This is the future liberals want. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119474.jpg" style="width:100%"><br>
+
+###### 10. A sure fire plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119475.jpg" style="width:100%"><br>
+
+###### 11. Final Destination needs to come back! That sh*t rocked. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119476.jpg" style="width:100%"><br>
+
+###### 12. I mean, did you expect anything less? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119469.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119477.jpg" style="width:100%"><br>
+
+###### 14. The more you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119478.jpg" style="width:100%"><br>
+
+###### 15. Dont even think about asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119480.jpg" style="width:100%"><br>
+
+###### 16. it was right in front of our faces the whole time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119481.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119483.jpg" style="width:100%"><br>
+
+###### 18. Its go time baby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119484.jpg" style="width:100%"><br>
+
+###### 19. This is some next level trolling. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119485.jpg" style="width:100%"><br>
+
+###### 20. If you know you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119488.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119489.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119491.png" style="width:100%"><br>
+
+###### 23. Found your moms street. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119492.jpg" style="width:100%"><br>
+
+###### 24. Sorry you little shit. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119493.png" style="width:100%"><br>
+
+###### 25. Id worship me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119496.jpg" style="width:100%"><br>
+
+###### 26. Shes up on that pole<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119497.jpg" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119498.jpg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119499.png" style="width:100%"><br>
+
+###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119500.png" style="width:100%"><br>
+
+###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
+
+## <a href="#12" id="11">21 Health Signs Nobody Should Ignore</a><br>
 
 ###### 1. When youre dehydrated and still throwing up<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126355.jpg" style="width:100%"><br>
 
@@ -751,47 +719,87 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
 
-## <a href="#14" id="13">20 People Who Have Horrible Bosses</a><br>
+## <a href="#13" id="12">16 Fascinating Photos From Around The World</a><br>
 
-###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+###### 1. Ukrainian soldier captured Russian spetsnaz tseltium shield<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124326.jpg" style="width:100%"><br>
 
-###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+###### 2. Ukraine’s first International legion of territorial defence forces– fighters from the US, Mexico, India, Sweden, and more<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124325.png" style="width:100%"><br>
 
-###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+###### 3. In 1867, the United States purchased Alaska from the Russian Empire using this check. The US paid $7.2 million (roughly $133 million in 2020 USD) for nearly 365 million acres of land. That’s less than 2 cents per acre in 1867, or about $0.37 per acre in 2020 USD<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124327.jpg" style="width:100%"><br>
 
-###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+###### 4. This is a torii gate made of speakers in Kamiyama, Tokushima. You can plug in your phone and play anything you want.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124328.jpg" style="width:100%"><br>
 
-###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+###### 5. During Russian Channel 1’s evening news broadcast, a woman ran onto the set with a sign: “No war…Don’t believe the propaganda. They’re lying to you here.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124329.jpg" style="width:100%"><br>
 
-###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
-
-“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+###### 6. The largest sailing yacht in the world has been confiscated in Spain” Officials have taken Russian oligarch Andrey Melnichenko’s yacht worth over 500mil euros due to sanctions<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124330.jpg" style="width:100%"><br>
 
-###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+###### 7. Overnight bus in Japan<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124331.jpg" style="width:100%"><br>
 
-###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+###### 8. Al Capone’s cell in Eastern State Penitentiary<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124332.jpg" style="width:100%"><br>
 
-###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+###### 9. Aleksander Doba. He has kayaked solo across the Atlantic 3 times, most recently in 2017 at the age of 70.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124333.jpg" style="width:100%"><br>
 
-###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+###### 10. Krishna Butterball is a massive 250 ton and 20ft high rock boulder on a slippery slope of a hill on less than 4ft base didn’t rolled downhill and is in this position for more than 2000 years<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124334.jpg" style="width:100%"><br>
 
-###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+###### 11. These benches are reversible, so you can choose to look at people, or boats.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124335.png" style="width:100%"><br>
 
-###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+###### 12. Vilnius has put up a statue that offers a “portal” to the Polish city of Lublin, allowing people to see each other in real time<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124336.jpg" style="width:100%"><br>
 
-###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+###### 13. In France, Peyo, a beautiful 15-year-old stallion, often comes to comfort and soothe terminally ill patients at the Techer Hospital in Calais. The horse always chooses which patient he wants to see, kicking his hoof outside the door<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124337.jpg" style="width:100%"><br>
 
-###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+###### 14. Japan’s “Killing Stone” Breaks open after 1000 years, Legend has it the demon trapped inside is now free<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124338.jpg" style="width:100%"><br>
 
-###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+###### 15. Price of full tank of gasoline as a percentage of average monthly net salary across the world<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124339.jpg" style="width:100%"><br>
 
-###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+###### 16. Nice find Igor!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124340.jpg" style="width:100%"><br>
 
-###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+## <a href="#14" id="13">24 People Who Are Just Plain Stupid</a><br>
 
-###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+###### 1. I think just cut your losses and go to the ER.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126054.jpg" style="width:100%"><br>
 
-###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+###### 2. This person should not be a parent.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126040.jpg" style="width:100%"><br>
 
-###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
+###### 3. Strum bowling is my absolute favorite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126041.jpg" style="width:100%"><br>
+
+###### 4. I mean they cant talk - must not have brains. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126042.jpg" style="width:100%"><br>
+
+###### 5. 62 the grease. 63 the grease. 64 the grease! OMG!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126043.jpg" style="width:100%"><br>
+
+###### 6. Why though? We need answers.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126039.jpg" style="width:100%"><br>
+
+###### 7. Wait what? Ohh, I see what youre trying to say.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126038.jpg" style="width:100%"><br>
+
+###### 8. Toilet trees is technically right when you say it out loud.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126045.jpg" style="width:100%"><br>
+
+###### 9. But like for how long? I have a very busy day today.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126046.jpg" style="width:100%"><br>
+
+###### 10. Yeah guys, come on. Is it really that hard?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126047.jpg" style="width:100%"><br>
+
+###### 11. I would go to church much more often if were lighting cannons there.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126051.jpg" style="width:100%"><br>
+
+###### 12. Build a-pond is definitely a new one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126052.jpg" style="width:100%"><br>
+
+###### 13. This seems a bit racist.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126048.jpg" style="width:100%"><br>
+
+###### 14. Sally Manilla sounds like a stripper name.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126053.jpg" style="width:100%"><br>
+
+###### 15. Mmm poop puree. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126055.jpg" style="width:100%"><br>
+
+###### 16. Oof. So close, but no cigar.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126056.jpg" style="width:100%"><br>
+
+###### 17. Thats not a branch.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126058.jpg" style="width:100%"><br>
+
+###### 18. Speed dominator sounds so much more bada**<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126059.jpg" style="width:100%"><br>
+
+###### 19. Im so confused by this.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126060.jpg" style="width:100%"><br>
+
+###### 20. Finishing off those aarons one by one.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126062.jpg" style="width:100%"><br>
+
+###### 21. Did someone from Georgia write this?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126063.jpg" style="width:100%"><br>
+
+###### 22. GENTLEMEN, STARCH YOUR ENGINES.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126064.jpg" style="width:100%"><br>
+
+###### 23. Never ever been whered.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126065.jpg" style="width:100%"><br>
+
+###### 24. I love swimming in the at land tick oat shin.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126067.jpg" style="width:100%"><br>
 
