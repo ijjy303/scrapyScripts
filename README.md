@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/20/2022-23:11:31
+Last updated: 03/21/2022-00:11:31
 <br>
 ## <a href="#2" id="1">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
 
@@ -63,59 +63,47 @@ Last updated: 03/20/2022-23:11:31
 
 ###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">27 Moments People Proved Insanely Unlucky</a><br>
+## <a href="#3" id="2">Best Summer Camp Movies Ever</a><br>
 
-###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
+###### 1. Heavyweights - My personal favorite, and a Ben Stiller classic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
 
-###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
+###### 2. Ernest Goes to Camp - Jim Varney could do no wrong.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126512.jpg" style="width:100%"><br>
 
-###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
+###### 3. Addams Family Values - Pugsley and Wednesday get sent to summer camp and dont try to fit in at all.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126510.jpg" style="width:100%"><br>
 
-###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
+###### 4. Friday the 13th - Warning to all camp counselors; dont party, have sex, or do drugs!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126513.jpg" style="width:100%"><br>
 
-###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
+###### 5. Race for Your Life, Charlie Brown - The gang goes camping and madness ensues.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126509.jpg" style="width:100%"><br>
 
-###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
+###### 6. Cabin Fever - If you like flesh-eating bacteria, youre gonna LOVE Cabin Fever.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126520.jpg" style="width:100%"><br>
 
-###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
+###### 7. Wet Hot American Summer - One of Paul Rudds most iconic roles. Watch the original.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126514.jpg" style="width:100%"><br>
 
-###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
+###### 8. Fear Street Part 2: 1978 - This netflix trilogy takes the summer camp horror flick and flips it on its head.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126516.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
+###### 9. It Takes Two - One of the first movies on this list about twins at summer camp.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126511.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
+###### 10. The Final Girls - Another incredible contemporary horror movie, with a fun twist on the summer camp slasher.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126521.jpg" style="width:100%"><br>
 
-###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
+###### 11. The Parent Trap - Obviously if this isnt on your list, GTFO.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126522.jpg" style="width:100%"><br>
 
-###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
+###### 12. The Cabin in the Woods - This movie makes fun of itself so well. Its arguably the perfect horror film.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126523.jpg" style="width:100%"><br>
 
-###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
+###### 13. Camp Cucamonga - This made for TV movie stars Jennifer Aniston and Jaleel White, because of course it does. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126518.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
+###### 14. The Great Outdoors - John Candy is an absolute legend in this movie.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126517.jpg" style="width:100%"><br>
 
-###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
+###### 15. Camp Rock - The iconic Disney channel movie that gave us The Jo-Bros.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126519.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
+###### 16. American Pie: Band Camp - Not as terrible as it might seem. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126515.jpg" style="width:100%"><br>
 
-###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
+###### 17. Dirty Dancing - Not a childrens movie by any means.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/103405/87126529/dancing.jpg" style="width:100%"><br>
 
-###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
+###### 18. Camp Nowhere - Nostalgia overload. This film follows a bunch of kids who create their OWN summer camp. No adults allowed!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126524.jpg" style="width:100%"><br>
 
-###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
+###### 19. Moonrise Kingdom - Gotta get a little artsy sometimes. Bill Murray stars in this charming Wes Anderson film. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126526.jpg" style="width:100%"><br>
 
-###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
-
-###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
-
-###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
+###### 20. Grown Ups - Say what you want about Adam Sandler movies, but this one has its bright spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
 
 ## <a href="#4" id="3">16 Fascinating Photos From Around The World</a><br>
 
@@ -577,99 +565,101 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
-## <a href="#11" id="10">25 Funny Headlines From Messed Up World </a><br>
+## <a href="#11" id="10">29 Fresh Memes That Deal in Dankness</a><br>
 
-###### 1. Was the photo album made of steel? And why is she so happy about it? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
 
-###### 2. Prove it. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124017.jpg" style="width:100%"><br>
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
 
-###### 3. This actually sounds kind of nice. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124018.jpg" style="width:100%"><br>
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
 
-###### 4. Now thats a good idea if you ask me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124020.jpg" style="width:100%"><br>
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
 
-###### 5. This cant be real right? Oh sweet summer child, you have no idea.  <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124029.jpg" style="width:100%"><br>
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
 
-###### 6. That will show Putin. Pack it up boys, weve done it! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124022.jpg" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
 
-###### 7. In his defense he was inside of a Taco Bell. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124023.jpg" style="width:100%"><br>
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
 
-###### 8. How does someone get shot by an unarmed man? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124025.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
 
-###### 9. This guy is living out his childhood dreams !<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124021.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
 
-###### 10. Oh but you have heard of me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124027.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124028.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
 
-###### 12. Live life as if you just want to visit your grandma. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124030.jpg" style="width:100%"><br>
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
 
-###### 13. Oh you dont say? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124031.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
 
-###### 14. Man this rocks! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124032.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
 
-###### 15. Actually yes, thats exactly what Im going to do.  - The Stabber <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124033.jpg" style="width:100%"><br>
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124034.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124035.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124036.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
 
-###### 19. Rawr. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124037.jpg" style="width:100%"><br>
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
 
-###### 20. Oh man this dude must have a bad time on dates. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124038.jpg" style="width:100%"><br>
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124040.jpg" style="width:100%"><br>
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124041.jpg" style="width:100%"><br>
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124042.jpg" style="width:100%"><br>
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
 
-###### 24. How does this happen? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124043.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
 
-###### 25. The headline is true but the story wasnt exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream cant he. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
 
-## <a href="#12" id="11">Best Summer Camp Movies Ever</a><br>
+## <a href="#12" id="11">20 People Who Have Horrible Bosses</a><br>
 
-###### 1. Heavyweights - My personal favorite, and a Ben Stiller classic. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126525.jpg" style="width:100%"><br>
+###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
 
-###### 2. Ernest Goes to Camp - Jim Varney could do no wrong.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126512.jpg" style="width:100%"><br>
+###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
 
-###### 3. Addams Family Values - Pugsley and Wednesday get sent to summer camp and dont try to fit in at all.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126510.jpg" style="width:100%"><br>
+###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
 
-###### 4. Friday the 13th - Warning to all camp counselors; dont party, have sex, or do drugs!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126513.jpg" style="width:100%"><br>
+###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
 
-###### 5. Race for Your Life, Charlie Brown - The gang goes camping and madness ensues.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126509.jpg" style="width:100%"><br>
+###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
 
-###### 6. Cabin Fever - If you like flesh-eating bacteria, youre gonna LOVE Cabin Fever.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126520.jpg" style="width:100%"><br>
+###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
+
+“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
 
-###### 7. Wet Hot American Summer - One of Paul Rudds most iconic roles. Watch the original.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126514.jpg" style="width:100%"><br>
+###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
 
-###### 8. Fear Street Part 2: 1978 - This netflix trilogy takes the summer camp horror flick and flips it on its head.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126516.jpg" style="width:100%"><br>
+###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
 
-###### 9. It Takes Two - One of the first movies on this list about twins at summer camp.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126511.jpg" style="width:100%"><br>
+###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
 
-###### 10. The Final Girls - Another incredible contemporary horror movie, with a fun twist on the summer camp slasher.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126521.jpg" style="width:100%"><br>
+###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
 
-###### 11. The Parent Trap - Obviously if this isnt on your list, GTFO.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126522.jpg" style="width:100%"><br>
+###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
 
-###### 12. The Cabin in the Woods - This movie makes fun of itself so well. Its arguably the perfect horror film.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126523.jpg" style="width:100%"><br>
+###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
 
-###### 13. Camp Cucamonga - This made for TV movie stars Jennifer Aniston and Jaleel White, because of course it does. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126518.jpg" style="width:100%"><br>
+###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
 
-###### 14. The Great Outdoors - John Candy is an absolute legend in this movie.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126517.jpg" style="width:100%"><br>
+###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
 
-###### 15. Camp Rock - The iconic Disney channel movie that gave us The Jo-Bros.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126519.jpg" style="width:100%"><br>
+###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
 
-###### 16. American Pie: Band Camp - Not as terrible as it might seem. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126515.jpg" style="width:100%"><br>
+###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
 
-###### 17. Dirty Dancing - Not a childrens movie by any means.<br><img src="https://cdn.ebaumsworld.com/2022/03/18/103405/87126529/dancing.jpg" style="width:100%"><br>
+###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
 
-###### 18. Camp Nowhere - Nostalgia overload. This film follows a bunch of kids who create their OWN summer camp. No adults allowed!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126524.jpg" style="width:100%"><br>
+###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
 
-###### 19. Moonrise Kingdom - Gotta get a little artsy sometimes. Bill Murray stars in this charming Wes Anderson film. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126526.jpg" style="width:100%"><br>
+###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
 
-###### 20. Grown Ups - Say what you want about Adam Sandler movies, but this one has its bright spots.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87126527.jpg" style="width:100%"><br>
+###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
 
 ## <a href="#13" id="12">37 Awesome Randoms to Save Your Day</a><br>
 
@@ -747,101 +737,111 @@ There are a lot of things it could be, but gastroenteritis is probably not it, a
 
 ###### 37. Size matters. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87126108.gif" style="width:100%"><br>
 
-## <a href="#14" id="13">29 Fresh Memes That Deal in Dankness</a><br>
+## <a href="#14" id="13">27 Moments People Proved Insanely Unlucky</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125420.jpg" style="width:100%"><br>
+###### 1. The worst part of this is actually the dust. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125479.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125430.jpg" style="width:100%"><br>
+###### 2. Well, that sucks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125480.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125433.jpg" style="width:100%"><br>
+###### 3. A tight squeeze that made everybodys day a helluva lot longer. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125481.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125418.jpg" style="width:100%"><br>
+###### 4. 0/10, would not recommend. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125482.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125417.jpg" style="width:100%"><br>
+###### 5. If only this could have been avoided!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125483.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125419.jpg" style="width:100%"><br>
+###### 6. A flooded house also catches fire in Australia. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125484.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125431.jpg" style="width:100%"><br>
+###### 7. How to add a nice, smokey flavor. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125486.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125422.jpg" style="width:100%"><br>
+###### 8. Location, location, location. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125487.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125424.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125488.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125427.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125489.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125428.jpg" style="width:100%"><br>
+###### 11. They never saw it coming. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125490.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125429.png" style="width:100%"><br>
+###### 12.  An uninvited guest drives up. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125491.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125432.png" style="width:100%"><br>
+###### 13. A truck gets swallowed by a flood. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125492.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125435.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125493.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125436.jpg" style="width:100%"><br>
+###### 15. A bus gets Winnie-the-Poohed <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125494.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125426.png" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125495.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125438.jpg" style="width:100%"><br>
+###### 17. Few things rearrange your schedule quicker than an unexpected massive sinkhole. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125496.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125439.jpg" style="width:100%"><br>
+###### 18. Just because you paranoid doesnt mean nobodys out to get you. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125497.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125440.png" style="width:100%"><br>
+###### 19. A truck space gets an unexpected paint job. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125498.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125416.jpg" style="width:100%"><br>
+###### 20. A slippery slope attacks. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125499.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125441.jpg" style="width:100%"><br>
+###### 21. A car trains for Ninja Warrior. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125500.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125442.jpg" style="width:100%"><br>
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125501.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125437.jpg" style="width:100%"><br>
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125502.jpg" style="width:100%"><br>
 
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125434.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125503.jpg" style="width:100%"><br>
 
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87125443.jpg" style="width:100%"><br>
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125504.jpg" style="width:100%"><br>
 
-## <a href="#15" id="14">20 People Who Have Horrible Bosses</a><br>
+###### 26. A randomly generated staircase. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87125505.jpg" style="width:100%"><br>
 
-###### 1. “My employer sent me this...”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124189.jpg" style="width:100%"><br>
+## <a href="#15" id="14">25 Funny Headlines From Messed Up World </a><br>
 
-###### 2. “Meals (1 per person) we get at my job for shifts that can last up to 12 hours”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124190.jpg" style="width:100%"><br>
+###### 1. Was the photo album made of steel? And why is she so happy about it? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124016.jpg" style="width:100%"><br>
 
-###### 3. “My ‘boss’ has no regard for a customer’s expensive chair even after I told her how much it’s worth.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124191.jpg" style="width:100%"><br>
+###### 2. Prove it. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124017.jpg" style="width:100%"><br>
 
-###### 4. “This burrito at my job is $5.54 and we’re not allowed to leave to get food.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124192.jpg" style="width:100%"><br>
+###### 3. This actually sounds kind of nice. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124018.jpg" style="width:100%"><br>
 
-###### 5. “This is what I got for working one year at my job. They spelled my last name wrong... pathetic.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124193.jpg" style="width:100%"><br>
+###### 4. Now thats a good idea if you ask me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124020.jpg" style="width:100%"><br>
 
-###### 6. “When I resigned, my boss told people to not get me anything for my farewell.”
-
-“Put in my 2 weeks, trained a person, left notes and instructions, planned events for the whole year... and my boss told people to not have a goodbye lunch and to not buy anything. Now they’re starting to see very small bits of why I can’t stand him.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124194.jpg" style="width:100%"><br>
+###### 5. This cant be real right? Oh sweet summer child, you have no idea.  <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124029.jpg" style="width:100%"><br>
 
-###### 7. “Called my boss and said, ’How do you expect me to work like this.’ She said ’Try your best.’ I’m a barista.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124195.jpg" style="width:100%"><br>
+###### 6. That will show Putin. Pack it up boys, weve done it! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124022.jpg" style="width:100%"><br>
 
-###### 8. “A customer broke this, and I have to put it back like nothing happened because my boss will make me pay for it.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124196.jpg" style="width:100%"><br>
+###### 7. In his defense he was inside of a Taco Bell. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124023.jpg" style="width:100%"><br>
 
-###### 9. “This was the only fire alarm system we had in one of the old buildings I worked in.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124197.jpg" style="width:100%"><br>
+###### 8. How does someone get shot by an unarmed man? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124025.jpg" style="width:100%"><br>
 
-###### 10. “Thanksgiving gift from my employer. Not even joking.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124198.jpg" style="width:100%"><br>
+###### 9. This guy is living out his childhood dreams !<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124021.jpg" style="width:100%"><br>
 
-###### 11. “My employer contracted out some cable work. This was the result.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124199.jpg" style="width:100%"><br>
+###### 10. Oh but you have heard of me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124027.jpg" style="width:100%"><br>
 
-###### 12. “How my mom’s employer shipped her $2,000 work laptop”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124200.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124028.jpg" style="width:100%"><br>
 
-###### 13. “We had a birthday at the office today and our boss insisted on cutting the cake.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124201.jpg" style="width:100%"><br>
+###### 12. Live life as if you just want to visit your grandma. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124030.jpg" style="width:100%"><br>
 
-###### 14. “I am an HR assistant and forced to use paper to track my working hours instead of doing it on Excel or with an HR software.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124202.jpg" style="width:100%"><br>
+###### 13. Oh you dont say? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124031.jpg" style="width:100%"><br>
 
-###### 15. “This keyboard at my place of employment. It’s covered with aluminum dust.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124203.jpg" style="width:100%"><br>
+###### 14. Man this rocks! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124032.jpg" style="width:100%"><br>
 
-###### 16. “My boss has turned our ’break room’ into a workshop.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124204.jpg" style="width:100%"><br>
+###### 15. Actually yes, thats exactly what Im going to do.  - The Stabber <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124033.jpg" style="width:100%"><br>
 
-###### 17. “My boss insists we add this to the bleach for cleaning, absolutely refuses to buy more and continues to dilute what little is left.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124205.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124034.jpg" style="width:100%"><br>
 
-###### 18. “I told my boss I was gonna get my arm checked out at 3:30 (the time we go home) now the whiteboard says, ’6-6 no exceptions’”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124206.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124035.jpg" style="width:100%"><br>
 
-###### 19. “4 PM on a Friday and my boss handed me a stack of invoices to make sure they have been paid. That’s not even my job!”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124207.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124036.jpg" style="width:100%"><br>
 
-###### 20. When the boss leaves, it’s time to celebrate!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124208.jpg" style="width:100%"><br>
+###### 19. Rawr. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124037.jpg" style="width:100%"><br>
+
+###### 20. Oh man this dude must have a bad time on dates. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124038.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124040.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124041.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124042.jpg" style="width:100%"><br>
+
+###### 24. How does this happen? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124043.jpg" style="width:100%"><br>
+
+###### 25. The headline is true but the story wasnt exactly as cut and dry. Nobody was asking for litter boxes to use, it was simply a statement made by the school, but hey a guy can dream cant he. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87124044.jpg" style="width:100%"><br>
 
 ## <a href="#16" id="15">20 Celebs Who Gave Us Cringey Content during the Pandemic</a><br>
 
