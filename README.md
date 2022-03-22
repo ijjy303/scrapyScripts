@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/22/2022-00:11:31
+Last updated: 03/22/2022-01:11:31
 <br>
 ## <a href="#2" id="1">22 People Whose Day's Going Worse Than Yours</a><br>
 
@@ -45,101 +45,7 @@ Last updated: 03/22/2022-00:11:31
 
 ###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">46 Peculiar Pics to Please Your Peepers</a><br>
-
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126745.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126747.jpg" style="width:100%"><br>
-
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126748.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126749.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126752.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126755.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126756.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126759.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126760.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126761.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126762.jpg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126766.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126767.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126769.jpg" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126773.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126774.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126775.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126777.jpg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126778.jpg" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126779.jpg" style="width:100%"><br>
-
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126782.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126783.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126785.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126786.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126787.jpg" style="width:100%"><br>
-
-###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126788.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126792.jpg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014128/87127092/87125190.jpg" style="width:100%"><br>
-
-###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014129/87127093/87125189.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014139/87127094/87125198.jpg" style="width:100%"><br>
-
-###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014140/87127095/87125178.jpg" style="width:100%"><br>
-
-###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014151/87127096/87125200.jpg" style="width:100%"><br>
-
-###### 33. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014202/87127097/87125203.jpg" style="width:100%"><br>
-
-###### 34. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014215/87127098/87125967.jpg" style="width:100%"><br>
-
-###### 35. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014222/87127099/87125216.jpg" style="width:100%"><br>
-
-###### 36. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014229/87127100/87125974.jpg" style="width:100%"><br>
-
-###### 37. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014231/87127101/87125980.jpg" style="width:100%"><br>
-
-###### 38. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014236/87127102/87125991.jpg" style="width:100%"><br>
-
-###### 39. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014242/87127103/87125994.jpg" style="width:100%"><br>
-
-###### 40. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014247/87127104/87126363.jpg" style="width:100%"><br>
-
-###### 41. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014253/87127105/87126366.jpg" style="width:100%"><br>
-
-###### 42. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014258/87127106/87126374.jpg" style="width:100%"><br>
-
-###### 43. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014304/87127107/87126375.jpg" style="width:100%"><br>
-
-###### 44. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014309/87127108/87126379.jpg" style="width:100%"><br>
-
-###### 45. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014315/87127109/87126395.jpg" style="width:100%"><br>
-
-###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
-
-## <a href="#4" id="3">28 Signs That Are Confusing AF to Read</a><br>
+## <a href="#3" id="2">28 Signs That Are Confusing AF to Read</a><br>
 
 ###### 1. We dont care. Stop!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125260.jpg" style="width:100%"><br>
 
@@ -196,6 +102,106 @@ Last updated: 03/22/2022-00:11:31
 ###### 27. Its soccer, so Im not sure why I expected anything different.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125266.jpg" style="width:100%"><br>
 
 ###### 28. Looks good to me!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125267.jpg" style="width:100%"><br>
+
+## <a href="#4" id="3">Monday Morning Randomness: Mizuka Edition</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105503/87127414/87114983.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105515/87127415/87114982.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105526/87127416/87114992.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105537/87127417/87115003.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105546/87127418/87114999.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105548/87127419/87117254.png" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105558/87127420/87117260.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105602/87127421/87117283.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105609/87127422/87117288.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105613/87127423/87119551.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105620/87127424/87119552.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105624/87127425/87119577.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105631/87127426/87119576.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105635/87127427/87121213.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105642/87127428/87121225.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105646/87127429/87121226.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105653/87127430/87121218.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105658/87127431/87121230.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105704/87127432/87121994.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105709/87127433/87121995.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105715/87127434/87121996.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105720/87127435/87122010.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105726/87127436/87122013.png" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105732/87127437/87122014.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105738/87127438/87122015.jpg" style="width:100%"><br>
+
+###### 26. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105745/87127439/87126178.jpg" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105749/87127440/87126182.jpg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105756/87127441/87126186.jpg" style="width:100%"><br>
+
+###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105800/87127442/87126193.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105808/87127443/87126198.jpg" style="width:100%"><br>
+
+###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105811/87127444/87126194.jpg" style="width:100%"><br>
+
+###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105820/87127445/87126200.jpg" style="width:100%"><br>
+
+###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126835.jpg" style="width:100%"><br>
+
+###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126837.png" style="width:100%"><br>
+
+###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126838.jpg" style="width:100%"><br>
+
+###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126840.png" style="width:100%"><br>
+
+###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126845.jpg" style="width:100%"><br>
+
+###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126846.png" style="width:100%"><br>
+
+###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126847.jpg" style="width:100%"><br>
+
+###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126834.jpg" style="width:100%"><br>
+
+###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126850.jpg" style="width:100%"><br>
+
+###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126851.jpg" style="width:100%"><br>
+
+###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126852.jpg" style="width:100%"><br>
+
+###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126855.jpg" style="width:100%"><br>
+
+###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126856.jpg" style="width:100%"><br>
+
+###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126859.jpg" style="width:100%"><br>
+
+###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126857.jpg" style="width:100%"><br>
+
+###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126861.jpg" style="width:100%"><br>
+
+###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
 
 ## <a href="#5" id="4">25 Celebrities Who Got Away With Committing Crimes</a><br>
 
@@ -444,107 +450,263 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 
 ###### 22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
-## <a href="#10" id="9">Monday Morning Randomness: Mizuka Edition</a><br>
+## <a href="#10" id="9">46 Peculiar Pics to Please Your Peepers</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105503/87127414/87114983.jpg" style="width:100%"><br>
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126745.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105515/87127415/87114982.jpg" style="width:100%"><br>
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126747.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105526/87127416/87114992.jpg" style="width:100%"><br>
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126748.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105537/87127417/87115003.jpg" style="width:100%"><br>
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126749.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105546/87127418/87114999.jpg" style="width:100%"><br>
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126752.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105548/87127419/87117254.png" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126755.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105558/87127420/87117260.jpg" style="width:100%"><br>
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126756.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105602/87127421/87117283.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126759.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105609/87127422/87117288.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126760.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105613/87127423/87119551.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126761.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105620/87127424/87119552.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126762.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105624/87127425/87119577.jpg" style="width:100%"><br>
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126766.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105631/87127426/87119576.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126767.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105635/87127427/87121213.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126769.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105642/87127428/87121225.jpg" style="width:100%"><br>
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126773.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105646/87127429/87121226.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126774.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105653/87127430/87121218.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126775.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105658/87127431/87121230.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126777.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105704/87127432/87121994.jpg" style="width:100%"><br>
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126778.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105709/87127433/87121995.jpg" style="width:100%"><br>
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126779.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105715/87127434/87121996.jpg" style="width:100%"><br>
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126782.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105720/87127435/87122010.jpg" style="width:100%"><br>
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126783.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105726/87127436/87122013.png" style="width:100%"><br>
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126785.jpg" style="width:100%"><br>
 
-###### 24. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105732/87127437/87122014.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126786.jpg" style="width:100%"><br>
 
-###### 25. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105738/87127438/87122015.jpg" style="width:100%"><br>
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126787.jpg" style="width:100%"><br>
 
-###### 26. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105745/87127439/87126178.jpg" style="width:100%"><br>
+###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126788.jpg" style="width:100%"><br>
 
-###### 27. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105749/87127440/87126182.jpg" style="width:100%"><br>
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126792.jpg" style="width:100%"><br>
 
-###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105756/87127441/87126186.jpg" style="width:100%"><br>
+###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014128/87127092/87125190.jpg" style="width:100%"><br>
 
-###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105800/87127442/87126193.jpg" style="width:100%"><br>
+###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014129/87127093/87125189.jpg" style="width:100%"><br>
 
-###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105808/87127443/87126198.jpg" style="width:100%"><br>
+###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014139/87127094/87125198.jpg" style="width:100%"><br>
 
-###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105811/87127444/87126194.jpg" style="width:100%"><br>
+###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014140/87127095/87125178.jpg" style="width:100%"><br>
 
-###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105820/87127445/87126200.jpg" style="width:100%"><br>
+###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014151/87127096/87125200.jpg" style="width:100%"><br>
 
-###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126835.jpg" style="width:100%"><br>
+###### 33. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014202/87127097/87125203.jpg" style="width:100%"><br>
 
-###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126837.png" style="width:100%"><br>
+###### 34. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014215/87127098/87125967.jpg" style="width:100%"><br>
 
-###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126838.jpg" style="width:100%"><br>
+###### 35. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014222/87127099/87125216.jpg" style="width:100%"><br>
 
-###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126840.png" style="width:100%"><br>
+###### 36. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014229/87127100/87125974.jpg" style="width:100%"><br>
 
-###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126845.jpg" style="width:100%"><br>
+###### 37. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014231/87127101/87125980.jpg" style="width:100%"><br>
 
-###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126846.png" style="width:100%"><br>
+###### 38. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014236/87127102/87125991.jpg" style="width:100%"><br>
 
-###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126847.jpg" style="width:100%"><br>
+###### 39. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014242/87127103/87125994.jpg" style="width:100%"><br>
 
-###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126834.jpg" style="width:100%"><br>
+###### 40. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014247/87127104/87126363.jpg" style="width:100%"><br>
 
-###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126850.jpg" style="width:100%"><br>
+###### 41. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014253/87127105/87126366.jpg" style="width:100%"><br>
 
-###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126851.jpg" style="width:100%"><br>
+###### 42. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014258/87127106/87126374.jpg" style="width:100%"><br>
 
-###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126852.jpg" style="width:100%"><br>
+###### 43. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014304/87127107/87126375.jpg" style="width:100%"><br>
 
-###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126855.jpg" style="width:100%"><br>
+###### 44. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014309/87127108/87126379.jpg" style="width:100%"><br>
 
-###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126856.jpg" style="width:100%"><br>
+###### 45. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014315/87127109/87126395.jpg" style="width:100%"><br>
 
-###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126859.jpg" style="width:100%"><br>
+###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
-###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126857.jpg" style="width:100%"><br>
+## <a href="#11" id="10">21 Health Signs Nobody Should Ignore</a><br>
 
-###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126861.jpg" style="width:100%"><br>
+###### 1. When youre dehydrated and still throwing up<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126355.jpg" style="width:100%"><br>
 
-###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
+###### 2. If your pee is so dark that it looks like Guinness, go to the hospital immediately.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126342.jpg" style="width:100%"><br>
 
-## <a href="#11" id="10">50 Relatable Work Memes that Ring True</a><br>
+###### 3. Losing the ability to see color in one or more eye, sign of major issue in brain.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126343.jpg" style="width:100%"><br>
+
+###### 4. You took a new medicine and your throat is closing up. Anaphylaxis can kill you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126344.jpg" style="width:100%"><br>
+
+###### 5. The worst headache of your life, which came on very quickly. (Also known as a Thunderclap headache). Even with no other symptoms, this needs to be looked at immediately. Could be any range of things, but what theyre most concerned with is a ruptured aneurysm.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126345.jpg" style="width:100%"><br>
+
+###### 6. When you throw up and it looks like coffee grounds.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126341.jpg" style="width:100%"><br>
+
+###### 7. Signs of stroke.
+
+Face or mouth drooping
+
+Arm weakness
+
+Speech slurred
+
+Time to call an ambulance
+
+So think FAST<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126346.jpg" style="width:100%"><br>
+
+###### 8. A feeling of impending doom. Really, its actually considered a clinical sign and can indicate impending stroke, heart attack, or other things. Can also be a panic attack but if it comes out of nowhere and isnt associated with a known anxiety disorder, dont be afraid to take it seriously.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126347.jpg" style="width:100%"><br>
+
+###### 9. If one of your pupils is fully dilated to the point you can barely see your iris, but the other eye is normal. Get your butt to the E.R Stat.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126348.jpg" style="width:100%"><br>
+
+###### 10. Growing pain in your back near your kidney? Stones. Go to the hospital before the pain gets unbearable.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126349.jpg" style="width:100%"><br>
+
+###### 11. Sudden hearing loss. The faster you get to the hospital the better the chances of reversing it (statistically)
+
+In my case I left it two weeks and I’m now living with tinnitus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126350.jpg" style="width:100%"><br>
+
+###### 12. You were told 48 hours ago that you had gastroenteritis (stomach flu) and you did everything the doc said and not only dont you feel better, you feel worse.
+
+There are a lot of things it could be, but gastroenteritis is probably not it, and some of the other possibilities are potentially lethal.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126351.jpg" style="width:100%"><br>
+
+###### 13. For women on birth control: serious shortness of breath (as in a relatively healthy person being winded just walking to/from car) and unexplained pain in your legs, mainly inside thighs. Blood clots/embolisms. They can kill you VERY fast if they break loose and travel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126352.jpg" style="width:100%"><br>
+
+###### 14. I had a headache for a week and was getting confused at work.
+
+2 brain tumors and hydrocephalus led to immediate intake<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126353.jpg" style="width:100%"><br>
+
+###### 15. You were bit by an animal. ALWAYS ASSUME IT WAS RABID. if you don’t get rabies treatment within something like 48 hours you could cross the threshold into guaranteed death.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126354.jpg" style="width:100%"><br>
+
+###### 16. Sudden onset abdominal pain and vomiting. Appendicitis doesn’t always present as pain in the lower right quadrant. If it bursts you’re f*cked.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126356.jpg" style="width:100%"><br>
+
+###### 17. Skin/white of the eyes turning yellow. This probably caused by accumulation of bilirubin in the blood which can be caused by severe liver failure.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126357.jpg" style="width:100%"><br>
+
+###### 18. When that wound you got on your foot by stepping on a rusty nail smells like rot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126358.jpg" style="width:100%"><br>
+
+###### 19. If you have chest pain and especially if its combined with sweating, nausea/vomiting, left arm pain, and/or a sense of impending doom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126359.jpg" style="width:100%"><br>
+
+###### 20. Wife had a pain in her shoulder and told me about it. Said it was uncomfortable but not a big deal. I told her to send her doctor a message. Went in for an appointment immediately. She had internal bleeding from an ectopic pregnancy and had about 12 oz of blood floating around in her.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126360.jpg" style="width:100%"><br>
+
+###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
+
+## <a href="#12" id="11">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
+
+###### 1. Sometimes all you really need is just one person to care.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126722.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126727.jpg" style="width:100%"><br>
+
+###### 3. Such wise words from such a young child.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126726.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126729.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126730.jpg" style="width:100%"><br>
+
+###### 6. How could you not?! Those eyes!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126728.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126719.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126731.jpg" style="width:100%"><br>
+
+###### 9. We could all learn a lot from the unconditional love of dogs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126720.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126732.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126721.jpg" style="width:100%"><br>
+
+###### 12. It is the thought and effort that count with things like this, not the final appearance or how it turns out.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126724.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126733.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126734.jpg" style="width:100%"><br>
+
+###### 15. An incredible idea to help those without sight experience the beauty of things most of us take for granted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126725.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126735.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126736.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126737.jpg" style="width:100%"><br>
+
+###### 19. Some of mankinds most inspiring and feel good moments are when people come together to help others.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126723.jpg" style="width:100%"><br>
+
+## <a href="#13" id="12">30 Things Found After A Really Long Time</a><br>
+
+###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
+
+###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
+
+###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
+
+###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
+
+###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
+
+###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
+
+###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
+
+###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
+
+###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
+
+###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
+
+###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
+
+###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
+
+###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
+
+###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
+
+###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
+
+###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
+
+###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
+
+###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
+
+###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
+
+###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
+
+###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
+
+###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
+
+###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
+
+###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
+
+## <a href="#14" id="13">50 Relatable Work Memes that Ring True</a><br>
 
 ###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/015023/87127111/86255097.jpg" style="width:100%"><br>
 
@@ -646,47 +808,7 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 
 ###### 50. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87125632.jpg" style="width:100%"><br>
 
-## <a href="#12" id="11">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
-
-###### 1. Sometimes all you really need is just one person to care.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126722.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126727.jpg" style="width:100%"><br>
-
-###### 3. Such wise words from such a young child.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126726.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126729.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126730.jpg" style="width:100%"><br>
-
-###### 6. How could you not?! Those eyes!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126728.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126719.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126731.jpg" style="width:100%"><br>
-
-###### 9. We could all learn a lot from the unconditional love of dogs.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126720.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126732.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126721.jpg" style="width:100%"><br>
-
-###### 12. It is the thought and effort that count with things like this, not the final appearance or how it turns out.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126724.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126733.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126734.jpg" style="width:100%"><br>
-
-###### 15. An incredible idea to help those without sight experience the beauty of things most of us take for granted.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126725.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126735.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126736.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126737.jpg" style="width:100%"><br>
-
-###### 19. Some of mankinds most inspiring and feel good moments are when people come together to help others.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126723.jpg" style="width:100%"><br>
-
-## <a href="#13" id="12">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
+## <a href="#15" id="14">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
 
 ###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
 
@@ -747,126 +869,4 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 ###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119500.png" style="width:100%"><br>
 
 ###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
-
-## <a href="#14" id="13">30 Things Found After A Really Long Time</a><br>
-
-###### 1. Found This In The Crawl Space Above My Bedroom!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126318.jpg" style="width:100%"><br>
-
-###### 2. Were Remodeling Our Bathroom And Our Contractor Just Sent This<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126308.jpg" style="width:100%"><br>
-
-###### 3. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126309.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126310.jpg" style="width:100%"><br>
-
-###### 5. My Dad Finally Found His Missing LED Zeppelin Tickets... 44 Years Too Late<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126311.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126312.jpg" style="width:100%"><br>
-
-###### 7. Tearing Down An Unused Chimney Only To Find 25 Generations Of Stacked Up Birds Nests<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126313.jpg" style="width:100%"><br>
-
-###### 8. While Tearing Up Their Carpet, My In-Laws Found A Giant Monopoly Board<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126314.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126315.jpg" style="width:100%"><br>
-
-###### 10. A 54 Million Year Old Gecko Trapped In Amber<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126316.jpg" style="width:100%"><br>
-
-###### 11. This Washed Ashore From ‘Dorian’. “Please Don’t Open Me, My Ashes Are On A Journey, I Started At Cumberland Island, So If You See Me Ashore, Please Snap A Picture, Email It & Throw Me Back So I Can Travel Some More”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126317.jpg" style="width:100%"><br>
-
-###### 12. This Silver Pendant I Found Metal Detecting Is Dated 227 Years Ago Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126319.jpg" style="width:100%"><br>
-
-###### 13. My Great Grandmother Kept A News Paper Of When America Landed On The Moon. Just Found It Today<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126320.jpg" style="width:100%"><br>
-
-###### 14. Friend Of Mine Just Moved Into A New House. Took Off All The Heating Vents To Paint Them, And This Was Behind One Of Them<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126321.jpg" style="width:100%"><br>
-
-###### 15. Shoutout To My Mom Who Very Kindly Brought Me Dumbells From The Basement And Even Washed Them So I Could Work Out At Home With Weights - Turns Out These Are Old Soviet-Era Hand Grenades<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126322.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126323.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126324.jpg" style="width:100%"><br>
-
-###### 18. Found An Over 100 Year Old Time Capsule In My Backyard!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126325.jpg" style="width:100%"><br>
-
-###### 19. Found These 110(?) Year Old Crayolas In The Back Of A Family Secretary Desk. The Pack Still Has The Crayons<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126326.jpg" style="width:100%"><br>
-
-###### 20. This Bookmark I Found In An Old Shakspeare Book Is A Voting Ticket From The Civil War<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126327.jpg" style="width:100%"><br>
-
-###### 21. This WWII Newspaper Of Germany’s Surrender Found In My Grandparent’s Attic<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126328.jpg" style="width:100%"><br>
-
-###### 22. 103 Years Ago Someone Lost Their Coin Purse<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126329.jpg" style="width:100%"><br>
-
-###### 23. Found A Drawing Of A Robot In A Chemistry Book From 1918<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126330.jpg" style="width:100%"><br>
-
-###### 24. We Were Cleaning Out Our Aunts House Who Had Just Passed Away And Found This. My Great-Great Grandfather’s Enlistment Paper To WWI<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126331.jpg" style="width:100%"><br>
-
-###### 25. My Roommate Bought A Pair Of Pants At The Thrift Store And Found This In One Of The Pockets<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126332.jpg" style="width:100%"><br>
-
-###### 26. Found This “White Couch” In A Free Pile Years Ago And Saw A Rip In It Last Night When I Was Cleaning To Find It Was Reupholstered Over Gorgeous Emerald Green Fabric This Whole Time!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126333.jpg" style="width:100%"><br>
-
-###### 27. My Mom Was Cleaning Up And Found A Piece Of Paper Her And My Dad Wrote On From Before They Got Married In ‘86. They Were Together Until 2011 When My Dad Passed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126334.jpg" style="width:100%"><br>
-
-###### 28. My Uncle Found A Bag Of Volcano Ash From Mount St. Helens With A Note Tucked In The Back Of One Of His Cupboards<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126335.jpg" style="width:100%"><br>
-
-###### 29. I Was Digging Around In An Attic In St. Paul And Found Some Soap From 1874<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126336.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126337.jpg" style="width:100%"><br>
-
-## <a href="#15" id="14">21 Health Signs Nobody Should Ignore</a><br>
-
-###### 1. When youre dehydrated and still throwing up<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126355.jpg" style="width:100%"><br>
-
-###### 2. If your pee is so dark that it looks like Guinness, go to the hospital immediately.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126342.jpg" style="width:100%"><br>
-
-###### 3. Losing the ability to see color in one or more eye, sign of major issue in brain.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126343.jpg" style="width:100%"><br>
-
-###### 4. You took a new medicine and your throat is closing up. Anaphylaxis can kill you.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126344.jpg" style="width:100%"><br>
-
-###### 5. The worst headache of your life, which came on very quickly. (Also known as a Thunderclap headache). Even with no other symptoms, this needs to be looked at immediately. Could be any range of things, but what theyre most concerned with is a ruptured aneurysm.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126345.jpg" style="width:100%"><br>
-
-###### 6. When you throw up and it looks like coffee grounds.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126341.jpg" style="width:100%"><br>
-
-###### 7. Signs of stroke.
-
-Face or mouth drooping
-
-Arm weakness
-
-Speech slurred
-
-Time to call an ambulance
-
-So think FAST<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126346.jpg" style="width:100%"><br>
-
-###### 8. A feeling of impending doom. Really, its actually considered a clinical sign and can indicate impending stroke, heart attack, or other things. Can also be a panic attack but if it comes out of nowhere and isnt associated with a known anxiety disorder, dont be afraid to take it seriously.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126347.jpg" style="width:100%"><br>
-
-###### 9. If one of your pupils is fully dilated to the point you can barely see your iris, but the other eye is normal. Get your butt to the E.R Stat.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126348.jpg" style="width:100%"><br>
-
-###### 10. Growing pain in your back near your kidney? Stones. Go to the hospital before the pain gets unbearable.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126349.jpg" style="width:100%"><br>
-
-###### 11. Sudden hearing loss. The faster you get to the hospital the better the chances of reversing it (statistically)
-
-In my case I left it two weeks and I’m now living with tinnitus.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126350.jpg" style="width:100%"><br>
-
-###### 12. You were told 48 hours ago that you had gastroenteritis (stomach flu) and you did everything the doc said and not only dont you feel better, you feel worse.
-
-There are a lot of things it could be, but gastroenteritis is probably not it, and some of the other possibilities are potentially lethal.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126351.jpg" style="width:100%"><br>
-
-###### 13. For women on birth control: serious shortness of breath (as in a relatively healthy person being winded just walking to/from car) and unexplained pain in your legs, mainly inside thighs. Blood clots/embolisms. They can kill you VERY fast if they break loose and travel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126352.jpg" style="width:100%"><br>
-
-###### 14. I had a headache for a week and was getting confused at work.
-
-2 brain tumors and hydrocephalus led to immediate intake<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126353.jpg" style="width:100%"><br>
-
-###### 15. You were bit by an animal. ALWAYS ASSUME IT WAS RABID. if you don’t get rabies treatment within something like 48 hours you could cross the threshold into guaranteed death.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126354.jpg" style="width:100%"><br>
-
-###### 16. Sudden onset abdominal pain and vomiting. Appendicitis doesn’t always present as pain in the lower right quadrant. If it bursts you’re f*cked.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126356.jpg" style="width:100%"><br>
-
-###### 17. Skin/white of the eyes turning yellow. This probably caused by accumulation of bilirubin in the blood which can be caused by severe liver failure.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126357.jpg" style="width:100%"><br>
-
-###### 18. When that wound you got on your foot by stepping on a rusty nail smells like rot.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126358.jpg" style="width:100%"><br>
-
-###### 19. If you have chest pain and especially if its combined with sweating, nausea/vomiting, left arm pain, and/or a sense of impending doom.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126359.jpg" style="width:100%"><br>
-
-###### 20. Wife had a pain in her shoulder and told me about it. Said it was uncomfortable but not a big deal. I told her to send her doctor a message. Went in for an appointment immediately. She had internal bleeding from an ectopic pregnancy and had about 12 oz of blood floating around in her.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126360.jpg" style="width:100%"><br>
-
-###### 21. If your newborn spits up bright green. Solid sign there is a major intestinal blockage (even without any other symptoms) and there is a small window to get that corrected before death. I have forgotten alot from my STABLE class, but I do remember that.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126361.jpg" style="width:100%"><br>
 
