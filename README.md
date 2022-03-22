@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/22/2022-11:11:31
+Last updated: 03/22/2022-12:11:33
 <br>
 ## <a href="#2" id="1">22 Awesome Things That Are Cool to Look At </a><br>
 
@@ -47,7 +47,155 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 22. “A dedicated bench for Jim, some miles into a hiking trail.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">25 Celebrities Who Got Away With Committing Crimes</a><br>
+## <a href="#3" id="2">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
+
+###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
+
+###### 2. lol, ya right bro! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119464.jpg" style="width:100%"><br>
+
+###### 3. Aww thats sweet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119467.jpeg" style="width:100%"><br>
+
+###### 4. When you have to buy a van but you still want people to know your cool. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119468.jpg" style="width:100%"><br>
+
+###### 5. A truer statement has never been spoken. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119473.jpg" style="width:100%"><br>
+
+###### 6. Hey bro, watch out those are mine! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119470.jpg" style="width:100%"><br>
+
+###### 7. Yeah baby, dont even think about asking, what I know youre thinking of asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119471.jpg" style="width:100%"><br>
+
+###### 8. Aww, what a cute couple! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119472.jpg" style="width:100%"><br>
+
+###### 9. This is the future liberals want. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119474.jpg" style="width:100%"><br>
+
+###### 10. A sure fire plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119475.jpg" style="width:100%"><br>
+
+###### 11. Final Destination needs to come back! That sh*t rocked. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119476.jpg" style="width:100%"><br>
+
+###### 12. I mean, did you expect anything less? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119469.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119477.jpg" style="width:100%"><br>
+
+###### 14. The more you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119478.jpg" style="width:100%"><br>
+
+###### 15. Dont even think about asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119480.jpg" style="width:100%"><br>
+
+###### 16. it was right in front of our faces the whole time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119481.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119483.jpg" style="width:100%"><br>
+
+###### 18. Its go time baby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119484.jpg" style="width:100%"><br>
+
+###### 19. This is some next level trolling. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119485.jpg" style="width:100%"><br>
+
+###### 20. If you know you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119488.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119489.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119491.png" style="width:100%"><br>
+
+###### 23. Found your moms street. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119492.jpg" style="width:100%"><br>
+
+###### 24. Sorry you little shit. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119493.png" style="width:100%"><br>
+
+###### 25. Id worship me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119496.jpg" style="width:100%"><br>
+
+###### 26. Shes up on that pole<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119497.jpg" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119498.jpg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119499.png" style="width:100%"><br>
+
+###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119500.png" style="width:100%"><br>
+
+###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
+
+## <a href="#4" id="3">21 Comments That Really Nailed It</a><br>
+
+###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+
+###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+
+###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+
+###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+
+###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+
+###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+
+###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+
+###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+
+###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+
+###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+
+## <a href="#5" id="4">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+
+## <a href="#6" id="5">25 Celebrities Who Got Away With Committing Crimes</a><br>
 
 ###### 1. Tom Cruise uses slave labor provided by the Church of Scientology to take care of his personal needs and has never once faced legal repercussions for human trafficking nor wage theft.-u/hockey_stick<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128007.jpg" style="width:100%"><br>
 
@@ -99,49 +247,70 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 25. Matthew Broderick killed someone in a car crash when he was being clearly negligent-u/sorryladiesiamtaken<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128031.jpg" style="width:100%"><br>
 
-## <a href="#4" id="3">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+## <a href="#7" id="6">25 Traumatizing Films That Really Messed Us Up</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+###### 1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+###### 2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+###### 
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+###### 
+Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+###### 3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+###### 4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+###### 5. The Good Son messed me up when I was a kid. -u/MadMasterMad<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+###### 6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+###### 7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+###### 8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+###### 9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+###### 10. Grave of the Fireflies. Its the story of every war. -u/TVotte<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+###### 11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+###### 12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+###### 13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+###### 14. The Road. The book was even crazier. -u/The_Hive-Mind<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+###### 15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+###### 
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+###### 
+Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+###### 16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
 
-## <a href="#5" id="4">22 Best Mustaches of All Time</a><br>
+###### 17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
+
+###### 
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
+
+###### 
+Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
+
+###### 18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
+
+###### 19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
+<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
+
+## <a href="#8" id="7">22 Best Mustaches of All Time</a><br>
 
 ###### 1. Tom Selleck - The one and only.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
 
@@ -187,7 +356,7 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
-## <a href="#6" id="5">22 People Whose Day's Going Worse Than Yours</a><br>
+## <a href="#9" id="8">22 People Whose Day's Going Worse Than Yours</a><br>
 
 ###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
 
@@ -231,7 +400,7 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
-## <a href="#7" id="6">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
+## <a href="#10" id="9">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
 ###### 1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
 
@@ -299,7 +468,7 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
 
-## <a href="#8" id="7">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
+## <a href="#11" id="10">19 Touching Photos to Remind Us Life Is Beautiful</a><br>
 
 ###### 1. Sometimes all you really need is just one person to care.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126722.jpg" style="width:100%"><br>
 
@@ -339,132 +508,7 @@ Last updated: 03/22/2022-11:11:31
 
 ###### 19. Some of mankinds most inspiring and feel good moments are when people come together to help others.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126723.jpg" style="width:100%"><br>
 
-## <a href="#9" id="8">25 Traumatizing Films That Really Messed Us Up</a><br>
-
-###### 1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
-
-###### 2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
-
-###### 
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
-
-###### 
-Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
-
-###### 3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
-
-###### 4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
-
-###### 5. The Good Son messed me up when I was a kid. -u/MadMasterMad<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
-
-###### 6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
-
-###### 7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
-
-###### 8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
-
-###### 9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
-
-###### 10. Grave of the Fireflies. Its the story of every war. -u/TVotte<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
-
-###### 11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
-
-###### 12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
-
-###### 13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
-
-###### 14. The Road. The book was even crazier. -u/The_Hive-Mind<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
-
-###### 15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
-
-###### 
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
-
-###### 
-Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
-
-###### 16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
-
-###### 17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
-
-###### 
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
-
-###### 
-Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
-
-###### 18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
-
-###### 19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
-<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
-
-## <a href="#10" id="9">30 Dank and Dirty Memes For People With Dirty Minds</a><br>
-
-###### 1. This had to have been on purpose right? There is no way someone would do this on accident right? Right? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119465.jpeg" style="width:100%"><br>
-
-###### 2. lol, ya right bro! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119464.jpg" style="width:100%"><br>
-
-###### 3. Aww thats sweet. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119467.jpeg" style="width:100%"><br>
-
-###### 4. When you have to buy a van but you still want people to know your cool. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119468.jpg" style="width:100%"><br>
-
-###### 5. A truer statement has never been spoken. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119473.jpg" style="width:100%"><br>
-
-###### 6. Hey bro, watch out those are mine! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119470.jpg" style="width:100%"><br>
-
-###### 7. Yeah baby, dont even think about asking, what I know youre thinking of asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119471.jpg" style="width:100%"><br>
-
-###### 8. Aww, what a cute couple! <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119472.jpg" style="width:100%"><br>
-
-###### 9. This is the future liberals want. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119474.jpg" style="width:100%"><br>
-
-###### 10. A sure fire plan. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119475.jpg" style="width:100%"><br>
-
-###### 11. Final Destination needs to come back! That sh*t rocked. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119476.jpg" style="width:100%"><br>
-
-###### 12. I mean, did you expect anything less? <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119469.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119477.jpg" style="width:100%"><br>
-
-###### 14. The more you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119478.jpg" style="width:100%"><br>
-
-###### 15. Dont even think about asking. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119480.jpg" style="width:100%"><br>
-
-###### 16. it was right in front of our faces the whole time. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119481.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119483.jpg" style="width:100%"><br>
-
-###### 18. Its go time baby. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119484.jpg" style="width:100%"><br>
-
-###### 19. This is some next level trolling. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119485.jpg" style="width:100%"><br>
-
-###### 20. If you know you know. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119488.jpg" style="width:100%"><br>
-
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119489.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119491.png" style="width:100%"><br>
-
-###### 23. Found your moms street. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119492.jpg" style="width:100%"><br>
-
-###### 24. Sorry you little shit. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119493.png" style="width:100%"><br>
-
-###### 25. Id worship me. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119496.jpg" style="width:100%"><br>
-
-###### 26. Shes up on that pole<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119497.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119498.jpg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119499.png" style="width:100%"><br>
-
-###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119500.png" style="width:100%"><br>
-
-###### 30. Oh boy was she in for a surprise. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87119501.jpg" style="width:100%"><br>
-
-## <a href="#11" id="10">Monday Morning Randomness: Mizuka Edition</a><br>
+## <a href="#12" id="11">Monday Morning Randomness: Mizuka Edition</a><br>
 
 ###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/20/105503/87127414/87114983.jpg" style="width:100%"><br>
 
@@ -563,142 +607,4 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 ###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126861.jpg" style="width:100%"><br>
 
 ###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87126863.jpg" style="width:100%"><br>
-
-## <a href="#12" id="11">21 Comments That Really Nailed It</a><br>
-
-###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
-
-###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
-
-###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
-
-###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
-
-###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
-
-###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
-
-###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
-
-###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
-
-###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
-
-###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
-
-## <a href="#13" id="12">46 Peculiar Pics to Please Your Peepers</a><br>
-
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126745.jpg" style="width:100%"><br>
-
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126747.jpg" style="width:100%"><br>
-
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126748.jpg" style="width:100%"><br>
-
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126749.jpg" style="width:100%"><br>
-
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126752.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126755.jpg" style="width:100%"><br>
-
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126756.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126759.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126760.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126761.jpg" style="width:100%"><br>
-
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126762.jpg" style="width:100%"><br>
-
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126766.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126767.jpg" style="width:100%"><br>
-
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126769.jpg" style="width:100%"><br>
-
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126773.jpg" style="width:100%"><br>
-
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126774.jpg" style="width:100%"><br>
-
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126775.jpg" style="width:100%"><br>
-
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126777.jpg" style="width:100%"><br>
-
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126778.jpg" style="width:100%"><br>
-
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126779.jpg" style="width:100%"><br>
-
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126782.jpg" style="width:100%"><br>
-
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126783.jpg" style="width:100%"><br>
-
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126785.jpg" style="width:100%"><br>
-
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126786.jpg" style="width:100%"><br>
-
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126787.jpg" style="width:100%"><br>
-
-###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126788.jpg" style="width:100%"><br>
-
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87126792.jpg" style="width:100%"><br>
-
-###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014128/87127092/87125190.jpg" style="width:100%"><br>
-
-###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014129/87127093/87125189.jpg" style="width:100%"><br>
-
-###### 30. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014139/87127094/87125198.jpg" style="width:100%"><br>
-
-###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014140/87127095/87125178.jpg" style="width:100%"><br>
-
-###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014151/87127096/87125200.jpg" style="width:100%"><br>
-
-###### 33. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014202/87127097/87125203.jpg" style="width:100%"><br>
-
-###### 34. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014215/87127098/87125967.jpg" style="width:100%"><br>
-
-###### 35. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014222/87127099/87125216.jpg" style="width:100%"><br>
-
-###### 36. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014229/87127100/87125974.jpg" style="width:100%"><br>
-
-###### 37. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014231/87127101/87125980.jpg" style="width:100%"><br>
-
-###### 38. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014236/87127102/87125991.jpg" style="width:100%"><br>
-
-###### 39. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014242/87127103/87125994.jpg" style="width:100%"><br>
-
-###### 40. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014247/87127104/87126363.jpg" style="width:100%"><br>
-
-###### 41. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014253/87127105/87126366.jpg" style="width:100%"><br>
-
-###### 42. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014258/87127106/87126374.jpg" style="width:100%"><br>
-
-###### 43. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014304/87127107/87126375.jpg" style="width:100%"><br>
-
-###### 44. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014309/87127108/87126379.jpg" style="width:100%"><br>
-
-###### 45. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014315/87127109/87126395.jpg" style="width:100%"><br>
-
-###### 46. <br><img src="https://cdn.ebaumsworld.com/2022/03/19/014321/87127110/87126404.jpg" style="width:100%"><br>
 
