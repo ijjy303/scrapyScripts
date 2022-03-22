@@ -1,111 +1,110 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/22/2022-17:11:31
+Last updated: 03/22/2022-18:11:31
 <br>
-## <a href="#2" id="1">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
+## <a href="#2" id="1">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
 
-###### 1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
+###### 1. That one thing that prevents you from closing the drawer. -u/Setthescene<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128447.jpg" style="width:100%"><br>
 
-###### 2. A Tiny Devil Vitrified In A Prism Of Glass<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
+###### 2. Keys for unknown locks. -u/Back2Bach<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128448.jpg" style="width:100%"><br>
 
-###### 3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
+###### 3. 
+About four rolls of different tape that are never actually in the junk drawer when you need them. -u/kairosecide<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128445.jpg" style="width:100%"><br>
 
-###### 4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
+###### 4. A set of Allen wrenches that is missing the 2 most common sizes, but has duplicates of the ones you will never use. -u/Jesse0016<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128449.jpg" style="width:100%"><br>
 
-###### 5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
+###### 5. Random chargers. What does that go to? No one knows but we save it just in case we might need it again. -u/Black_Tears524<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128444.jpeg" style="width:100%"><br>
 
-###### 6. A Neon Salesmans Sample Case, Circa 1935<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
+###### 6. A screw that looks too important to throw out but you have no idea where it came from. -u/ArminTanz<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128450.jpg" style="width:100%"><br>
 
-###### 7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
+###### 7. Those felt circles for the bottoms of chairs. But you never have enough of any size to complete a set. -u/Annieline<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128455.jpg" style="width:100%"><br>
 
-###### 8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
+###### 8. That random Christmas decoration that was found way too late to be packed with the rest. -deleted user<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128451.jpg" style="width:100%"><br>
 
-###### 9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
+###### 9. Scotch tape so old its yellow and fused unusable. -u/LaChanz<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128452.jpg" style="width:100%"><br>
 
-###### 10. Hans Eijkelboom, With My Family (1973)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
+###### 10. I found an old refrigerator magnet in one not long ago for a pizza place (Dominos) and the phone number didn’t have an area code. -u/DiscoMagicParty<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128453.jpg" style="width:100%"><br>
 
-###### 11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
+###### 11. Instructions for a product that either doesn’t need instructions (like a fan) or that you don’t even own anymore. -u/Alive-Singer-3432<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128454.jpg" style="width:100%"><br>
 
-###### 12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
+###### 12. Assortment of single batteries. -u/KyleClarkeFilms<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128456.png" style="width:100%"><br>
 
-###### 13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
+###### 13. One of those lighters with the long neck that hasn’t worked since the third time you used it. You check it every time you need a lighter and put it back in the drawer because “maybe I’m doing it wrong. -u/FastAndForgetful<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128457.jpg" style="width:100%"><br>
 
-###### 14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
+###### 14. A random deck of old playing cards. -u/puppet1987<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128464.png" style="width:100%"><br>
 
-###### 15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
+###### 15. Cleaning cloths that come with every new pair of sunglasses or screen protector. -u/BearlyBuff<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128458.jpg" style="width:100%"><br>
 
-###### 16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
+###### 16. No longer sticky post-its with random phone numbers and no names or a date and appointment time but not the appointment location. -u/Proper_Mud_5552<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128459.jpg" style="width:100%"><br>
 
-###### 17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
+###### 17. Flat head screwdriver. Also, a random assortment of birthday candles. -u/SuperDan523<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128460.jpg" style="width:100%"><br>
 
-###### 18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
+###### 18. Scissors. Bonus points if they have orange handles. -u/jemichaelson<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128461.jpg" style="width:100%"><br>
 
-###### 19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
+###### 19. Expired coupons. Allen keys. Random condiment packets. -u/fivezero_ca<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128469.jpg" style="width:100%"><br>
 
-###### 20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+###### 20. Really unique, plastic piece that must have fallen off of something and is probably important to whatever is missing the piece which youre pretty sure youll recognize where it goes as soon as you figure out where it came from. Oh, and a hidden thumbtack you always stab your finger on when looking for a pen. -u/smarmy_marmy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128462.jpg" style="width:100%"><br>
 
-###### 21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+###### 21. The scent. Every junk drawer has it. From decaying batteries to worn out rubber bands, random screws and nails, an ole matchbook. Once youve opened one, you know what Im talking about. -u/riverweeds<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128463.jpg" style="width:100%"><br>
 
-###### 22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+###### 22. Twisty ties. -u/pdxisbest<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128465.jpg" style="width:100%"><br>
 
-###### 23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+###### 23. Wooden chopsticks still in the wrapper and napkins from the same restaurant just in case you run out of paper towels and need a dusty drawer napkin. -u/SingingTiger<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128466.png" style="width:100%"><br>
 
-###### 24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+###### 24. Remotes for unknown electronics. Perhaps left over from the early 2000s. -u/Shop_Healthy<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128467.jpg" style="width:100%"><br>
 
-###### 25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
+###### 25. Several books of matches from clubs, bars, restaurants that have been closed over 20 years. -u/choopie-chup-chup<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128468.jpeg" style="width:100%"><br>
 
-###### 26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
+## <a href="#3" id="2">25 Celebrities Who Got Away With Committing Crimes</a><br>
 
-###### 27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
+###### 1. Tom Cruise uses slave labor provided by the Church of Scientology to take care of his personal needs and has never once faced legal repercussions for human trafficking nor wage theft.-u/hockey_stick<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128007.jpg" style="width:100%"><br>
 
-###### 28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
+###### 2. Didn’t that nut case Shia Ledouche beat the hell out of some dude for the hat he was wearing? I don’t think he served time for that.-u/tdmmnnl<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128008.jpg" style="width:100%"><br>
 
-###### 29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
+###### 3. Definitely the R. Kelly sh*t. The fact that when I was in secondary school there were jokes about him peeing on girls and it was just taken as banter. -u/notimeforhaste<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128009.jpg" style="width:100%"><br>
 
-###### 30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
+###### 4. Takeshi 69 doing some disgusting sh*t with a kid and somehow got out of prison soon after and going straight back to making music and even collaborating with other rappers.Yet the only problem I hear people say about him is he snitched. Gotta love the priorities -u/TheNameless00<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128010.jpg" style="width:100%"><br>
 
-## <a href="#3" id="2">21 Comments That Really Nailed It</a><br>
+###### 5. Marcos Alonso, Chelsea footballer - drove drunk, speeding, crashed and killed a young woman.He got a suspended sentence, a small fine, and a short driving ban.There’s a reason rival football fans chant “Marcos Alonso, you know what you did!” -u/qbnaith<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128011.jpg" style="width:100%"><br>
 
-###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+###### 6. Steven Tyler convinced the parents of a 14 year old groupie to sign over her guardian rights to him, essentially adopting her and then dating her at the same time. But wait, there’s more…he eventually gets her pregnant and then forces her to get an abortion.I don’t know if any criminal action was taken against him, but it’s still super messed up.-u/ohvaez<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128012.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+###### 7. Vince Neil from Motley Crue killing another musician by driving drunk and doing no jail time-u/Commercial_Reveal_14<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128013.jpg" style="width:100%"><br>
 
-###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+###### 8. Bill Wyman from the Rolling Stones raping Mandy Smith when she was thirteen. He was forty-seven. He said in his biography - She took my breath away - she was a woman at thirteen.Piss-poor word choice.-u/ArthurPounder<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128014.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+###### 9. Karl Malone impregnated a 13 year old at the age of 20. Also refused to pay 125 dollars a week in child support, though Im not sure if it was this child or from another woman but most people still just remember him as being the mailman from the 90s.-u/bshok<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128015.jpg" style="width:100%"><br>
 
-###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+###### 10. Chris Brown not only beat but strangled Rihanna while threatening to kill her and he still sells out entire stadiums.-u/puddlespuddled<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128016.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+###### 11. Roman Polanski f*cking kids and not being allowed in the US due to an outstanding arrest warrant for f*cking kids? He was applauded at the academy a few years back.-u/Catdaddy33<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128017.jpg" style="width:100%"><br>
 
-###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+###### 12. Indian superstar Salman Khan has hit and run charges, killed endangered animals and has ruined the career of his ex girlfriends new boyfriend. He got acquitted from all the trials, makes one character cleansing film a year and people forget who he is.-u/BiggerButterBatter<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128018.jpeg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+###### 13. Pro skater Danny Way helped beat a guy to death because the guy was gay.-u/coyotiii<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128019.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+###### 14. James Charles solicited underage boys and tried to fly them out to meet him. He’s a predator but he is funny so it’s totally okay-u/comeformecuzimright<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128020.jpg" style="width:100%"><br>
 
-###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+###### 15. Teddy Kennedy drunk driving a young lass to her watery death at Chappaquiddick.-u/Successful_Gap8927<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128021.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+###### 16. Kirk Douglas (probably) raped a 14-year-old Natalie Wood. Her mother apparently told her to hush it up. He also (possibly) murdered an old girlfriend. They never found her body.-u/KidsTheseDaysYknow<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128022.jpg" style="width:100%"><br>
 
-###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+###### 17. Dr. Dres history of abuse is often overlooked and people just admire his money.-u/Pontus_Pilates<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128023.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+###### 18. I dont think he was ever arrested but wasnt Paul Walker dating under-age girls for the better part of a decade? One was 100% confirmed.-u/Shroom4Yoshi<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128024.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+###### 19. He has finally gotten the Me Too treatment, but Woody Allen had standing accusations of molesting his adopted child for 25 years, and went through a very public separation from Mia Farrow to marry her adopted daughter. These were ignored for a very long time because he was pumping out movies annually, and everyone loved him-u/missionman77<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128025.jpg" style="width:100%"><br>
 
-###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+###### 20. That piece of sh*t dog fighter Michael Vick.-u/Chiiaaa<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128026.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+###### 21. Pretty sure Ben Roethlisberger raped a woman in a bathroom.-u/djjd1996<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128027.jpg" style="width:100%"><br>
 
-###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+###### 22. Christopher Walken and Robert Wagners roles in the death of Natalie Wood-u/deathfaces<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128028.jpg" style="width:100%"><br>
 
-###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+###### 23. Theres the numerous musicians from the 1950s-1980s who knowingly raped young teenage girls. This isnt even a case of changing standards. Even back then some of what these guys were doing was thought badly of. Elvis was criticized for marrying a 14-year-old girl. Jimmy Page (Led Zeppelin) had a 14-year-old girl kidnapped and dated her for two years.-u/water_bottle1776<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128029.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+###### 24. Andy Dick regularly seems to sexually assault people on film. He also has a bunch of public urination situations including in front of little kids. Somehow that guy is still a free man and not behind bars.-u/Ganja420Preneur<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128030.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
-
-###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+###### 25. Matthew Broderick killed someone in a car crash when he was being clearly negligent-u/sorryladiesiamtaken<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128031.jpg" style="width:100%"><br>
 
 ## <a href="#4" id="3">22 Awesome Things That Are Cool to Look At </a><br>
 
@@ -219,47 +218,67 @@ Last updated: 03/22/2022-17:11:31
 
 ###### 32. This is only ok if hes a dog<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
 
-## <a href="#6" id="5">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+## <a href="#6" id="5">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+###### 1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+###### 2. A Tiny Devil Vitrified In A Prism Of Glass<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+###### 3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+###### 4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+###### 5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+###### 6. A Neon Salesmans Sample Case, Circa 1935<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+###### 7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+###### 8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+###### 9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+###### 10. Hans Eijkelboom, With My Family (1973)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+###### 11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+###### 12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+###### 13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+###### 14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+###### 15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+###### 16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+###### 17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+###### 18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+###### 19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+###### 20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+
+###### 21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+
+###### 22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+
+###### 23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+
+###### 24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+
+###### 25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
+
+###### 26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
+
+###### 27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
+
+###### 28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
+
+###### 29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
+
+###### 30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
 
 ## <a href="#7" id="6">25 Traumatizing Films That Really Messed Us Up</a><br>
 
@@ -324,7 +343,183 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 ###### 19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
 <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
 
-## <a href="#8" id="7">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
+## <a href="#8" id="7">22 People Whose Day's Going Worse Than Yours</a><br>
+
+###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
+
+###### 2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
+
+###### 3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
+
+###### 4. “My car did this on my way to school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
+
+###### 5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
+
+###### 7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
+
+###### 11. “It was just some fuckin butter dude relax.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
+
+###### 12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
+
+###### 14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
+
+###### 15. “Door handle broke off at the gas station… With the car running.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
+
+###### 16. “Forgot a drinkable yogurt bottle in my car and it exploded..”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
+
+###### 17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
+
+###### 18. “A McLaren that got hit by a loose truck wheel.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
+
+###### 19. “My customer’s new RAV4 that she waited 3 months for…”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
+
+###### 20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
+
+###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
+
+## <a href="#9" id="8">22 Best Mustaches of All Time</a><br>
+
+###### 1. Tom Selleck - The one and only.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
+
+###### 2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
+
+###### 3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
+
+###### 4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
+
+###### 5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
+
+###### 6. Nick Offerman - Three words. Ron Freaking Swanson.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
+
+###### 7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
+
+###### 8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
+
+###### 9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
+
+###### 10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
+
+###### 11. Burt Reynolds - Epitome of the man, the myth, and the legend.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
+
+###### 12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
+
+###### 13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
+
+###### 14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
+
+###### 15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
+
+###### 16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
+
+###### 17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
+
+###### 18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
+
+###### 19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
+
+###### 20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
+
+###### 21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
+
+###### 22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
+
+## <a href="#10" id="9">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+
+## <a href="#11" id="10">21 Comments That Really Nailed It</a><br>
+
+###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+
+###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+
+###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+
+###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+
+###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+
+###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+
+###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+
+###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+
+###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+
+###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+
+## <a href="#12" id="11">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
 ###### 1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
 
@@ -391,146 +586,4 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 ###### 32. Was watching Atlantis: The Lost Empire (2001) and noticed this fish making the same face as Milo.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128175.jpg" style="width:100%"><br>
 
 ###### 33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
-
-## <a href="#9" id="8">25 Celebrities Who Got Away With Committing Crimes</a><br>
-
-###### 1. Tom Cruise uses slave labor provided by the Church of Scientology to take care of his personal needs and has never once faced legal repercussions for human trafficking nor wage theft.-u/hockey_stick<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128007.jpg" style="width:100%"><br>
-
-###### 2. Didn’t that nut case Shia Ledouche beat the hell out of some dude for the hat he was wearing? I don’t think he served time for that.-u/tdmmnnl<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128008.jpg" style="width:100%"><br>
-
-###### 3. Definitely the R. Kelly sh*t. The fact that when I was in secondary school there were jokes about him peeing on girls and it was just taken as banter. -u/notimeforhaste<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128009.jpg" style="width:100%"><br>
-
-###### 4. Takeshi 69 doing some disgusting sh*t with a kid and somehow got out of prison soon after and going straight back to making music and even collaborating with other rappers.Yet the only problem I hear people say about him is he snitched. Gotta love the priorities -u/TheNameless00<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128010.jpg" style="width:100%"><br>
-
-###### 5. Marcos Alonso, Chelsea footballer - drove drunk, speeding, crashed and killed a young woman.He got a suspended sentence, a small fine, and a short driving ban.There’s a reason rival football fans chant “Marcos Alonso, you know what you did!” -u/qbnaith<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128011.jpg" style="width:100%"><br>
-
-###### 6. Steven Tyler convinced the parents of a 14 year old groupie to sign over her guardian rights to him, essentially adopting her and then dating her at the same time. But wait, there’s more…he eventually gets her pregnant and then forces her to get an abortion.I don’t know if any criminal action was taken against him, but it’s still super messed up.-u/ohvaez<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128012.jpg" style="width:100%"><br>
-
-###### 7. Vince Neil from Motley Crue killing another musician by driving drunk and doing no jail time-u/Commercial_Reveal_14<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128013.jpg" style="width:100%"><br>
-
-###### 8. Bill Wyman from the Rolling Stones raping Mandy Smith when she was thirteen. He was forty-seven. He said in his biography - She took my breath away - she was a woman at thirteen.Piss-poor word choice.-u/ArthurPounder<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128014.jpg" style="width:100%"><br>
-
-###### 9. Karl Malone impregnated a 13 year old at the age of 20. Also refused to pay 125 dollars a week in child support, though Im not sure if it was this child or from another woman but most people still just remember him as being the mailman from the 90s.-u/bshok<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128015.jpg" style="width:100%"><br>
-
-###### 10. Chris Brown not only beat but strangled Rihanna while threatening to kill her and he still sells out entire stadiums.-u/puddlespuddled<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128016.jpg" style="width:100%"><br>
-
-###### 11. Roman Polanski f*cking kids and not being allowed in the US due to an outstanding arrest warrant for f*cking kids? He was applauded at the academy a few years back.-u/Catdaddy33<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128017.jpg" style="width:100%"><br>
-
-###### 12. Indian superstar Salman Khan has hit and run charges, killed endangered animals and has ruined the career of his ex girlfriends new boyfriend. He got acquitted from all the trials, makes one character cleansing film a year and people forget who he is.-u/BiggerButterBatter<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128018.jpeg" style="width:100%"><br>
-
-###### 13. Pro skater Danny Way helped beat a guy to death because the guy was gay.-u/coyotiii<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128019.jpg" style="width:100%"><br>
-
-###### 14. James Charles solicited underage boys and tried to fly them out to meet him. He’s a predator but he is funny so it’s totally okay-u/comeformecuzimright<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128020.jpg" style="width:100%"><br>
-
-###### 15. Teddy Kennedy drunk driving a young lass to her watery death at Chappaquiddick.-u/Successful_Gap8927<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128021.jpg" style="width:100%"><br>
-
-###### 16. Kirk Douglas (probably) raped a 14-year-old Natalie Wood. Her mother apparently told her to hush it up. He also (possibly) murdered an old girlfriend. They never found her body.-u/KidsTheseDaysYknow<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128022.jpg" style="width:100%"><br>
-
-###### 17. Dr. Dres history of abuse is often overlooked and people just admire his money.-u/Pontus_Pilates<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128023.jpg" style="width:100%"><br>
-
-###### 18. I dont think he was ever arrested but wasnt Paul Walker dating under-age girls for the better part of a decade? One was 100% confirmed.-u/Shroom4Yoshi<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128024.jpg" style="width:100%"><br>
-
-###### 19. He has finally gotten the Me Too treatment, but Woody Allen had standing accusations of molesting his adopted child for 25 years, and went through a very public separation from Mia Farrow to marry her adopted daughter. These were ignored for a very long time because he was pumping out movies annually, and everyone loved him-u/missionman77<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128025.jpg" style="width:100%"><br>
-
-###### 20. That piece of sh*t dog fighter Michael Vick.-u/Chiiaaa<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128026.jpg" style="width:100%"><br>
-
-###### 21. Pretty sure Ben Roethlisberger raped a woman in a bathroom.-u/djjd1996<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128027.jpg" style="width:100%"><br>
-
-###### 22. Christopher Walken and Robert Wagners roles in the death of Natalie Wood-u/deathfaces<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128028.jpg" style="width:100%"><br>
-
-###### 23. Theres the numerous musicians from the 1950s-1980s who knowingly raped young teenage girls. This isnt even a case of changing standards. Even back then some of what these guys were doing was thought badly of. Elvis was criticized for marrying a 14-year-old girl. Jimmy Page (Led Zeppelin) had a 14-year-old girl kidnapped and dated her for two years.-u/water_bottle1776<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128029.jpg" style="width:100%"><br>
-
-###### 24. Andy Dick regularly seems to sexually assault people on film. He also has a bunch of public urination situations including in front of little kids. Somehow that guy is still a free man and not behind bars.-u/Ganja420Preneur<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128030.jpg" style="width:100%"><br>
-
-###### 25. Matthew Broderick killed someone in a car crash when he was being clearly negligent-u/sorryladiesiamtaken<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128031.jpg" style="width:100%"><br>
-
-## <a href="#10" id="9">22 Best Mustaches of All Time</a><br>
-
-###### 1. Tom Selleck - The one and only.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
-
-###### 2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
-
-###### 3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
-
-###### 4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
-
-###### 5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
-
-###### 6. Nick Offerman - Three words. Ron Freaking Swanson.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
-
-###### 7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
-
-###### 8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
-
-###### 9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
-
-###### 10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
-
-###### 11. Burt Reynolds - Epitome of the man, the myth, and the legend.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
-
-###### 12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
-
-###### 13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
-
-###### 14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
-
-###### 15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
-
-###### 16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
-
-###### 17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
-
-###### 18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
-
-###### 19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
-
-###### 20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
-
-###### 21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
-
-###### 22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
-
-## <a href="#11" id="10">22 People Whose Day's Going Worse Than Yours</a><br>
-
-###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
-
-###### 2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
-
-###### 3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
-
-###### 4. “My car did this on my way to school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
-
-###### 5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
-
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
-
-###### 7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
-
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
-
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
-
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
-
-###### 11. “It was just some fuckin butter dude relax.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
-
-###### 12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
-
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
-
-###### 14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
-
-###### 15. “Door handle broke off at the gas station… With the car running.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
-
-###### 16. “Forgot a drinkable yogurt bottle in my car and it exploded..”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
-
-###### 17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
-
-###### 18. “A McLaren that got hit by a loose truck wheel.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
-
-###### 19. “My customer’s new RAV4 that she waited 3 months for…”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
-
-###### 20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
-
-###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
