@@ -48,14 +48,14 @@ class memerSpider(scrapy.Spider):
 		titles = response.xpath('//div[@class="overlay gridOverlay"]/h2/text()')# Context/Caption for meme
 		links = response.xpath('//li[@class="galleryListItem"]//img/@data-src') # Link to image
 		nextNumb = self.numb + 1 # If not interested in this meme dump, link to next dump on page
-		html = f'## <a href="#{nextNumb}" id="{self.numb}">{header}</a><br>\n\n'
+		html = f'## <a href="#linky{nextNumb}" id="linky{self.numb}">{header}</a><br>\n\n'
 
 		for item in zip(titles, links):
 			title = item[0].get().replace('"', '').replace("'", '').replace('\t', '')
 			link = item[1].get()
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
-				html += f'###### {title}<br><img src="{link}" style="width:100%"><br>\n\n'
+				html += f'<span style="font-size:10em">{title}</span><br><img src="{link}" style="width:100%"><br>\n\n'
 
 		with open(self.outputHtml, 'a+', encoding='utf-8') as w: 
 			w.write(html)
