@@ -1,155 +1,123 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/23/2022-17:11:31
+Last updated: 03/23/2022-18:11:31
 <br>
-## <a href="#linky2" id="linky1">Best '90s Terms That Completely Faded Away</a><br>
+## <a href="#linky2" id="linky1">25 People Of Walmart In Their Natural Habitat</a><br>
 
-<span style="font-size:4em">1. No doy! -u/XxBoognishxX
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The sign says it all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Master Chief really let himself go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. At least its not in the food section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Here comes the bride down aisle 6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Who needs a shopping cart when you have a head?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Roar XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Now thats Christmas Spirit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Relationship goals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The mountains are blue so you know its cold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Just trying to lighten the mood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Sometimes you just need a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Umm excuse me miss, there is something growing out of your head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Exsqueeze me.
-
--u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. The Pink Panther of Walmart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+<span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">32 Top Notch Tweets To Amuse Yourself</a><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128731.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Chicken, grapes, celery, and orange soda. A midwestern classic!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/050150/87128418/superman.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128732.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Zoom procedures need to update ASAP!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128733.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128734.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. QR codes have gone too far!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128735.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Congrats to someone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128736.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128737.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. What is it with these two? Nobody knows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128738.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128739.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128740.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. A Batman movie has scenes at night? What a concept</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126577.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128741.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128742.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128743.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Name a worse feeling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128744.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128745.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. When will they stop knocking?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128746.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128747.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128748.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Bic needs to step their game up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128749.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128750.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128751.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128752.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128753.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128754.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Sometimes you just need a quick splash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128755.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I want what shes having</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128756.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. What happens if you want to buy one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128757.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128758.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. I hope this works four them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128759.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128760.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128761.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126609.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. This is only ok if hes a dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">27 Fresh Memes That Merged With the Dankness</a><br>
 
@@ -303,175 +271,331 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">23. Anxiety. One time I told someone I had anxiety and they said “at least you don’t have depression”-u/DolphinPlayz123</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100146/87128879/0.png" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">50 Tinder Convos that Range From Hilarious to Cringe</a><br>
+## <a href="#linky7" id="linky6">25 Disappointing Things We Keep Going Back To</a><br>
 
-<span style="font-size:4em">1. The savagery is absolute with this woman!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123400.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Auditioning for film/theatre-u/Ka_Chow1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123411.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My job as a teacher…-u/newenglandredshirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Game, set, and match.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123392.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Any competitive multiplayer videogame with teammates-u/Flashdime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123413.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Trying to enjoy my free time like I used to-u/ICODE72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Why do people think this kind of crap actually works?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123393.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Making non awkward conversation with strangers.-u/Key_Set_7249</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123417.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Growing indoor plants-u/TruthOf42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Sometimes you have to get creative with your rejection techniques.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123394.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Monday, Tuesday, Wednesday, Thursday, Friday-u/JessKaye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123408.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The Toronto Maple Leafs-u/CrazyCanadian1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. She knows her worth, and isnt afraid to show it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123395.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Relationships-u/thatdiscgolfgirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123409.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Trying to keep in contact with my one sided friendships-u/sydthefuckdown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hes either not a fan of Journey, or just dense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123396.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Interviewing for a good paying job-u/SixPenceTheRicher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123414.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Getting sober-u/guntmuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Then you should have known it wasnt going to work, genius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123397.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Claw machines-u/DeezNutsOverdose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Might not want to mess around with this one... real Lorena Bobbitt vibes going on here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123398.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Ordering fries from home. They always arrive cold.-u/dizaster11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123416.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Tinder. My sister has literally hundreds of matches on it.I have like, 4 and none have ever replied.-u/LeDevilsAdvocate2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Does that answer your question, hot rod?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123399.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Life I’m not suicidal. Just really tired.-u/politicaldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128869.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123402.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Thinking my job will get better-u/itzFinners</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When you cant help yourself from spewing cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123404.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Trusting other people.-u/PackageIllustrious90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123418.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The sushi at Costco.-u/boopandkitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Another thirsty dude murdered by words.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123405.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Trying to lose weight.-u/sandenema</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128873.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123419.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Smoked turkey drumsticks.-u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Same.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123406.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Twizzlers. They look and smell like they might be tasty but they always just taste like vaguely cherry flavored wax.-u/SmartAlec105</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123410.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. My relationship with my parents-u/traizer-blaizer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Shes right, and got the double insult to boot!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123401.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Taco Bell. I mean it was never really good but in the last couple of years it has fallen off the cliff. For some reason every couple of months I’ll give it another shot just to be disappointed and throw most of it away and say never again.-u/Pdt801</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128877.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123415.jpg" style="width:100%"><br>
+## <a href="#linky8" id="linky7">30 Disturbing Meals People Will Never Forget</a><br>
 
-<span style="font-size:4em">26. Ooof... thats gonna be damn near impossible to recover from!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123439.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123420.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123421.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123422.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123423.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123424.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123425.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. Making ultimatums is never the best way to win someone over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123412.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123426.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123427.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. No reply.. no surprise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123403.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123428.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123429.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123430.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. Talk about the pot calling the kettle black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123407.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123431.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123432.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123433.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123434.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123435.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123436.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123437.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">48. No wonder this guy cant find a date... with his mother hovering over is his love life like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123391.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123438.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123440.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">32 Top Notch Tweets To Amuse Yourself</a><br>
+<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Chicken, grapes, celery, and orange soda. A midwestern classic!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/050150/87128418/superman.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Zoom procedures need to update ASAP!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126579.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126580.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. QR codes have gone too far!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126581.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Congrats to someone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126591.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">Best '90s Terms That Completely Faded Away</a><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126582.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. No doy! -u/XxBoognishxX
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. What is it with these two? Nobody knows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126596.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126583.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126584.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A Batman movie has scenes at night? What a concept</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126577.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126588.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126589.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Name a worse feeling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126590.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126592.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. When will they stop knocking?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126593.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126594.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126595.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Bic needs to step their game up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126597.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126599.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126600.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126587.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126601.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126602.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Sometimes you just need a quick splash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126603.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. I want what shes having</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126604.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. What happens if you want to buy one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126605.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126606.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Exsqueeze me.
+
+-u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. I hope this works four them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126607.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126610.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126608.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">47 Choice Randoms For Your Weekly Enjoyment</a><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126609.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. This is only ok if hes a dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128731.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
+
+<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
 
 <span style="font-size:4em">1. That one thing that prevents you from closing the drawer. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128447.jpg" style="width:100%"><br>
 
@@ -524,7 +648,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">25. Several books of matches from clubs, bars, restaurants that have been closed over 20 years. -u/choopie-chup-chup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128468.jpeg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">54 People Getting Called Out for Lying on the Internet</a><br>
+## <a href="#linky13" id="linky12">54 People Getting Called Out for Lying on the Internet</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
 
@@ -634,177 +758,105 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Disappointing Things We Keep Going Back To</a><br>
+## <a href="#linky14" id="linky13">50 Tinder Convos that Range From Hilarious to Cringe</a><br>
 
-<span style="font-size:4em">1. Auditioning for film/theatre-u/Ka_Chow1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128852.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The savagery is absolute with this woman!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My job as a teacher…-u/newenglandredshirt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128853.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Any competitive multiplayer videogame with teammates-u/Flashdime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128856.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Game, set, and match.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Trying to enjoy my free time like I used to-u/ICODE72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128857.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Making non awkward conversation with strangers.-u/Key_Set_7249</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128858.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Why do people think this kind of crap actually works?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Growing indoor plants-u/TruthOf42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128859.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Monday, Tuesday, Wednesday, Thursday, Friday-u/JessKaye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128860.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Sometimes you have to get creative with your rejection techniques.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The Toronto Maple Leafs-u/CrazyCanadian1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128861.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Relationships-u/thatdiscgolfgirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128862.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. She knows her worth, and isnt afraid to show it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Trying to keep in contact with my one sided friendships-u/sydthefuckdown</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128863.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Interviewing for a good paying job-u/SixPenceTheRicher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128864.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hes either not a fan of Journey, or just dense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Getting sober-u/guntmuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128865.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Claw machines-u/DeezNutsOverdose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128866.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Then you should have known it wasnt going to work, genius.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Ordering fries from home. They always arrive cold.-u/dizaster11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128867.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Might not want to mess around with this one... real Lorena Bobbitt vibes going on here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Tinder. My sister has literally hundreds of matches on it.I have like, 4 and none have ever replied.-u/LeDevilsAdvocate2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128868.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Life I’m not suicidal. Just really tired.-u/politicaldan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128869.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Does that answer your question, hot rod?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Thinking my job will get better-u/itzFinners</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128870.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Trusting other people.-u/PackageIllustrious90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128871.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. When you cant help yourself from spewing cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The sushi at Costco.-u/boopandkitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128872.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Trying to lose weight.-u/sandenema</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128873.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Another thirsty dude murdered by words.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Smoked turkey drumsticks.-u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128874.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Twizzlers. They look and smell like they might be tasty but they always just taste like vaguely cherry flavored wax.-u/SmartAlec105</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128875.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Same.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. My relationship with my parents-u/traizer-blaizer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128876.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Taco Bell. I mean it was never really good but in the last couple of years it has fallen off the cliff. For some reason every couple of months I’ll give it another shot just to be disappointed and throw most of it away and say never again.-u/Pdt801</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128877.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Shes right, and got the double insult to boot!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123401.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Ooof... thats gonna be damn near impossible to recover from!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. Making ultimatums is never the best way to win someone over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. No reply.. no surprise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. Talk about the pot calling the kettle black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+<span style="font-size:4em">48. No wonder this guy cant find a date... with his mother hovering over is his love life like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">30 Disturbing Meals People Will Never Forget</a><br>
-
-<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123440.jpg" style="width:100%"><br>
 
