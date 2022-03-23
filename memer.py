@@ -55,7 +55,7 @@ class memerSpider(scrapy.Spider):
 			link = item[1].get()
 
 			if any(extension in link for extension in ['.jpg', '.jpeg', '.png', '.gif']): # Do not include link if not image (ads, social media, etc...)
-				html += f'<span style="font-size:10em">{title}</span><br><img src="{link}" style="width:100%"><br>\n\n'
+				html += f'<span style="font-size:4em">{title}</span><br><img src="{link}" style="width:100%"><br>\n\n'
 
 		with open(self.outputHtml, 'a+', encoding='utf-8') as w: 
 			w.write(html)
