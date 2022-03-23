@@ -1,143 +1,183 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/22/2022-21:11:33
+Last updated: 03/22/2022-22:11:31
 <br>
-## <a href="#2" id="1">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+## <a href="#2" id="1">54 People Getting Called Out for Lying on the Internet</a><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128731.jpg" style="width:100%"><br>
+###### 2. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123126/87128943/87111810.png" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128732.jpg" style="width:100%"><br>
+###### 3. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123152/87128948/87117409.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128733.jpg" style="width:100%"><br>
+###### 4. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123103/87128939/87111803.jpg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128734.jpg" style="width:100%"><br>
+###### 5. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123033/87128935/87111801.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128735.jpg" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123237/87128956/87122147.jpg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128736.jpg" style="width:100%"><br>
+###### 7. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123045/87128936/87111798.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128737.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123052/87128937/87111799.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128738.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123021/87128934/87111797.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128739.jpg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123137/87128945/87117406.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128740.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123106/87128940/87111805.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128741.jpg" style="width:100%"><br>
+###### 12. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123114/87128941/87111807.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128742.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123128/87128944/87117404.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128743.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123148/87128947/87117408.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128744.jpg" style="width:100%"><br>
+###### 15. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123159/87128949/87117411.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128745.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123203/87128950/87117412.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128746.jpg" style="width:100%"><br>
+###### 17. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123117/87128942/87111808.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128747.jpg" style="width:100%"><br>
+###### 18. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123210/87128951/87117413.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128748.jpg" style="width:100%"><br>
+###### 19. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123214/87128952/87117415.png" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128749.jpg" style="width:100%"><br>
+###### 20. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123221/87128953/87117416.jpg" style="width:100%"><br>
 
-###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128750.jpg" style="width:100%"><br>
+###### 21. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123225/87128954/87117417.jpg" style="width:100%"><br>
 
-###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128751.jpg" style="width:100%"><br>
+###### 22. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123232/87128955/87122145.jpg" style="width:100%"><br>
 
-###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128752.jpg" style="width:100%"><br>
+###### 23. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123243/87128957/87122148.jpg" style="width:100%"><br>
 
-###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128753.jpg" style="width:100%"><br>
+###### 24. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123249/87128958/87122152.jpg" style="width:100%"><br>
 
-###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128754.jpg" style="width:100%"><br>
+###### 25. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123254/87128959/87122153.jpg" style="width:100%"><br>
 
-###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128755.jpg" style="width:100%"><br>
+###### 26. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123301/87128960/87122155.png" style="width:100%"><br>
 
-###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128756.jpg" style="width:100%"><br>
+###### 27. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123306/87128961/87127367.jpg" style="width:100%"><br>
 
-###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128757.jpg" style="width:100%"><br>
+###### 28. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123311/87128962/87127368.jpg" style="width:100%"><br>
 
-###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128758.jpg" style="width:100%"><br>
+###### 29. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123055/87128938/87111802.jpg" style="width:100%"><br>
 
-###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128759.jpg" style="width:100%"><br>
+###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128915.jpeg" style="width:100%"><br>
 
-###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128760.jpg" style="width:100%"><br>
+###### 31. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123317/87128963/87127369.jpg" style="width:100%"><br>
 
-###### 32. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128761.jpg" style="width:100%"><br>
+###### 32. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123323/87128964/87127370.png" style="width:100%"><br>
 
-###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128762.jpg" style="width:100%"><br>
+###### 33. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123328/87128965/87127371.jpg" style="width:100%"><br>
 
-###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128763.jpg" style="width:100%"><br>
+###### 34. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123333/87128966/87127373.jpg" style="width:100%"><br>
 
-###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128764.jpg" style="width:100%"><br>
+###### 35. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123339/87128967/87127375.jpg" style="width:100%"><br>
 
-###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128765.jpg" style="width:100%"><br>
+###### 36. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123344/87128968/87127376.jpg" style="width:100%"><br>
 
-###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128766.jpg" style="width:100%"><br>
+###### 37. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123356/87128970/87127379.jpg" style="width:100%"><br>
 
-###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128767.jpg" style="width:100%"><br>
+###### 38. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123350/87128969/87127378.jpg" style="width:100%"><br>
 
-###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128768.jpg" style="width:100%"><br>
+###### 39. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123401/87128971/87127380.png" style="width:100%"><br>
 
-###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128769.jpg" style="width:100%"><br>
+###### 40. <br><img src="https://cdn.ebaumsworld.com/2022/03/22/123407/87128972/87127381.jpg" style="width:100%"><br>
 
-###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128770.jpg" style="width:100%"><br>
+###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128925.png" style="width:100%"><br>
 
-###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128771.jpg" style="width:100%"><br>
+###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128916.jpeg" style="width:100%"><br>
 
-###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128772.jpg" style="width:100%"><br>
+###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128913.png" style="width:100%"><br>
 
-###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128773.jpg" style="width:100%"><br>
+###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128917.jpeg" style="width:100%"><br>
 
-###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128774.jpg" style="width:100%"><br>
+###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128918.jpeg" style="width:100%"><br>
 
-###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128775.jpg" style="width:100%"><br>
+###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128920.jpeg" style="width:100%"><br>
 
-###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
+###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128919.jpeg" style="width:100%"><br>
 
-## <a href="#3" id="2">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+###### 48. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128921.png" style="width:100%"><br>
 
-###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+###### 49. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128922.jpeg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+###### 50. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128923.jpeg" style="width:100%"><br>
 
-###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+###### 51. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128924.png" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+###### 52. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128914.jpeg" style="width:100%"><br>
 
-###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+###### 53. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128926.jpeg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+###### 54. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
 
-###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+## <a href="#3" id="2">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+###### 1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+###### 2. During a scene in The Princess Diaries (2001), Anne Hathaway falls on the bleachers. This was not meant to happen, but it was such a genuine and funny accident, that the director, Garry Marshall, decided to keep the scene for the final cut.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128141.jpg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+###### 3. In Up(2009), Carl wears a bow tie at the funeral because he never learned to tie a tie without Ellie<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128142.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+###### 4. At the end of Monster, Inc. (2001), Sully says that laughter is ten times more powerful than scream. This is represented by the size of the new yellow canisters, which are much larger than their counterparts seen at the beginning of the movie.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128143.jpg" style="width:100%"><br>
 
-###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+###### 5. In Lilo and Stitch (2002), Disney+ has an alternative edited version where Lilo is hiding behind a pizza box instead of a dryer to satisfy safety concerns about children hiding in dryers<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128144.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+###### 6. In The Emperors New Groove (2000) when Kronk tells Yzma Dont drink the wine, its poison she pours the tainted wine into a nearby cactus. As the scene progresses, the cactus changes shape from a normal cactus, to a llama-shaped cactus, foreshadowing Kuzcos fate.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128145.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+###### 7. In the scene Thats How You Know from Enchanted (2007), some of the dancers also played Chimney Sweeps in Mary Poppins (1964)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128146.jpg" style="width:100%"><br>
 
-###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+###### 8. In Spirited Away (2001), a little jingle can be heard the first time No-Face sees Chihiro. After this, the same jingle plays every time he appears and tries to gain her attention throughout the movie. After she eventually befriends him, it stops being heard, hinting that his obsession for her ended.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128147.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+###### 9. In Holes (2003) the boat Mary Lou paint changes slightly in a flashback, the first appearance in which the boat is older has no paint, the second appearance in a flashback in which the boat is slightly younger has flaked and faded blue paint.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128149.jpg" style="width:100%"><br>
 
-###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+###### 10. In The Princess and the Frog (2009), Dr. Facilier reads (his?) the movies future in his opening number. He reveals The Hanged Man, The Devil, and 5 of Pentacles/4 of Swords in his first draw, and on his second, he reveals The Hermit, The Ace of Swords, and The Queen of Wands. (details in comments)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128150.jpg" style="width:100%"><br>
 
-###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+###### 11. In The Incredibles (2004) , Bomb Voyage was a French mime who had turned to a life of crime. In Ratatouille (2007) , we see him as an actual mime working the streets of Paris. Both movies were directed by Brad Bird.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128151.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+###### 12. In Atlantis The Lost Empire (2001) ,before returning to the surface each members receive a crystal as a gift, once they did the return trip we can see that each members turned his into a more discreet jewel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128152.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+###### 13. In one of the final scenes of the movie Freaky Friday (2003), Lindsay Lohans character plays a guitar solo inside of Jamie Lee Curtis, playing her mother. In real life, Curtis actually learned and played the solo as showed in the film<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128153.jpg" style="width:100%"><br>
+
+###### 14. In (2007) Meet the Robinsons when Wilber says who Mr Robinson looks like he says a different person and a different portrait appears depending on the dub of the film. In the English dub he says he looks like Tom Selleck in the the Latin Spanish dub he says he El Puma José Luis Rodríguez<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128154.jpg" style="width:100%"><br>
+
+###### 15. Bolt (2008). The address on Bolt’s tag is for the Disney Animation Building<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128155.jpg" style="width:100%"><br>
+
+###### 16. In Ratatouille (2007), the first time we see Egos office, his blinds are closed. After eating Remys Ratatouille, he has his blinds open as he stares outside with a little perspective.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128156.jpg" style="width:100%"><br>
+
+###### 17. If you look closely after the lightning strikes the umbrella Wall-E is holding the electricity from the bolt charges his battery back to full<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128157.jpg" style="width:100%"><br>
+
+###### 18. In The Chronicles of Narnia: The Lion, the Witch and the Wardrobe (2005), the crown in which the White Witch wears melts and decreases in size when she starts to lose her power.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128158.jpg" style="width:100%"><br>
+
+###### 19. In the beginning of 102 Dalmatians (2000) while Cruella De Vil is locked up. Her prisoner cap shows that she is prisoner #6660.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128159.jpg" style="width:100%"><br>
+
+###### 20. In “Treasure Planet”(2002), the name of the ship featured in the film is “R.L.S Legacy”. RLS stands for Robert Louis Stevenson, the author of the book “Treasure Island”, which the film was based on<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128161.jpg" style="width:100%"><br>
+
+###### 21. In Pirates Dead Mans Chest, Gibbs asks Norrington what his story is, and he replies same as yours just one chapter behind. Moments later Norrington is thrown into the same pig pen in Tortuga that Gibbs was found in at the beginning of The Black Pearl, one movie behind.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128162.jpg" style="width:100%"><br>
+
+###### 22. [An Extremely Goofy Movie]- Seems to have a college student who is akin to Bigfoot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128163.jpg" style="width:100%"><br>
+
+###### 23. In Tuck Everlasting (2002), the Fosters’ clock is running perfectly fine, while the Tucks’ clock is broken and covered in dust and cobwebs. This signifies that the Tucks themselves have been frozen in time as well<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128164.jpg" style="width:100%"><br>
+
+###### 24. For Monsters Inc. (2001) due to Mary Gibbs who played Boo being so young, it was difficult to get her to stay in the recording booth to perform her lines. So they decided to follow her around with a microphone and cut her lines together using the random things/noises she say whilst playing.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128165.jpg" style="width:100%"><br>
+
+###### 25. In Cars (2006) the sign above Mcqueen as he is dragged into court roughly translates to, “The way of justice is paved with truth”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128166.jpg" style="width:100%"><br>
+
+###### 26. Stan Lee makes a surprising non-Marvel cameo in The Princess Diaries 2 (2004).<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128167.jpg" style="width:100%"><br>
+
+###### 27. In National Treasure (2004), Ben’s Grandfather’s eye fades out last over the pyramid, creating The Eye Of Providence<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128168.jpg" style="width:100%"><br>
+
+###### 28. In The Lion King 1 1/2 (2004), you can see a hidden mickey in the stars in the top right.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128169.jpg" style="width:100%"><br>
+
+###### 29. In Finding Nemo (2003), the dentist attended the Pixar University school of Dentistry.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128171.jpg" style="width:100%"><br>
+
+###### 30. In Enchanted (2007), the law firm that Robert works for is called “Churchill, Harline and Smith.” It was named after the songwriters of Snow White and the Seven Dwarfs (1937).<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128173.jpg" style="width:100%"><br>
+
+###### 31. In The Incredibles (2004) At Helen and Bob Parrs wedding in the second row are four of the Superheroes Edna later says died because of their capes. Thunderhead, Stratogayle, Meta Man, and Dynaguy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128174.jpg" style="width:100%"><br>
+
+###### 32. Was watching Atlantis: The Lost Empire (2001) and noticed this fish making the same face as Milo.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128175.jpg" style="width:100%"><br>
+
+###### 33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
 
 ## <a href="#4" id="3">32 Top Notch Tweets To Amuse Yourself</a><br>
 
@@ -320,121 +360,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 ###### 25. Several books of matches from clubs, bars, restaurants that have been closed over 20 years. -u/choopie-chup-chup<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128468.jpeg" style="width:100%"><br>
 
-## <a href="#7" id="6">22 Awesome Things That Are Cool to Look At </a><br>
-
-###### 1. “There was a pink Tesla in my parking lot this morning.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
-
-###### 2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
-
-###### 3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
-
-###### 4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
-
-###### 5. “This pan matches my sink.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
-
-###### 6. “These damaged phones on display next to a rollercoaster.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
-
-###### 7. “This weird egg my chicken laid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
-
-###### 8. $55,000 Gatling gun. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
-
-###### 9. “My wife saw this tree growing entirely on a wall.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
-
-###### 10. “My Venus Flytrap is flowering.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
-
-###### 11. “One of our cups came printed inside out.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
-
-###### 12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
-
-###### 13. “My chickens greeting me when I come home from work.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
-
-###### 14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
-
-###### 15. “This ikea plant that looks like a creature.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
-
-###### 16. “My flight had a window in the washroom.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
-
-###### 17. “Found Diehard in a grocery store today.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
-
-###### 18. “Three years worth of shark teeth found along the Florida coastline.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
-
-###### 19. “A duckling that hatched 12 hours ago.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
-
-###### 20. “All colors that the trim in my 100 year old house have been painted.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
-
-###### 21. “These crisps tell you the name of the person who made them.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
-
-###### 22. “A dedicated bench for Jim, some miles into a hiking trail.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
-
-## <a href="#8" id="7">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
-
-###### 1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
-
-###### 2. During a scene in The Princess Diaries (2001), Anne Hathaway falls on the bleachers. This was not meant to happen, but it was such a genuine and funny accident, that the director, Garry Marshall, decided to keep the scene for the final cut.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128141.jpg" style="width:100%"><br>
-
-###### 3. In Up(2009), Carl wears a bow tie at the funeral because he never learned to tie a tie without Ellie<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128142.jpg" style="width:100%"><br>
-
-###### 4. At the end of Monster, Inc. (2001), Sully says that laughter is ten times more powerful than scream. This is represented by the size of the new yellow canisters, which are much larger than their counterparts seen at the beginning of the movie.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128143.jpg" style="width:100%"><br>
-
-###### 5. In Lilo and Stitch (2002), Disney+ has an alternative edited version where Lilo is hiding behind a pizza box instead of a dryer to satisfy safety concerns about children hiding in dryers<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128144.jpg" style="width:100%"><br>
-
-###### 6. In The Emperors New Groove (2000) when Kronk tells Yzma Dont drink the wine, its poison she pours the tainted wine into a nearby cactus. As the scene progresses, the cactus changes shape from a normal cactus, to a llama-shaped cactus, foreshadowing Kuzcos fate.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128145.jpg" style="width:100%"><br>
-
-###### 7. In the scene Thats How You Know from Enchanted (2007), some of the dancers also played Chimney Sweeps in Mary Poppins (1964)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128146.jpg" style="width:100%"><br>
-
-###### 8. In Spirited Away (2001), a little jingle can be heard the first time No-Face sees Chihiro. After this, the same jingle plays every time he appears and tries to gain her attention throughout the movie. After she eventually befriends him, it stops being heard, hinting that his obsession for her ended.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128147.jpg" style="width:100%"><br>
-
-###### 9. In Holes (2003) the boat Mary Lou paint changes slightly in a flashback, the first appearance in which the boat is older has no paint, the second appearance in a flashback in which the boat is slightly younger has flaked and faded blue paint.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128149.jpg" style="width:100%"><br>
-
-###### 10. In The Princess and the Frog (2009), Dr. Facilier reads (his?) the movies future in his opening number. He reveals The Hanged Man, The Devil, and 5 of Pentacles/4 of Swords in his first draw, and on his second, he reveals The Hermit, The Ace of Swords, and The Queen of Wands. (details in comments)<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128150.jpg" style="width:100%"><br>
-
-###### 11. In The Incredibles (2004) , Bomb Voyage was a French mime who had turned to a life of crime. In Ratatouille (2007) , we see him as an actual mime working the streets of Paris. Both movies were directed by Brad Bird.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128151.jpg" style="width:100%"><br>
-
-###### 12. In Atlantis The Lost Empire (2001) ,before returning to the surface each members receive a crystal as a gift, once they did the return trip we can see that each members turned his into a more discreet jewel.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128152.jpg" style="width:100%"><br>
-
-###### 13. In one of the final scenes of the movie Freaky Friday (2003), Lindsay Lohans character plays a guitar solo inside of Jamie Lee Curtis, playing her mother. In real life, Curtis actually learned and played the solo as showed in the film<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128153.jpg" style="width:100%"><br>
-
-###### 14. In (2007) Meet the Robinsons when Wilber says who Mr Robinson looks like he says a different person and a different portrait appears depending on the dub of the film. In the English dub he says he looks like Tom Selleck in the the Latin Spanish dub he says he El Puma José Luis Rodríguez<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128154.jpg" style="width:100%"><br>
-
-###### 15. Bolt (2008). The address on Bolt’s tag is for the Disney Animation Building<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128155.jpg" style="width:100%"><br>
-
-###### 16. In Ratatouille (2007), the first time we see Egos office, his blinds are closed. After eating Remys Ratatouille, he has his blinds open as he stares outside with a little perspective.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128156.jpg" style="width:100%"><br>
-
-###### 17. If you look closely after the lightning strikes the umbrella Wall-E is holding the electricity from the bolt charges his battery back to full<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128157.jpg" style="width:100%"><br>
-
-###### 18. In The Chronicles of Narnia: The Lion, the Witch and the Wardrobe (2005), the crown in which the White Witch wears melts and decreases in size when she starts to lose her power.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128158.jpg" style="width:100%"><br>
-
-###### 19. In the beginning of 102 Dalmatians (2000) while Cruella De Vil is locked up. Her prisoner cap shows that she is prisoner #6660.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128159.jpg" style="width:100%"><br>
-
-###### 20. In “Treasure Planet”(2002), the name of the ship featured in the film is “R.L.S Legacy”. RLS stands for Robert Louis Stevenson, the author of the book “Treasure Island”, which the film was based on<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128161.jpg" style="width:100%"><br>
-
-###### 21. In Pirates Dead Mans Chest, Gibbs asks Norrington what his story is, and he replies same as yours just one chapter behind. Moments later Norrington is thrown into the same pig pen in Tortuga that Gibbs was found in at the beginning of The Black Pearl, one movie behind.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128162.jpg" style="width:100%"><br>
-
-###### 22. [An Extremely Goofy Movie]- Seems to have a college student who is akin to Bigfoot<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128163.jpg" style="width:100%"><br>
-
-###### 23. In Tuck Everlasting (2002), the Fosters’ clock is running perfectly fine, while the Tucks’ clock is broken and covered in dust and cobwebs. This signifies that the Tucks themselves have been frozen in time as well<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128164.jpg" style="width:100%"><br>
-
-###### 24. For Monsters Inc. (2001) due to Mary Gibbs who played Boo being so young, it was difficult to get her to stay in the recording booth to perform her lines. So they decided to follow her around with a microphone and cut her lines together using the random things/noises she say whilst playing.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128165.jpg" style="width:100%"><br>
-
-###### 25. In Cars (2006) the sign above Mcqueen as he is dragged into court roughly translates to, “The way of justice is paved with truth”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128166.jpg" style="width:100%"><br>
-
-###### 26. Stan Lee makes a surprising non-Marvel cameo in The Princess Diaries 2 (2004).<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128167.jpg" style="width:100%"><br>
-
-###### 27. In National Treasure (2004), Ben’s Grandfather’s eye fades out last over the pyramid, creating The Eye Of Providence<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128168.jpg" style="width:100%"><br>
-
-###### 28. In The Lion King 1 1/2 (2004), you can see a hidden mickey in the stars in the top right.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128169.jpg" style="width:100%"><br>
-
-###### 29. In Finding Nemo (2003), the dentist attended the Pixar University school of Dentistry.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128171.jpg" style="width:100%"><br>
-
-###### 30. In Enchanted (2007), the law firm that Robert works for is called “Churchill, Harline and Smith.” It was named after the songwriters of Snow White and the Seven Dwarfs (1937).<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128173.jpg" style="width:100%"><br>
-
-###### 31. In The Incredibles (2004) At Helen and Bob Parrs wedding in the second row are four of the Superheroes Edna later says died because of their capes. Thunderhead, Stratogayle, Meta Man, and Dynaguy.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128174.jpg" style="width:100%"><br>
-
-###### 32. Was watching Atlantis: The Lost Empire (2001) and noticed this fish making the same face as Milo.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128175.jpg" style="width:100%"><br>
-
-###### 33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
-
-## <a href="#9" id="8">25 Traumatizing Films That Really Messed Us Up</a><br>
+## <a href="#7" id="6">25 Traumatizing Films That Really Messed Us Up</a><br>
 
 ###### 1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
 <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
@@ -497,49 +423,187 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 ###### 19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
 <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
 
-## <a href="#10" id="9">21 Comments That Really Nailed It</a><br>
+## <a href="#8" id="7">22 People Whose Day's Going Worse Than Yours</a><br>
 
-###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
 
-###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+###### 2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
 
-###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+###### 3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
 
-###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+###### 4. “My car did this on my way to school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
 
-###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+###### 5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
 
-###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+###### 7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
 
-###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
 
-###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+###### 11. “It was just some fuckin butter dude relax.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
 
-###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+###### 12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
 
-###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+###### 14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
 
-###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+###### 15. “Door handle broke off at the gas station… With the car running.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
 
-###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+###### 16. “Forgot a drinkable yogurt bottle in my car and it exploded..”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
 
-###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+###### 17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
 
-###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+###### 18. “A McLaren that got hit by a loose truck wheel.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
 
-###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+###### 19. “My customer’s new RAV4 that she waited 3 months for…”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
 
-###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+###### 20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
 
-###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
+
+## <a href="#9" id="8">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128731.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128732.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128733.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128734.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128735.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128736.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128737.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128738.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128739.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128740.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128741.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128742.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128743.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128744.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128745.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128746.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128747.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128748.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128749.jpg" style="width:100%"><br>
+
+###### 21. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128750.jpg" style="width:100%"><br>
+
+###### 22. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128751.jpg" style="width:100%"><br>
+
+###### 23. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128752.jpg" style="width:100%"><br>
+
+###### 24. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128753.jpg" style="width:100%"><br>
+
+###### 25. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128754.jpg" style="width:100%"><br>
+
+###### 26. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128755.jpg" style="width:100%"><br>
+
+###### 27. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128756.jpg" style="width:100%"><br>
+
+###### 28. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128757.jpg" style="width:100%"><br>
+
+###### 29. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128758.jpg" style="width:100%"><br>
+
+###### 30. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128759.jpg" style="width:100%"><br>
+
+###### 31. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128760.jpg" style="width:100%"><br>
+
+###### 32. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128761.jpg" style="width:100%"><br>
+
+###### 33. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128762.jpg" style="width:100%"><br>
+
+###### 34. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128763.jpg" style="width:100%"><br>
+
+###### 35. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128764.jpg" style="width:100%"><br>
+
+###### 36. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128765.jpg" style="width:100%"><br>
+
+###### 37. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128766.jpg" style="width:100%"><br>
+
+###### 38. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128767.jpg" style="width:100%"><br>
+
+###### 39. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128768.jpg" style="width:100%"><br>
+
+###### 40. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128769.jpg" style="width:100%"><br>
+
+###### 41. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128770.jpg" style="width:100%"><br>
+
+###### 42. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128771.jpg" style="width:100%"><br>
+
+###### 43. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128772.jpg" style="width:100%"><br>
+
+###### 44. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128773.jpg" style="width:100%"><br>
+
+###### 45. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128774.jpg" style="width:100%"><br>
+
+###### 46. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128775.jpg" style="width:100%"><br>
+
+###### 47. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
+
+## <a href="#10" id="9">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+
+###### 1. <br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+
+###### 3. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+
+###### 5. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+
+###### 7. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+
+###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+
+###### 12. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+
+###### 15. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+
+###### 17. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+
+###### 18. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
 
 ## <a href="#11" id="10">22 Best Mustaches of All Time</a><br>
 
@@ -587,47 +651,93 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 
 ###### 22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
-## <a href="#12" id="11">22 People Whose Day's Going Worse Than Yours</a><br>
+## <a href="#12" id="11">21 Comments That Really Nailed It</a><br>
 
-###### 1. “My garlic bread caught on fire.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
+###### 1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
 
-###### 2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
+###### 2. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
 
-###### 3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
+###### 3. LOL, some people are just built differently I guess.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
 
-###### 4. “My car did this on my way to school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
+###### 4. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
 
-###### 5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
+###### 5. Poor Pete, just catching grief and shade from all sides.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
 
-###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
+###### 6. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
 
-###### 7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
+###### 7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
 
-###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
+###### 8. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
 
-###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
+###### 9. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
 
-###### 10. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
+###### 10. They got you on this one dude.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
 
-###### 11. “It was just some fuckin butter dude relax.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
+###### 11. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
 
-###### 12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
+###### 12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
 
-###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
+###### 13. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
 
-###### 14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
+###### 14. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
 
-###### 15. “Door handle broke off at the gas station… With the car running.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
+###### 15. Noooooo... He wasnt ready!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
 
-###### 16. “Forgot a drinkable yogurt bottle in my car and it exploded..”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
+###### 16. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
 
-###### 17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
+###### 17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
 
-###### 18. “A McLaren that got hit by a loose truck wheel.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
+###### 18. Hey if youre hot youre hot, who cares why!<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
 
-###### 19. “My customer’s new RAV4 that she waited 3 months for…”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
+###### 19. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
 
-###### 20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
+###### 20. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
 
-###### 21. “Friend notices funky taste in the work coffee. Finds this in the filter.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
+###### 21. When youre both technically correct.<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+
+## <a href="#13" id="12">22 Awesome Things That Are Cool to Look At </a><br>
+
+###### 1. “There was a pink Tesla in my parking lot this morning.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
+
+###### 2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
+
+###### 3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
+
+###### 4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
+
+###### 5. “This pan matches my sink.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
+
+###### 6. “These damaged phones on display next to a rollercoaster.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
+
+###### 7. “This weird egg my chicken laid.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
+
+###### 8. $55,000 Gatling gun. <br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
+
+###### 9. “My wife saw this tree growing entirely on a wall.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
+
+###### 10. “My Venus Flytrap is flowering.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
+
+###### 11. “One of our cups came printed inside out.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
+
+###### 12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
+
+###### 13. “My chickens greeting me when I come home from work.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
+
+###### 14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
+
+###### 15. “This ikea plant that looks like a creature.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
+
+###### 16. “My flight had a window in the washroom.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
+
+###### 17. “Found Diehard in a grocery store today.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
+
+###### 18. “Three years worth of shark teeth found along the Florida coastline.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
+
+###### 19. “A duckling that hatched 12 hours ago.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
+
+###### 20. “All colors that the trim in my 100 year old house have been painted.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
+
+###### 21. “These crisps tell you the name of the person who made them.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
+
+###### 22. “A dedicated bench for Jim, some miles into a hiking trail.”<br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
 
