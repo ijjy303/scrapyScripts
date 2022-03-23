@@ -1,47 +1,51 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/23/2022-08:11:31
+Last updated: 03/23/2022-09:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+## <a href="#linky2" id="linky1">22 Best Mustaches of All Time</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Tom Selleck - The one and only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Nick Offerman - Three words. Ron Freaking Swanson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Burt Reynolds - Epitome of the man, the myth, and the legend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
@@ -111,51 +115,47 @@ Last updated: 03/23/2022-08:11:31
 
 <span style="font-size:4em">33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">22 Awesome Things That Are Cool to Look At </a><br>
+## <a href="#linky4" id="linky3">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
 
-<span style="font-size:4em">1. “There was a pink Tesla in my parking lot this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “This pan matches my sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “These damaged phones on display next to a rollercoaster.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “This weird egg my chicken laid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. $55,000 Gatling gun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My wife saw this tree growing entirely on a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My Venus Flytrap is flowering.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “One of our cups came printed inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My chickens greeting me when I come home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “This ikea plant that looks like a creature.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My flight had a window in the washroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Found Diehard in a grocery store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Three years worth of shark teeth found along the Florida coastline.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “A duckling that hatched 12 hours ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “All colors that the trim in my 100 year old house have been painted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “These crisps tell you the name of the person who made them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A dedicated bench for Jim, some miles into a hiking trail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
 
@@ -210,7 +210,53 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">25. Several books of matches from clubs, bars, restaurants that have been closed over 20 years. -u/choopie-chup-chup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128468.jpeg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+## <a href="#linky6" id="linky5">22 Awesome Things That Are Cool to Look At </a><br>
+
+<span style="font-size:4em">1. “There was a pink Tesla in my parking lot this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “This pan matches my sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “These damaged phones on display next to a rollercoaster.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “This weird egg my chicken laid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. $55,000 Gatling gun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My wife saw this tree growing entirely on a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My Venus Flytrap is flowering.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “One of our cups came printed inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My chickens greeting me when I come home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This ikea plant that looks like a creature.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My flight had a window in the washroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found Diehard in a grocery store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Three years worth of shark teeth found along the Florida coastline.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “A duckling that hatched 12 hours ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “All colors that the trim in my 100 year old house have been painted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “These crisps tell you the name of the person who made them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A dedicated bench for Jim, some miles into a hiking trail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">47 Choice Randoms For Your Weekly Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
 
@@ -306,68 +352,6 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
-
-<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
-
 ## <a href="#linky8" id="linky7">25 Disappointing Things We Keep Going Back To</a><br>
 
 <span style="font-size:4em">1. Auditioning for film/theatre-u/Ka_Chow1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128852.jpg" style="width:100%"><br>
@@ -418,53 +402,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">24. Taco Bell. I mean it was never really good but in the last couple of years it has fallen off the cliff. For some reason every couple of months I’ll give it another shot just to be disappointed and throw most of it away and say never again.-u/Pdt801</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128877.jpeg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">22 Best Mustaches of All Time</a><br>
-
-<span style="font-size:4em">1. Tom Selleck - The one and only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Nick Offerman - Three words. Ron Freaking Swanson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Burt Reynolds - Epitome of the man, the myth, and the legend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">54 People Getting Called Out for Lying on the Internet</a><br>
+## <a href="#linky9" id="linky8">54 People Getting Called Out for Lying on the Internet</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
 
@@ -574,7 +512,135 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">22 People Whose Day's Going Worse Than Yours</a><br>
+## <a href="#linky10" id="linky9">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
+
+<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">32 Top Notch Tweets To Amuse Yourself</a><br>
+
+<span style="font-size:4em">1. Chicken, grapes, celery, and orange soda. A midwestern classic!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/050150/87128418/superman.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Zoom procedures need to update ASAP!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. QR codes have gone too far!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Congrats to someone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. What is it with these two? Nobody knows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Batman movie has scenes at night? What a concept</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Name a worse feeling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When will they stop knocking?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bic needs to step their game up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Sometimes you just need a quick splash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I want what shes having</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. What happens if you want to buy one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I hope this works four them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. This is only ok if hes a dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">22 People Whose Day's Going Worse Than Yours</a><br>
 
 <span style="font-size:4em">1. “My garlic bread caught on fire.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
 
@@ -618,7 +684,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">21. “Friend notices funky taste in the work coffee. Finds this in the filter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">50 Tinder Convos that Range From Hilarious to Cringe</a><br>
+## <a href="#linky13" id="linky12">50 Tinder Convos that Range From Hilarious to Cringe</a><br>
 
 <span style="font-size:4em">1. The savagery is absolute with this woman!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123400.jpg" style="width:100%"><br>
 
@@ -719,70 +785,4 @@ About four rolls of different tape that are never actually in the junk drawer wh
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123438.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123440.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">32 Top Notch Tweets To Amuse Yourself</a><br>
-
-<span style="font-size:4em">1. Chicken, grapes, celery, and orange soda. A midwestern classic!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/050150/87128418/superman.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Zoom procedures need to update ASAP!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. QR codes have gone too far!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Congrats to someone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. What is it with these two? Nobody knows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Batman movie has scenes at night? What a concept</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Name a worse feeling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When will they stop knocking?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bic needs to step their game up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Sometimes you just need a quick splash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I want what shes having</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. What happens if you want to buy one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I hope this works four them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. This is only ok if hes a dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
 
