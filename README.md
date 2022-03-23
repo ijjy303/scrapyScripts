@@ -1,112 +1,161 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/23/2022-01:11:31
+Last updated: 03/23/2022-02:11:31
 <br>
-## <a href="#linky2" id="linky1">21 Comments That Really Nailed It</a><br>
+## <a href="#linky2" id="linky1">22 Best Mustaches of All Time</a><br>
 
-<span style="font-size:4em">1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Tom Selleck - The one and only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+<span style="font-size:4em">2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. LOL, some people are just built differently I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Poor Pete, just catching grief and shade from all sides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+<span style="font-size:4em">5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+<span style="font-size:4em">6. Nick Offerman - Three words. Ron Freaking Swanson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. They got you on this one dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+<span style="font-size:4em">11. Burt Reynolds - Epitome of the man, the myth, and the legend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+<span style="font-size:4em">12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Noooooo... He wasnt ready!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Hey if youre hot youre hot, who cares why!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+<span style="font-size:4em">19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+<span style="font-size:4em">20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. When youre both technically correct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Traumatizing Films That Really Messed Us Up</a><br>
+<span style="font-size:4em">22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">54 People Getting Called Out for Lying on the Internet</a><br>
 
-<span style="font-size:4em">2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123126/87128943/87111810.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123152/87128948/87117409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123103/87128939/87111803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123033/87128935/87111801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The Good Son messed me up when I was a kid. -u/MadMasterMad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123237/87128956/87122147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123045/87128936/87111798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123052/87128937/87111799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123021/87128934/87111797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123137/87128945/87117406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Grave of the Fireflies. Its the story of every war. -u/TVotte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123106/87128940/87111805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123114/87128941/87111807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123128/87128944/87117404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123148/87128947/87117408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The Road. The book was even crazier. -u/The_Hive-Mind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123159/87128949/87117411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123203/87128950/87117412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123117/87128942/87111808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123210/87128951/87117413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123214/87128952/87117415.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123221/87128953/87117416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123225/87128954/87117417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123232/87128955/87122145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123243/87128957/87122148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123249/87128958/87122152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123254/87128959/87122153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123301/87128960/87122155.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123306/87128961/87127367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123311/87128962/87127368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123055/87128938/87111802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128915.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123317/87128963/87127369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123323/87128964/87127370.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123328/87128965/87127371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123333/87128966/87127373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123339/87128967/87127375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123344/87128968/87127376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123356/87128970/87127379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123350/87128969/87127378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123401/87128971/87127380.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123407/87128972/87127381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128925.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128916.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128913.png" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128917.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128918.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128920.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128919.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128921.png" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128922.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128923.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128924.png" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128914.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128926.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">32 Top Notch Tweets To Amuse Yourself</a><br>
 
@@ -335,51 +384,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">22. “A dedicated bench for Jim, some miles into a hiking trail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">22 People Whose Day's Going Worse Than Yours</a><br>
-
-<span style="font-size:4em">1. “My garlic bread caught on fire.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My car did this on my way to school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It was just some fuckin butter dude relax.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Door handle broke off at the gas station… With the car running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Forgot a drinkable yogurt bottle in my car and it exploded..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A McLaren that got hit by a loose truck wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “My customer’s new RAV4 that she waited 3 months for…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Friend notices funky taste in the work coffee. Finds this in the filter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+## <a href="#linky8" id="linky7">47 Choice Randoms For Your Weekly Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
 
@@ -475,7 +480,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
+## <a href="#linky9" id="linky8">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
 <span style="font-size:4em">1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
 
@@ -543,163 +548,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">54 People Getting Called Out for Lying on the Internet</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123126/87128943/87111810.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123152/87128948/87117409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123103/87128939/87111803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123033/87128935/87111801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123237/87128956/87122147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123045/87128936/87111798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123052/87128937/87111799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123021/87128934/87111797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123137/87128945/87117406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123106/87128940/87111805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123114/87128941/87111807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123128/87128944/87117404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123148/87128947/87117408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123159/87128949/87117411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123203/87128950/87117412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123117/87128942/87111808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123210/87128951/87117413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123214/87128952/87117415.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123221/87128953/87117416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123225/87128954/87117417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123232/87128955/87122145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123243/87128957/87122148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123249/87128958/87122152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123254/87128959/87122153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123301/87128960/87122155.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123306/87128961/87127367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123311/87128962/87127368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123055/87128938/87111802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128915.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123317/87128963/87127369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123323/87128964/87127370.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123328/87128965/87127371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123333/87128966/87127373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123339/87128967/87127375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123344/87128968/87127376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123356/87128970/87127379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123350/87128969/87127378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123401/87128971/87127380.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123407/87128972/87127381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128925.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128916.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128913.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128917.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128918.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128920.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128919.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128921.png" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128922.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128923.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128924.png" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128914.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128926.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">22 Best Mustaches of All Time</a><br>
-
-<span style="font-size:4em">1. Tom Selleck - The one and only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dale The Intimidator Earnhardt - Possibly the best reflection of the man himself. The mustache only complimented his smile after a win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Lionel Richie - I dont know if Lionel has ever gone without a mustache, but I certainly dont want to see him sans facial hair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Freddie Mercury - Talk about a mustache being an absolute extension of your entire being. Arguably the best mustache in music.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Alan Jackson - The country artist has the mullet to match. And just look at that cutoff jean shirt. Epic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Nick Offerman - Three words. Ron Freaking Swanson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Rollie Fingers - Roland Glen Fingers took the Salvador Dali and turned it on its head. Any baseball player who rocks a mustache now almost always draws inspiration from Rollie Fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gardner Minshew - The ex Jaguars and current Eagles quarterback knows a thing or two about rocking the perfect mustache-hair combo. He has even been compared to Uncle Rico from Napoleon Dynamite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Martin Luther King, Jr. - Obviously were indebted to this man for his sacrifices, and everything he did during his life. But its no secret that he had one of the most iconic and recognizable mustaches of all time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. John Waters - The filmmaker has one of the most iconic and somehow impossible mustaches Ive ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Burt Reynolds - Epitome of the man, the myth, and the legend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Salvador Dali - The surrealist artist redefined what it meant to have a mustache. Absolutely legendary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Prince - The iconic singe, performer, and guitarist was also the proud owner of this glorious mustache throughout his life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mike Ditka - The hall of fame football coach has one of the most legendary mustaches of any head coach in NFL history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Aaron Rodgers - The Packers quarterback has been a gun-slinger for as long as hes played the game of football. So it makes sense that he would rock the cowboy stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Alex Trebek - Maybe the dark horse of this list, but YES. Trebek rocked a full mustache back when he first got his hosting gig. It looks absolutely incredible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Theodore Roosevelt - Hey, even U.S. Presidents gotta have some swag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eddie Murphy - Sure its unassuming enough, but thats only because hes ALWAYS had a mustache. That doesnt make it any less cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Randy The Big Unit Johnson - Growing up Randy Johnson was one of my favorite pitchers to watch. And a lot of it came from how intimidating he looked with that mustache/flow combo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Steve Harvey - The dude looks like he could steal your girl at any given moment. Thats a mustache that exudes confidence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Hulk Hogan - When I was a kid I thought Hulk Hogan was literally the only person who was allowed to have a mustache, because thats how in your face it was. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+## <a href="#linky10" id="linky9">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
 
@@ -740,4 +589,155 @@ About four rolls of different tape that are never actually in the junk drawer wh
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">25 Traumatizing Films That Really Messed Us Up</a><br>
+
+<span style="font-size:4em">1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Good Son messed me up when I was a kid. -u/MadMasterMad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Grave of the Fireflies. Its the story of every war. -u/TVotte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The Road. The book was even crazier. -u/The_Hive-Mind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">22 People Whose Day's Going Worse Than Yours</a><br>
+
+<span style="font-size:4em">1. “My garlic bread caught on fire.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My car did this on my way to school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “It was just some fuckin butter dude relax.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Door handle broke off at the gas station… With the car running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Forgot a drinkable yogurt bottle in my car and it exploded..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “A McLaren that got hit by a loose truck wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “My customer’s new RAV4 that she waited 3 months for…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Friend notices funky taste in the work coffee. Finds this in the filter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">21 Comments That Really Nailed It</a><br>
+
+<span style="font-size:4em">1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. LOL, some people are just built differently I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Poor Pete, just catching grief and shade from all sides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. They got you on this one dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Noooooo... He wasnt ready!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hey if youre hot youre hot, who cares why!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. When youre both technically correct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
 
