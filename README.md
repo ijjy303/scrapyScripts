@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/23/2022-03:11:31
+Last updated: 03/23/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">54 People Getting Called Out for Lying on the Internet</a><br>
 
@@ -111,95 +111,7 @@ Last updated: 03/23/2022-03:11:31
 
 <span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 Comments That Really Nailed It</a><br>
-
-<span style="font-size:4em">1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. LOL, some people are just built differently I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Poor Pete, just catching grief and shade from all sides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. They got you on this one dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Noooooo... He wasnt ready!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Hey if youre hot youre hot, who cares why!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. When youre both technically correct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">22 People Whose Day's Going Worse Than Yours</a><br>
-
-<span style="font-size:4em">1. “My garlic bread caught on fire.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My car did this on my way to school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It was just some fuckin butter dude relax.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Door handle broke off at the gas station… With the car running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Forgot a drinkable yogurt bottle in my car and it exploded..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A McLaren that got hit by a loose truck wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “My customer’s new RAV4 that she waited 3 months for…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Friend notices funky taste in the work coffee. Finds this in the filter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">22 Best Mustaches of All Time</a><br>
+## <a href="#linky3" id="linky2">22 Best Mustaches of All Time</a><br>
 
 <span style="font-size:4em">1. Tom Selleck - The one and only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128345.jpg" style="width:100%"><br>
 
@@ -245,7 +157,49 @@ Last updated: 03/23/2022-03:11:31
 
 <span style="font-size:4em">22. Sam Elliot - Other Ron as hes know in Parks and Recreation. The man has one hell of a stache.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87128341.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">32 Top Notch Tweets To Amuse Yourself</a><br>
+## <a href="#linky4" id="linky3">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">32 Top Notch Tweets To Amuse Yourself</a><br>
 
 <span style="font-size:4em">1. Chicken, grapes, celery, and orange soda. A midwestern classic!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/050150/87128418/superman.jpg" style="width:100%"><br>
 
@@ -311,115 +265,7 @@ Last updated: 03/23/2022-03:11:31
 
 <span style="font-size:4em">32. This is only ok if hes a dog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126585.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
-
-<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">22 Awesome Things That Are Cool to Look At </a><br>
-
-<span style="font-size:4em">1. “There was a pink Tesla in my parking lot this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “This pan matches my sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “These damaged phones on display next to a rollercoaster.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “This weird egg my chicken laid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. $55,000 Gatling gun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “My wife saw this tree growing entirely on a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My Venus Flytrap is flowering.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “One of our cups came printed inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My chickens greeting me when I come home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This ikea plant that looks like a creature.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My flight had a window in the washroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Found Diehard in a grocery store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Three years worth of shark teeth found along the Florida coastline.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “A duckling that hatched 12 hours ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “All colors that the trim in my 100 year old house have been painted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “These crisps tell you the name of the person who made them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A dedicated bench for Jim, some miles into a hiking trail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
+## <a href="#linky6" id="linky5">25 Pieces of Nonsense We Keep In Our Junk Drawer</a><br>
 
 <span style="font-size:4em">1. That one thing that prevents you from closing the drawer. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128447.jpg" style="width:100%"><br>
 
@@ -472,112 +318,7 @@ About four rolls of different tape that are never actually in the junk drawer wh
 
 <span style="font-size:4em">25. Several books of matches from clubs, bars, restaurants that have been closed over 20 years. -u/choopie-chup-chup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128468.jpeg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Traumatizing Films That Really Messed Us Up</a><br>
-
-<span style="font-size:4em">1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Good Son messed me up when I was a kid. -u/MadMasterMad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Grave of the Fireflies. Its the story of every war. -u/TVotte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The Road. The book was even crazier. -u/The_Hive-Mind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">20 Dad Memes That Are the Epitome of Fatherhood</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/21/124038/87128109/beer.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128059.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
+## <a href="#linky7" id="linky6">36 Hidden Details Eagle-Eyed Viewers Spotted in Movies</a><br>
 
 <span style="font-size:4em">1. In Pirates of the Caribbean: The Curse of the Black Pearl (2003), the elvish tattoo that Orlando Bloom got for The Lord of the Rings is visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128148.jpg" style="width:100%"><br>
 
@@ -645,7 +386,7 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 
 <span style="font-size:4em">33. In Finding Nemo, Bruce the shark starts crying when Marlin starts talking about Nemo, saying “I never knew my father”. Male sharks mate with the female then leave, so baby sharks never actually meet their father.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128176.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">47 Choice Randoms For Your Weekly Enjoyment</a><br>
+## <a href="#linky8" id="linky7">47 Choice Randoms For Your Weekly Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128730.jpg" style="width:100%"><br>
 
@@ -740,4 +481,263 @@ Honestly broke me watching that film. I’ve never been able to watch it since. 
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128775.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87128776.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">22 Awesome Things That Are Cool to Look At </a><br>
+
+<span style="font-size:4em">1. “There was a pink Tesla in my parking lot this morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “McDonald’s in the Netherlands now serve drinks with a cardboard lid instead of a plastic lid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Today the sky in Murcia, Spain, turned orange because of dust from the Sahara.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I’m a bartender and I found this shaker no one told me about that gives about 10 cocktail recipes when you twist.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “This pan matches my sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “These damaged phones on display next to a rollercoaster.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “This weird egg my chicken laid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. $55,000 Gatling gun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My wife saw this tree growing entirely on a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My Venus Flytrap is flowering.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “One of our cups came printed inside out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I have been keeping a collection of the tiny balls in pen ink cartridges since middle school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My chickens greeting me when I come home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “This huge, ancient ergonomic mouse I found at my parent’s in law. Normal mouse for scale.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This ikea plant that looks like a creature.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My flight had a window in the washroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found Diehard in a grocery store today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Three years worth of shark teeth found along the Florida coastline.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “A duckling that hatched 12 hours ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “All colors that the trim in my 100 year old house have been painted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “These crisps tell you the name of the person who made them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A dedicated bench for Jim, some miles into a hiking trail.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127635.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Traumatizing Films That Really Messed Us Up</a><br>
+
+<span style="font-size:4em">1. Lorenzos Oil is a hard film to watch because its about a child whos dying of an incurable genetic disorder, it sticks pretty closely to the medical facts of the case its based on, and it unfolds from the parents point of view. Harrowing stuff even though the story isnt totally bleak and it was nominated for awards. -u/doublestitch
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When the Wind Blows from 1986. For anyone who doesn’t know it, heres a short summary from wiki: “The film accounts a rural English couples attempt to survive a nearby nuclear attack and maintain a sense of normality in the subsequent fallout and nuclear winter.”
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Just thinking about this movie gives me chills and not in a good way. Probably one of (if not) the most disturbing movies Ive ever watched. I felt sick for days. -u/HellaWavy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I’m convinced that the all-glass shower trend is from a generation of home builders who saw the shower scene in Psycho as kids. -u/Makerbot2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127963.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Watership Down My mum took me to watch this at the cinema when I was about 7, thinking it was some cutesy animation about bunnies. She promptly fell asleep and Im still traumatized from it. Never been able to watch it again. -u/idrinkwaterandtea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Good Son messed me up when I was a kid. -u/MadMasterMad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The movie itself probably isnt but when I was a kid and saw the wire scene from Ghost Ship and I was pretty traumatized. -u/peachpinkjedi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Jacobs Ladder is weird for me because I consider it one of my favorite movies of all time, but Ive only seen it three times over the course of 25 years or so. Each rewatch has confirmed to me that a.) it is a cinematic masterpiece, and b.) it leaves me in such a deeply affected headspace that I know I cant watch it again in the immediate future. -u/your_actual_life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kids. I thought this was going to be a cool edgy teen movie to watch when I was 13 or 14. After it was over all I wanted to do was take a shower and go to church. -u/xandrenia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127969.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Threads. Want to know what a nuclear war would look like for the average citizen? -u/A_Dehydrated_Walrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Grave of the Fireflies. Its the story of every war. -u/TVotte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I was traumatized by the ending of The Mist. I had previously read the short story in one of the Stephen king anthologies (I forget which one) so I was NOT prepared for the ending they went with in the movie. Spoiler: ITS NOT THE SAME. -u/Embarrassed_Put_7892</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Trainspotting. Saw it once, and Ill never forget it. -u/StickKnown7723</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Come and See. Literally no other movie compares to the trauma one feels upon finishing a viewing of it. -u/heavy_pasta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The Road. The book was even crazier. -u/The_Hive-Mind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Fire in the Sky. With the exception of the first and last 10 minutes, its incredibly boring and mundane. Basically a drama about a murder investigation in rural northern AZ.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Then it ends as a proper sci-fi horror with a dude strapped to an exam table on an alien craft being aggressively examined by some ugly-ass humanoid aliens while his screams are muffled by some kind of giant full-body alien condom. My 9-year-old a** didnt sleep well for years after seeing that. -u/juan_epstein-barr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Deer Hunter. My parents decided it was ok for 8-year-old me to watch it. I had nightmares about people forcing my parents to play Russian roulette for weeks after. -u/brigidsbollix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A Monster Calls. A little boy manifesting his fear of losing his dying mum in the form of a psychologist yew tree. (Yes you read that right.)
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Honestly broke me watching that film. I’ve never been able to watch it since. -u/R383CCA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127981.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. I watched Event Horizon as a 15-year-old who had been left alone for the weekend for the first time at about 11pm on a Saturday night. That was over 20 years ago and Im still not really over it. -u/Grenache</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Pan’s Labyrinth. Not necessarily the fantasy part of it, but the main antagonist (Vidal) and the ending. Just horrific. I cry every time. Also, for context, the scene with the Pale Man even scared Stephen freaking King, the reigning king of literary horror. It’s a fantastic and beautiful film but it’s not for the faint of heart.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87127983.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">30 Creepy Historical Artifacts To Shiver Your Timbers</a><br>
+
+<span style="font-size:4em">1. Mechanized Gorilla Teeth And Head Gear Worn By Gorilla Impersonator Ray Crash Corrigan In White Pongo (P.r.c. Pictures, 1945)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A Tiny Devil Vitrified In A Prism Of Glass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Terrifying Example Of A Traditional Irish Jack-O-Lantern Carved From A Turnip, Circa 1850</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ok, Are You Ready To Cry? About 4500 Years Ago, Ancient Egyptian Parents Put This Homemade Ball In Their Childs Grave As A Toy For The Kid To Play With In The Afterlife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dummy Head Used By Scientific Educators Around The Turn-Of-The-Century To Demonstrate Static Electricity</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A Neon Salesmans Sample Case, Circa 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shoe Doll That Belonged To A Child In The Slums Of London In The Early 20th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Boots Worn By Children Who Were Struck By Lightning At St Eatas Church In The Village Of Atcham In Shropshire, England On 13 July 1879</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Frans Snyders (1579-1657), Studies Of A Cats Head, Oil On Canvas. Hermitage Museum, St. Petersburg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hans Eijkelboom, With My Family (1973)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When The Lid Is Opened On This Victorian Gold Charm, A Little Demon With Sparkling Rhinestone Eyes Pops Out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Witch Whistle Or Heksenfluit Made From A Rats Paw And Carved Bone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Screaming Baby Dolls Made From Bisque Porcelain By German Dollmaker Kestner Around 1920</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Rosamond Purcells Unsettling Photographs Of Monkey Specimens With Cotton Ball Eyes, From The Collection Of Harvards Museum Of Comparative Zoology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Late Victorian Art Pottery Known As Martinware, Which Depicts A Horrifying Crab With A Grotesque Human Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The St Dennistoun Mortuary, A Macabre Coin-Operated Automaton Made Around 1900</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. An Antique Bear Automaton Whose Fur Was Destroyed By An Infestation Of Moths</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. If You Need A Gift For A Child You Hate, Look No Further. These Creepy Chocolate Babies Were Made As Christmas Presents In 1923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Persian Cat Sabotaged Before A Cat Show In Milwaukee, Wisconsin In 1949</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The Impression Of A Supernatural Face In A Tray Of Putty, Made By Italian Psychic Eusapia Palladino (1854-1918)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This Valentines Day, Give Her What She Really Wants: A Tissue Sample From The Shower Of Mysterious Meat Chunks That Rained Down On Bath County, Kentucky In March 1876</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hendrick De Keyser (1565-1621) Was A Dutch Sculptor And Architect Inspired By The Timeless And Majestic Beauty Of A Screaming Babys Forehead Veins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Terracotta Vase In The Shape Of A Lobster Claw, Made In Greece Around 450 To 400 Bc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Hard Plastic Dolls From The 1940s And 50s, Who Are All Suffering From Sad Doll Disease. This Is A Real Thing And It Is Actually Infectious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A Bin Of Doll Heads Waiting To Have Their Eyelashes Trimmed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Dr. Wansbroughs Celebrated Nipple Shields, Late 19th C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Willem Frederik Van Royen, The Carrot (1699), Oil On Canvas. Märkisches Museum, Berlin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Why Are These Spooky Babies Wearing Different Wigs Of Real Human Hair?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Heres Something You Didnt Know You Needed In Your Life: Teeny Tiny Pig Porn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Hand-Coloured Photograph Of A Grown Man Feeding A Spooky Doll With A Spoon, C. 1864-66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127932.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">21 Comments That Really Nailed It</a><br>
+
+<span style="font-size:4em">1. Uhhhh Im glad to see you and all but I definitely could have used a heads up to get the place in order!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126543.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. LOL, some people are just built differently I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126546.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126547.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Poor Pete, just catching grief and shade from all sides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126545.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126549.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Maybe hes going to star in the NEXT Batman reboot, maybe Batman will be played by a believable actor next time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126544.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126554.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126542.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. They got you on this one dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126538.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126555.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Its always cringeworthy when people born into wealth, who can make millions just off their name and or relationships give advice to the common folks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126540.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126550.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126548.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Noooooo... He wasnt ready!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126551.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126552.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Mind your business Karen, this doesnt concern you OR the Home Owners Association.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Hey if youre hot youre hot, who cares why!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126553.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126556.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126557.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. When youre both technically correct.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87126558.jpeg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">22 People Whose Day's Going Worse Than Yours</a><br>
+
+<span style="font-size:4em">1. “My garlic bread caught on fire.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The ceiling in my in-laws stairwell, and yes, I have ran into it face first on multiple occasions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “I just finished drinking my cup of tea.. I’m never leaving my tea to drink later on ever again.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My car did this on my way to school.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Moving across the country in a few weeks, invited my friends to a farewell bbq. All canceled or just didn’t show.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My terminal Grandfather just got moved to a senior living facility with a copay of $140/day. This is his TV.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “It was just some fuckin butter dude relax.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just baked this cake and ate one piece, came back and the dog licked the icing off as far as she could reach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Door handle broke off at the gas station… With the car running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Forgot a drinkable yogurt bottle in my car and it exploded..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I’ve been sitting down on this chair at my grandparents house for 10 years, and it finally gave up on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “A McLaren that got hit by a loose truck wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “My customer’s new RAV4 that she waited 3 months for…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Contractor let his laborer install the hardware (the whole kitchen looks like this)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Friend notices funky taste in the work coffee. Finds this in the filter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127153.jpg" style="width:100%"><br>
 
