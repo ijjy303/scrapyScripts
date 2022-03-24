@@ -1,85 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/24/2022-11:11:33
+Last updated: 03/24/2022-12:11:31
 <br>
-## <a href="#linky2" id="linky1">15 Secrets You Should Know If You Like Cooking</a><br>
-
-<span style="font-size:4em">1. Put a little water in your leftovers before you put it in the microwave and cover it. Especially meat. It doesnt dry out and it actually makes turkey more juicy. - SuperstitiousPigeon5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Vanilla pudding mix in chocolate cookie recipe. - ShaniquaStringfellow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Air is the secret ingredient in deli-style sandwiches. The same amount of meat, arranged loosely, rather than stacked tightly, not only seems more generous, but actually tastes (or at least smells) better, because more flavonoids reach your nose. - Bellsar_Ringing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If youre measuring anything sticky like molasses or honey for a recipe use a pastry brush to coat the inside of the measuring cup with a small amount of cooking oil first. Reduces sticking on the inside of the measuring cup. - Imaginary-Ticket-805</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I don’t know if this is a secret, I feel like every one does this, but when a recipe calls for a teaspoon of vanilla extract I add something closer to two tablespoons. The people making the recipes use higher quality vanilla, the cheap stuff at the store is extremely bland compared to the high quality stuff. - Godmorelikedog_666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The recipe on the back of the tollhouse chocolate chip bag, follow it to the letter. Everyone thinks I have the best of the best chocolate chip cookies. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dont cook a new recipe if you want to impress people. Cook with the same recipe many times until youre confident you can deliver good results, THEN use the recipe. - Cartossin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I reduce five pounds of sweet onions down to 2 cups of deeply caramelized onion. 1/4 cup supercharges any savory soup, stew, etc. - Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. People always say Im a great baker - thing is that if you actually follow recipes to the letter, know if your oven runs a little hot/cold and know what some basic things like hand warm actually mean - its hard to get it wrong. - InternationalLimit40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Softened butter and melted butter are 2 different things that create 2 different results. Dont sub real butter for country crock, - Cracktower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Butter. It’s not a new secret by any means, but I feel like people often forget how amazing even just the tiniest bit added to a dish can be. Some of your favorite restaurant meals probably use way more butter than you’d be comfortable knowing. - AmarettoOrWhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Lots of people forget to add acid. Use acid to make flavors pop. - Zmirzlina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Cooking korean food? Get the salted shrimp and the fermented chile paste/soybean paste. Korean barbecue marinade? Blend an onion, an apple, garlic, green onion, and a couple pinches of salt together. That’s your base, then add the seasonings. The meat will be more tender with the puree and give you that extra depth that you might have been lacking from ready-made sauces. When I’m lazy I just add that puree to the jars of ready-made sauces. - notasianjim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A dash of vinegar livens up any soup/stew/chili - 02K30C1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Using Stock and Broth as a partial water replacement in certain dishes is a game changer. - yardslikeswisschard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129231.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">27 Fresh Memes That Merged With the Dankness</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127842.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127839.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127855.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127856.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127861.png" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">25 Disappointing Things We Keep Going Back To</a><br>
+## <a href="#linky2" id="linky1">25 Disappointing Things We Keep Going Back To</a><br>
 
 <span style="font-size:4em">1. Auditioning for film/theatre-u/Ka_Chow1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128852.jpg" style="width:100%"><br>
 
@@ -129,7 +51,39 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">24. Taco Bell. I mean it was never really good but in the last couple of years it has fallen off the cliff. For some reason every couple of months I’ll give it another shot just to be disappointed and throw most of it away and say never again.-u/Pdt801</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128877.jpeg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">25 People Of Walmart In Their Natural Habitat</a><br>
+## <a href="#linky3" id="linky2">15 Secrets You Should Know If You Like Cooking</a><br>
+
+<span style="font-size:4em">1. Put a little water in your leftovers before you put it in the microwave and cover it. Especially meat. It doesnt dry out and it actually makes turkey more juicy. - SuperstitiousPigeon5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Vanilla pudding mix in chocolate cookie recipe. - ShaniquaStringfellow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Air is the secret ingredient in deli-style sandwiches. The same amount of meat, arranged loosely, rather than stacked tightly, not only seems more generous, but actually tastes (or at least smells) better, because more flavonoids reach your nose. - Bellsar_Ringing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. If youre measuring anything sticky like molasses or honey for a recipe use a pastry brush to coat the inside of the measuring cup with a small amount of cooking oil first. Reduces sticking on the inside of the measuring cup. - Imaginary-Ticket-805</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I don’t know if this is a secret, I feel like every one does this, but when a recipe calls for a teaspoon of vanilla extract I add something closer to two tablespoons. The people making the recipes use higher quality vanilla, the cheap stuff at the store is extremely bland compared to the high quality stuff. - Godmorelikedog_666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The recipe on the back of the tollhouse chocolate chip bag, follow it to the letter. Everyone thinks I have the best of the best chocolate chip cookies. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dont cook a new recipe if you want to impress people. Cook with the same recipe many times until youre confident you can deliver good results, THEN use the recipe. - Cartossin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I reduce five pounds of sweet onions down to 2 cups of deeply caramelized onion. 1/4 cup supercharges any savory soup, stew, etc. - Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. People always say Im a great baker - thing is that if you actually follow recipes to the letter, know if your oven runs a little hot/cold and know what some basic things like hand warm actually mean - its hard to get it wrong. - InternationalLimit40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Softened butter and melted butter are 2 different things that create 2 different results. Dont sub real butter for country crock, - Cracktower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Butter. It’s not a new secret by any means, but I feel like people often forget how amazing even just the tiniest bit added to a dish can be. Some of your favorite restaurant meals probably use way more butter than you’d be comfortable knowing. - AmarettoOrWhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lots of people forget to add acid. Use acid to make flavors pop. - Zmirzlina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Cooking korean food? Get the salted shrimp and the fermented chile paste/soybean paste. Korean barbecue marinade? Blend an onion, an apple, garlic, green onion, and a couple pinches of salt together. That’s your base, then add the seasonings. The meat will be more tender with the puree and give you that extra depth that you might have been lacking from ready-made sauces. When I’m lazy I just add that puree to the jars of ready-made sauces. - notasianjim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A dash of vinegar livens up any soup/stew/chili - 02K30C1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Using Stock and Broth as a partial water replacement in certain dishes is a game changer. - yardslikeswisschard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129231.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 People Of Walmart In Their Natural Habitat</a><br>
 
 <span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
 
@@ -181,7 +135,7 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">19 Things Women Want Men to Understand</a><br>
+## <a href="#linky5" id="linky4">19 Things Women Want Men to Understand</a><br>
 
 <span style="font-size:4em">1. The moving fart. From hips to lips. - ShloppShlopp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129133.jpg" style="width:100%"><br>
 
@@ -221,63 +175,69 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">19. when we are polite to dudes that like us, we are accused of leading them on. but when we distance ourself, we are accused of being a bitch. we really can’t win. - 00pilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129148.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">27 Dank Memes For Being Forever Online</a><br>
+## <a href="#linky6" id="linky5">30 Disturbing Meals People Will Never Forget</a><br>
 
-<span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
+<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Does bacon belong on a donut? Only serious people need respond. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127872.png" style="width:100%"><br>
+<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Now this is what we call commitment  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127873.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. What a savage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127874.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Shut up brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127875.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Time to log off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127877.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Dont ya just love working from home? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127878.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Please dont. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127879.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Its too much cringe to handle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127880.png" style="width:100%"><br>
+<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Go off girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127881.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. True friends get a shot in when youre down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127882.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Oh you think this is funny Sharon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127883.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Im dying, need crunchy food please good sir. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127885.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Have you seen the new Batman? if so what do you think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127886.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127887.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The emo revival doesnt need to happen. I think we can all agree on that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127888.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. This is like the beginning of a horror movie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127889.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127890.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Thats, thats not why they do that. Its to remove the oxygen, if injected into your body would kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Joe Biden is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127892.png" style="width:100%"><br>
+<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127893.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127894.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Cry more please. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127895.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Woah, weve got a tough guy on our hands. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127896.png" style="width:100%"><br>
+<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I dont really need money do I? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127897.png" style="width:100%"><br>
+<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127898.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">29 Startling Sights People Spotted in Plain Sight</a><br>
+<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">29 Startling Sights People Spotted in Plain Sight</a><br>
 
 <span style="font-size:4em">1. “I found this tiny feather from my bird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128882.jpg" style="width:100%"><br>
 
@@ -337,7 +297,7 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">29. “My friend’s shadow looks like a cartoon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128910.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Best '90s Terms That Completely Faded Away</a><br>
+## <a href="#linky8" id="linky7">Best '90s Terms That Completely Faded Away</a><br>
 
 <span style="font-size:4em">1. No doy! -u/XxBoognishxX
 
@@ -391,7 +351,7 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">15 Coincidences People Couldn't Believe</a><br>
+## <a href="#linky9" id="linky8">15 Coincidences People Couldn't Believe</a><br>
 
 <span style="font-size:4em">1. “My brother spent a year trying to get a lightning photo. He caught this last night, I just noticed the boat in the bottom left.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129773.jpg" style="width:100%"><br>
 
@@ -422,6 +382,62 @@ Last updated: 03/24/2022-11:11:33
 <span style="font-size:4em">14. “The lighting effect in my room this morning — a projection of the building across the street”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129778.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. “The inside of a tomato looks like a strawberry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129779.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">27 Dank Memes For Being Forever Online</a><br>
+
+<span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Does bacon belong on a donut? Only serious people need respond. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127872.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Now this is what we call commitment  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127873.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. What a savage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127874.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shut up brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127875.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Time to log off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127877.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dont ya just love working from home? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127878.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Please dont. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127879.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Its too much cringe to handle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127880.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Go off girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. True friends get a shot in when youre down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127882.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Oh you think this is funny Sharon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im dying, need crunchy food please good sir. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127885.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Have you seen the new Batman? if so what do you think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127886.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127887.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The emo revival doesnt need to happen. I think we can all agree on that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127888.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This is like the beginning of a horror movie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127889.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127890.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thats, thats not why they do that. Its to remove the oxygen, if injected into your body would kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joe Biden is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127892.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127893.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127894.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Cry more please. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127895.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Woah, weve got a tough guy on our hands. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127896.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. I dont really need money do I? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127897.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127898.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">50 Tinder Convos that Range From Hilarious to Cringe</a><br>
 
@@ -525,167 +541,7 @@ Last updated: 03/24/2022-11:11:33
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123440.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">54 People Getting Called Out for Lying on the Internet</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123141/87128946/87117407.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123126/87128943/87111810.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123152/87128948/87117409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123103/87128939/87111803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123033/87128935/87111801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123237/87128956/87122147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123045/87128936/87111798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123052/87128937/87111799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123021/87128934/87111797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123137/87128945/87117406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123106/87128940/87111805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123114/87128941/87111807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123128/87128944/87117404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123148/87128947/87117408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123159/87128949/87117411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123203/87128950/87117412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123117/87128942/87111808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123210/87128951/87117413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123214/87128952/87117415.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123221/87128953/87117416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123225/87128954/87117417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123232/87128955/87122145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123243/87128957/87122148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123249/87128958/87122152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123254/87128959/87122153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123301/87128960/87122155.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123306/87128961/87127367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123311/87128962/87127368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123055/87128938/87111802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128915.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123317/87128963/87127369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123323/87128964/87127370.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123328/87128965/87127371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123333/87128966/87127373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123339/87128967/87127375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123344/87128968/87127376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123356/87128970/87127379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123350/87128969/87127378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123401/87128971/87127380.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/123407/87128972/87127381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128925.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128916.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128913.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128917.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128918.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128920.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128919.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128921.png" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128922.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128923.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128924.png" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128914.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128926.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128927.jpeg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">24 Real Celebrity Names That We Never Knew</a><br>
-
-<span style="font-size:4em">1. The Weeknd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Post Malone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Mindy Kaling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Frank Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Drake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ludacris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lana Del Rey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Nicki Minaj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Bruno Mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Calvin Harris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Joaquin Phoenix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jamie Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Olivia Wilde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Seal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Miley Cyrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Snoop Doggy Dogg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Lady Gaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lorde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Halsey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sinbad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ice-T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Travis Scott</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045011/87129173/travis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Cardi-B</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045341/87129174/cardib.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Medical Conditions Way More Serious Than They Look</a><br>
+## <a href="#linky12" id="linky11">25 Medical Conditions Way More Serious Than They Look</a><br>
 
 <span style="font-size:4em">1. Inflammatory Bowel Disease (Crohns, Colitis, etc). People here bowel and think Oh, thats just that pooping illness but internal bleeding, intestinal obstructions, massive amounts of pain, ulcers... its not an easy ride even for mild cases.-u/sticks1218</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128421.jpg" style="width:100%"><br>
 
@@ -741,65 +597,99 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">23. Anxiety. One time I told someone I had anxiety and they said “at least you don’t have depression”-u/DolphinPlayz123</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100146/87128879/0.png" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 Disturbing Meals People Will Never Forget</a><br>
+## <a href="#linky13" id="linky12">24 Real Celebrity Names That We Never Knew</a><br>
 
-<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Weeknd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Post Malone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Mindy Kaling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Frank Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Drake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ludacris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Lana Del Rey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Nicki Minaj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Bruno Mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Calvin Harris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Joaquin Phoenix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Jamie Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Olivia Wilde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Seal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Miley Cyrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Snoop Doggy Dogg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Lady Gaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Lorde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Halsey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Sinbad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Ice-T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Travis Scott</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045011/87129173/travis.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Cardi-B</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045341/87129174/cardib.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">27 Fresh Memes That Merged With the Dankness</a><br>
 
-<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127842.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127839.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127855.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127856.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87127861.png" style="width:100%"><br>
 
