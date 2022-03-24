@@ -1,57 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/24/2022-16:11:31
+Last updated: 03/24/2022-17:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Trashy People Getting Called Out Online</a><br>
-
-<span style="font-size:4em">1. Taking All Of The Seats During Rush Hour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Plenty Of Places To Tag In Vegas, But These Two Chose Our Closest National Park</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Someone Actually Did This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stealing From A Self-Isolating, Vulnerable Neighbor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lady Gaga Went To A Starbucks And Bought Gift Cards To Pay For Coffee For The Customers That Came After Her. This Was What The Barista Did Instead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When Your Neighbors Are Exhausted Of Your Fighting, Its Time To Reflect On Some Things</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I Know I’m In Big Girl Sizes But Finding Chicken Bones In The Back Pocket While Trying On Clothes Is A Little Extreme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Found In London</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. So, I Guess This Is A Thing In The New Neighborhood We Just Moved Into</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dont Even Get Me Started On The People That Test Spray Paint Like This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Every Day This Lady Walks Her Dog And Throws Its Poop In The Same Tree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Some People Just Wanna Watch The World Burn. Literally</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Package Got Delivered. Shortly After, It Was Very Slowly Undelivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Joys Of International Travel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Someone Took A Chainsaw To The Cedar Base Of A Bridge In A Forest In WA To Sell The Cedar On The Black Market</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. A Previous Borrower Of This Library Book Seems To Think Tearing Off The Tips Of Pages Is An Appropriate Alternative To A Bookmark</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Did She Purchase Or Put Back Any Of The Books? Of Course Not</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Stealing All The Hanging Baskets In A Small Village Near Me Put Up By The Village Kids To Cheer People Up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. If Your Headlights, Not Even Your High Beams, Are This Bright, You Deserve To Go Straight To Hell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129876.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">30 Disturbing Meals People Will Never Forget</a><br>
+## <a href="#linky2" id="linky1">30 Disturbing Meals People Will Never Forget</a><br>
 
 <span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
 
@@ -113,57 +63,7 @@ Last updated: 03/24/2022-16:11:31
 
 <span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">24 Real Celebrity Names That We Never Knew</a><br>
-
-<span style="font-size:4em">1. The Weeknd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Post Malone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Mindy Kaling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Frank Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Drake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ludacris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Lana Del Rey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Nicki Minaj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Bruno Mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Calvin Harris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Joaquin Phoenix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jamie Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Olivia Wilde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Seal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Miley Cyrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Snoop Doggy Dogg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Lady Gaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lorde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Halsey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sinbad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ice-T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Travis Scott</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045011/87129173/travis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Cardi-B</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045341/87129174/cardib.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">25 Medical Conditions Way More Serious Than They Look</a><br>
+## <a href="#linky3" id="linky2">25 Medical Conditions Way More Serious Than They Look</a><br>
 
 <span style="font-size:4em">1. Inflammatory Bowel Disease (Crohns, Colitis, etc). People here bowel and think Oh, thats just that pooping illness but internal bleeding, intestinal obstructions, massive amounts of pain, ulcers... its not an easy ride even for mild cases.-u/sticks1218</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128421.jpg" style="width:100%"><br>
 
@@ -219,113 +119,7 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">23. Anxiety. One time I told someone I had anxiety and they said “at least you don’t have depression”-u/DolphinPlayz123</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100146/87128879/0.png" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Best '90s Terms That Completely Faded Away</a><br>
-
-<span style="font-size:4em">1. No doy! -u/XxBoognishxX
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Exsqueeze me.
-
--u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 People Of Walmart In Their Natural Habitat</a><br>
-
-<span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The sign says it all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Master Chief really let himself go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. At least its not in the food section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Here comes the bride down aisle 6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Who needs a shopping cart when you have a head?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Roar XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Now thats Christmas Spirit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Relationship goals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The mountains are blue so you know its cold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Just trying to lighten the mood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Sometimes you just need a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Umm excuse me miss, there is something growing out of your head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The Pink Panther of Walmart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">29 Startling Sights People Spotted in Plain Sight</a><br>
+## <a href="#linky4" id="linky3">29 Startling Sights People Spotted in Plain Sight</a><br>
 
 <span style="font-size:4em">1. “I found this tiny feather from my bird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128882.jpg" style="width:100%"><br>
 
@@ -385,7 +179,7 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">29. “My friend’s shadow looks like a cartoon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128910.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">15 Coincidences People Couldn't Believe</a><br>
+## <a href="#linky5" id="linky4">15 Coincidences People Couldn't Believe</a><br>
 
 <span style="font-size:4em">1. “My brother spent a year trying to get a lightning photo. He caught this last night, I just noticed the boat in the bottom left.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129773.jpg" style="width:100%"><br>
 
@@ -417,7 +211,89 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">15. “The inside of a tomato looks like a strawberry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129779.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">19 Things Women Want Men to Understand</a><br>
+## <a href="#linky6" id="linky5">15 Secrets You Should Know If You Like Cooking</a><br>
+
+<span style="font-size:4em">1. Put a little water in your leftovers before you put it in the microwave and cover it. Especially meat. It doesnt dry out and it actually makes turkey more juicy. - SuperstitiousPigeon5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Vanilla pudding mix in chocolate cookie recipe. - ShaniquaStringfellow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Air is the secret ingredient in deli-style sandwiches. The same amount of meat, arranged loosely, rather than stacked tightly, not only seems more generous, but actually tastes (or at least smells) better, because more flavonoids reach your nose. - Bellsar_Ringing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. If youre measuring anything sticky like molasses or honey for a recipe use a pastry brush to coat the inside of the measuring cup with a small amount of cooking oil first. Reduces sticking on the inside of the measuring cup. - Imaginary-Ticket-805</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I don’t know if this is a secret, I feel like every one does this, but when a recipe calls for a teaspoon of vanilla extract I add something closer to two tablespoons. The people making the recipes use higher quality vanilla, the cheap stuff at the store is extremely bland compared to the high quality stuff. - Godmorelikedog_666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The recipe on the back of the tollhouse chocolate chip bag, follow it to the letter. Everyone thinks I have the best of the best chocolate chip cookies. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dont cook a new recipe if you want to impress people. Cook with the same recipe many times until youre confident you can deliver good results, THEN use the recipe. - Cartossin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I reduce five pounds of sweet onions down to 2 cups of deeply caramelized onion. 1/4 cup supercharges any savory soup, stew, etc. - Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. People always say Im a great baker - thing is that if you actually follow recipes to the letter, know if your oven runs a little hot/cold and know what some basic things like hand warm actually mean - its hard to get it wrong. - InternationalLimit40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Softened butter and melted butter are 2 different things that create 2 different results. Dont sub real butter for country crock, - Cracktower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Butter. It’s not a new secret by any means, but I feel like people often forget how amazing even just the tiniest bit added to a dish can be. Some of your favorite restaurant meals probably use way more butter than you’d be comfortable knowing. - AmarettoOrWhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lots of people forget to add acid. Use acid to make flavors pop. - Zmirzlina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Cooking korean food? Get the salted shrimp and the fermented chile paste/soybean paste. Korean barbecue marinade? Blend an onion, an apple, garlic, green onion, and a couple pinches of salt together. That’s your base, then add the seasonings. The meat will be more tender with the puree and give you that extra depth that you might have been lacking from ready-made sauces. When I’m lazy I just add that puree to the jars of ready-made sauces. - notasianjim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A dash of vinegar livens up any soup/stew/chili - 02K30C1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Using Stock and Broth as a partial water replacement in certain dishes is a game changer. - yardslikeswisschard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129231.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">25 Trashy People Getting Called Out Online</a><br>
+
+<span style="font-size:4em">1. Taking All Of The Seats During Rush Hour</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Plenty Of Places To Tag In Vegas, But These Two Chose Our Closest National Park</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Someone Actually Did This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Stealing From A Self-Isolating, Vulnerable Neighbor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lady Gaga Went To A Starbucks And Bought Gift Cards To Pay For Coffee For The Customers That Came After Her. This Was What The Barista Did Instead</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When Your Neighbors Are Exhausted Of Your Fighting, Its Time To Reflect On Some Things</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I Know I’m In Big Girl Sizes But Finding Chicken Bones In The Back Pocket While Trying On Clothes Is A Little Extreme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Found In London</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. So, I Guess This Is A Thing In The New Neighborhood We Just Moved Into</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Dont Even Get Me Started On The People That Test Spray Paint Like This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Every Day This Lady Walks Her Dog And Throws Its Poop In The Same Tree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Some People Just Wanna Watch The World Burn. Literally</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Package Got Delivered. Shortly After, It Was Very Slowly Undelivered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Joys Of International Travel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Someone Took A Chainsaw To The Cedar Base Of A Bridge In A Forest In WA To Sell The Cedar On The Black Market</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A Previous Borrower Of This Library Book Seems To Think Tearing Off The Tips Of Pages Is An Appropriate Alternative To A Bookmark</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Did She Purchase Or Put Back Any Of The Books? Of Course Not</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Stealing All The Hanging Baskets In A Small Village Near Me Put Up By The Village Kids To Cheer People Up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. If Your Headlights, Not Even Your High Beams, Are This Bright, You Deserve To Go Straight To Hell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129876.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">19 Things Women Want Men to Understand</a><br>
 
 <span style="font-size:4em">1. The moving fart. From hips to lips. - ShloppShlopp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129133.jpg" style="width:100%"><br>
 
@@ -457,39 +333,7 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">19. when we are polite to dudes that like us, we are accused of leading them on. but when we distance ourself, we are accused of being a bitch. we really can’t win. - 00pilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129148.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">15 Secrets You Should Know If You Like Cooking</a><br>
-
-<span style="font-size:4em">1. Put a little water in your leftovers before you put it in the microwave and cover it. Especially meat. It doesnt dry out and it actually makes turkey more juicy. - SuperstitiousPigeon5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Vanilla pudding mix in chocolate cookie recipe. - ShaniquaStringfellow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Air is the secret ingredient in deli-style sandwiches. The same amount of meat, arranged loosely, rather than stacked tightly, not only seems more generous, but actually tastes (or at least smells) better, because more flavonoids reach your nose. - Bellsar_Ringing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If youre measuring anything sticky like molasses or honey for a recipe use a pastry brush to coat the inside of the measuring cup with a small amount of cooking oil first. Reduces sticking on the inside of the measuring cup. - Imaginary-Ticket-805</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I don’t know if this is a secret, I feel like every one does this, but when a recipe calls for a teaspoon of vanilla extract I add something closer to two tablespoons. The people making the recipes use higher quality vanilla, the cheap stuff at the store is extremely bland compared to the high quality stuff. - Godmorelikedog_666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The recipe on the back of the tollhouse chocolate chip bag, follow it to the letter. Everyone thinks I have the best of the best chocolate chip cookies. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dont cook a new recipe if you want to impress people. Cook with the same recipe many times until youre confident you can deliver good results, THEN use the recipe. - Cartossin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I reduce five pounds of sweet onions down to 2 cups of deeply caramelized onion. 1/4 cup supercharges any savory soup, stew, etc. - Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. People always say Im a great baker - thing is that if you actually follow recipes to the letter, know if your oven runs a little hot/cold and know what some basic things like hand warm actually mean - its hard to get it wrong. - InternationalLimit40</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Softened butter and melted butter are 2 different things that create 2 different results. Dont sub real butter for country crock, - Cracktower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Butter. It’s not a new secret by any means, but I feel like people often forget how amazing even just the tiniest bit added to a dish can be. Some of your favorite restaurant meals probably use way more butter than you’d be comfortable knowing. - AmarettoOrWhat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Lots of people forget to add acid. Use acid to make flavors pop. - Zmirzlina</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Cooking korean food? Get the salted shrimp and the fermented chile paste/soybean paste. Korean barbecue marinade? Blend an onion, an apple, garlic, green onion, and a couple pinches of salt together. That’s your base, then add the seasonings. The meat will be more tender with the puree and give you that extra depth that you might have been lacking from ready-made sauces. When I’m lazy I just add that puree to the jars of ready-made sauces. - notasianjim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A dash of vinegar livens up any soup/stew/chili - 02K30C1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Using Stock and Broth as a partial water replacement in certain dishes is a game changer. - yardslikeswisschard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129231.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">27 Dank Memes For Being Forever Online</a><br>
+## <a href="#linky9" id="linky8">27 Dank Memes For Being Forever Online</a><br>
 
 <span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
 
@@ -545,35 +389,201 @@ I know there are tons of horrible diseases out there, so I try to tell myself it
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">15 Celebrities Then and Now</a><br>
+## <a href="#linky10" id="linky9">25 People Of Walmart In Their Natural Habitat</a><br>
 
-<span style="font-size:4em">1. Tommy Lee Jones, age 32 and 56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130678.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Neil Patrick Harris, age 24 and 48</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130679.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The sign says it all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Paul Rudd, age 25 and 52</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130680.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Master Chief really let himself go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Evangeline Lilly, age 25 and 42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130681.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. At least its not in the food section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. William Hurt, age 30 and 68</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130682.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Here comes the bride down aisle 6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Frank Grillo, age 32 and 56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130683.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Mark Wahlberg, age 25 and 50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130684.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Who needs a shopping cart when you have a head?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Nicole Kidman, age 28 and 54</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130685.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Roar XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Sandra Bullock, age 32 and 57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130686.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Now thats Christmas Spirit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Channing Tatum, age 26 and 41</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130687.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Josh Hartnett, age 26 and 43</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130688.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Colin Farrell, age 27 and 45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130689.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Rachel Weisz, age 29 and 51</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130690.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Relationship goals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Bill Murray, age 29 and 71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130691.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Edward Norton, age 27 and 50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130692.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The mountains are blue so you know its cold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Just trying to lighten the mood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Sometimes you just need a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Umm excuse me miss, there is something growing out of your head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The Pink Panther of Walmart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">24 Real Celebrity Names That We Never Knew</a><br>
+
+<span style="font-size:4em">1. The Weeknd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Post Malone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Mindy Kaling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Frank Ocean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Drake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Jack Black</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ludacris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Lana Del Rey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Nicki Minaj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Bruno Mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Calvin Harris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Joaquin Phoenix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Jamie Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Olivia Wilde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Seal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Miley Cyrus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Snoop Doggy Dogg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Lady Gaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Lorde</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Halsey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Sinbad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ice-T</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87129172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Travis Scott</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045011/87129173/travis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Cardi-B</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/045341/87129174/cardib.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">20 Chaotic Memes for Toxic Kings</a><br>
+
+<span style="font-size:4em">1. Chase money, not women yall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Welp I waited 5 minutes and no response...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Please block me. Please, do it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Time to close up shop, brother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Lets be mature adults about this, okay?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Why bother? Nothing but crickets...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lmfao. Dora the Explorer literally has the worst bangs in the game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. LOL. No thanks, I have enough friends. Im good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Haunting is the new ghosting. Here for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When her friend is super nice to you, but your girl hates your guts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ground is getting soft, break out those green thumbs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Its a cold world out there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Wise words to live by.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Good morning, and good luck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. You gotta pump those numbers up, those are rookie numbers!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Lol this is just plain cruel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Snakes in the bushes bro.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This is low-key super romantic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Its me youve been looking for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I dont even know who you are.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130098.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Best '90s Terms That Completely Faded Away</a><br>
+
+<span style="font-size:4em">1. No doy! -u/XxBoognishxX
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Exsqueeze me.
+
+-u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
 
