@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/24/2022-22:11:31
+Last updated: 03/24/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">23 Insults That People Will Never Forget</a><br>
 
@@ -49,59 +49,45 @@ Last updated: 03/24/2022-22:11:31
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87123576.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Best '90s Terms That Completely Faded Away</a><br>
+## <a href="#linky3" id="linky2">19 Things Women Want Men to Understand</a><br>
 
-<span style="font-size:4em">1. No doy! -u/XxBoognishxX
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The moving fart. From hips to lips. - ShloppShlopp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I had to explain to my dad that my ovarian cysts werent because I wasnt cleaning myself down there - Ragdolly13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sometimes Im not in an emotional or mental state to be ready for the bedroom. I need romance to get me there sometimes too. - Cynthia_dl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My hair will literally end up EVERYWHERE, and theres not a damn thing I can do to control. It just sheds. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Period cramps! Plus the tender breasts, the lower back pain, the moodiness, the bloating, the period poops and just the general discomfort month after month after month for the rest of your life (almost) - Sad-Ad-2369</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Porn doesn’t make you better in bed. Actually kind of does the oposite. Just ask us what we like and how. Stop taking tips from porn - lotal43</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Being deliberately followed around IS creepy & will NEVER make me like you - slavicgypsygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. 3 holes for different substances. No we do not pee out of the vagina. - theoku</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Saying things (in a sexual way) on the street while girls walk. that wont make us come to talk to you, its harassment and uncomfortable. Some guys defend themselves with the idea that they say compliments but it doesnt feel good. - sols1to</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Periods. We can’t hold it like pee. - CharmingWitty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Why we want to meet for the first time in a brightly lit, well populated area. - Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. That yelling men even when you think that you are not being threatening is terrifying. I’ve been married for 17 years, he’s never even thought about being violent with me. However, any time his voice is raised or tone gets angry it’s scary. The vast majority of women I know have this same reaction regardless of who it is. - mgentry999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Child birth. - mooseshart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. That it is not a compliment to be touched without consent. - schuehsch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The mental load of meeting all of society’s expectations for our family. I’m always the one who gets the call, gets judged, gets pressure to volunteer, has to remember birthdays, etc. He can ignore those things without consequence, and I can’t. It means that I end up taking on kind of a family manager role to make sure no balls get dropped, but that’s not because I enjoy that. It’s because I’m the one who will be blamed. - meara</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
+<span style="font-size:4em">16. I met a lot of Men over the years who think that we are all alike and that we all like the same things. Liking or not liking something doesnt make us more or less of a Woman. We are individuals with different tastes, passions and dreams. - sonia72quebec</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The exhaustion of being the go to parent all the time. I know there are some dads that get it but there are alot that don’t. Staying home with the kids here and there or driving them to soccer practice is one things but keeping track of homework, extracurricular, chores, appointments, and being their emotional support is just exhausting and stressful. - Oss251817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. That “I’m married” does not mean try harder. It means go away/stop flirting/I have a husband. - Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Exsqueeze me.
-
--u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. when we are polite to dudes that like us, we are accused of leading them on. but when we distance ourself, we are accused of being a bitch. we really can’t win. - 00pilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129148.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">15 Secrets You Should Know If You Like Cooking</a><br>
 
@@ -283,309 +269,7 @@ Last updated: 03/24/2022-22:11:31
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128642.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">29 Startling Sights People Spotted in Plain Sight</a><br>
-
-<span style="font-size:4em">1. “I found this tiny feather from my bird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Icicles on my trucks wheels”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My new nose ring”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Found this flower growing out of the floor crack in my apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “A piece of wood I found”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “A pen that melted and deformed, it works perfectly fine, and it’s in good condition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Colorful eggs are the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Melted apple sculptures.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This plant growing up a road sign post.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I buy honey from backroad beekeeper stands.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Nature has spotted my dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My dog laying down with his head on the curb...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This twisted circle built out of stone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My local supermarket grows their own herbs in-store.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128894.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This tree looks like a bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The stem valve on the car of the surgical ophthalmologist at my office building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “My daughter praises the sunlight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Leroy is living his best life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This equestrian crossing near Wassenaar, Netherlands, has a button at horse rider’s height.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Rent-a-crane truck parks his car on his roof.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “A man with lizard I saw at a Halloween store.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “The way this billboard looks like a Zombie Movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I thought I captured the first species of seagulls with human legs, realizing later there was actually a person crossing behind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Squeak squeak.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “I married a hybrid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Kaunas, Lithuania on Valentine’s Day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “In place of license plates, this car has attached a small model of itself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “This woman is taking her rabbit for a ride on the subway.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “My friend’s shadow looks like a cartoon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128910.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">19 Things Women Want Men to Understand</a><br>
-
-<span style="font-size:4em">1. The moving fart. From hips to lips. - ShloppShlopp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I had to explain to my dad that my ovarian cysts werent because I wasnt cleaning myself down there - Ragdolly13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Sometimes Im not in an emotional or mental state to be ready for the bedroom. I need romance to get me there sometimes too. - Cynthia_dl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My hair will literally end up EVERYWHERE, and theres not a damn thing I can do to control. It just sheds. - CreepyButterscotch3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Period cramps! Plus the tender breasts, the lower back pain, the moodiness, the bloating, the period poops and just the general discomfort month after month after month for the rest of your life (almost) - Sad-Ad-2369</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Porn doesn’t make you better in bed. Actually kind of does the oposite. Just ask us what we like and how. Stop taking tips from porn - lotal43</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Being deliberately followed around IS creepy & will NEVER make me like you - slavicgypsygirl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. 3 holes for different substances. No we do not pee out of the vagina. - theoku</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Saying things (in a sexual way) on the street while girls walk. that wont make us come to talk to you, its harassment and uncomfortable. Some guys defend themselves with the idea that they say compliments but it doesnt feel good. - sols1to</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Periods. We can’t hold it like pee. - CharmingWitty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Why we want to meet for the first time in a brightly lit, well populated area. - Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. That yelling men even when you think that you are not being threatening is terrifying. I’ve been married for 17 years, he’s never even thought about being violent with me. However, any time his voice is raised or tone gets angry it’s scary. The vast majority of women I know have this same reaction regardless of who it is. - mgentry999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Child birth. - mooseshart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. That it is not a compliment to be touched without consent. - schuehsch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The mental load of meeting all of society’s expectations for our family. I’m always the one who gets the call, gets judged, gets pressure to volunteer, has to remember birthdays, etc. He can ignore those things without consequence, and I can’t. It means that I end up taking on kind of a family manager role to make sure no balls get dropped, but that’s not because I enjoy that. It’s because I’m the one who will be blamed. - meara</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I met a lot of Men over the years who think that we are all alike and that we all like the same things. Liking or not liking something doesnt make us more or less of a Woman. We are individuals with different tastes, passions and dreams. - sonia72quebec</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The exhaustion of being the go to parent all the time. I know there are some dads that get it but there are alot that don’t. Staying home with the kids here and there or driving them to soccer practice is one things but keeping track of homework, extracurricular, chores, appointments, and being their emotional support is just exhausting and stressful. - Oss251817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That “I’m married” does not mean try harder. It means go away/stop flirting/I have a husband. - Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. when we are polite to dudes that like us, we are accused of leading them on. but when we distance ourself, we are accused of being a bitch. we really can’t win. - 00pilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129148.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">15 Coincidences People Couldn't Believe</a><br>
-
-<span style="font-size:4em">1. “My brother spent a year trying to get a lightning photo. He caught this last night, I just noticed the boat in the bottom left.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “This random stranger and I have wedding rings cut from the deck of the same ship.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “The 2 people next to me on my flight have the same forearm tattoo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “These airplane trails crossing in the same spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The picture on the back of this RV lines up with the mountains in the background.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The sunshine lined up nicely as this FedEx truck drove by.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “A friend of mine shot a dart into another dart, Robin Hood-style.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “The sun is making my door feel exclamatory today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “My daughter had a flower headband on and a butterfly landed on it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My iPhone collected iron sand at the beach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It was our first time to visit the shop.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My friend is wearing the same color shirt as the room he is painting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This kiwi is making a weird face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “The lighting effect in my room this morning — a projection of the building across the street”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “The inside of a tomato looks like a strawberry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129779.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">27 Dank Memes For Being Forever Online</a><br>
-
-<span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Does bacon belong on a donut? Only serious people need respond. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127872.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Now this is what we call commitment  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127873.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. What a savage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127874.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shut up brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127875.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Time to log off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127877.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dont ya just love working from home? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127878.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Please dont. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127879.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Its too much cringe to handle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127880.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Go off girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. True friends get a shot in when youre down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127882.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Oh you think this is funny Sharon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im dying, need crunchy food please good sir. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127885.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Have you seen the new Batman? if so what do you think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127886.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127887.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The emo revival doesnt need to happen. I think we can all agree on that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127888.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This is like the beginning of a horror movie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127889.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127890.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thats, thats not why they do that. Its to remove the oxygen, if injected into your body would kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Joe Biden is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127892.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127893.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127894.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Cry more please. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127895.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Woah, weve got a tough guy on our hands. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127896.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. I dont really need money do I? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127897.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127898.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">30 Disturbing Meals People Will Never Forget</a><br>
-
-<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">25 People Of Walmart In Their Natural Habitat</a><br>
-
-<span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The sign says it all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Master Chief really let himself go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. At least its not in the food section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Here comes the bride down aisle 6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Who needs a shopping cart when you have a head?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Roar XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Now thats Christmas Spirit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Relationship goals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The mountains are blue so you know its cold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Just trying to lighten the mood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Sometimes you just need a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Umm excuse me miss, there is something growing out of your head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. The Pink Panther of Walmart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">50 Relatable Memes that Speak the Truth</a><br>
+## <a href="#linky8" id="linky7">50 Relatable Memes that Speak the Truth</a><br>
 
 <span style="font-size:4em">1. If one parent says no, you still have a 50/50 chance with the other one.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125208/87130793/87130256.jpg" style="width:100%"><br>
 
@@ -686,4 +370,320 @@ Last updated: 03/24/2022-22:11:31
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127220.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127222.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">15 Coincidences People Couldn't Believe</a><br>
+
+<span style="font-size:4em">1. “My brother spent a year trying to get a lightning photo. He caught this last night, I just noticed the boat in the bottom left.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “This random stranger and I have wedding rings cut from the deck of the same ship.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The 2 people next to me on my flight have the same forearm tattoo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “These airplane trails crossing in the same spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The picture on the back of this RV lines up with the mountains in the background.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The sunshine lined up nicely as this FedEx truck drove by.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “A friend of mine shot a dart into another dart, Robin Hood-style.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “The sun is making my door feel exclamatory today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My daughter had a flower headband on and a butterfly landed on it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My iPhone collected iron sand at the beach.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “It was our first time to visit the shop.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My friend is wearing the same color shirt as the room he is painting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This kiwi is making a weird face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The lighting effect in my room this morning — a projection of the building across the street”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The inside of a tomato looks like a strawberry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129779.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">Best '90s Terms That Completely Faded Away</a><br>
+
+<span style="font-size:4em">1. No doy! -u/XxBoognishxX
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Information superhighway. -u/gingerbreadporter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Call me after 7pm, when it’s free. -u/False-Boysenberry673</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Here’s a quarter, call someone who cares. -u/pale_marble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I still say things are “rad”, but I haven’t said “radical” or heard the term “radical” used in a “that’s cool” context since like ‘95 or ‘96. -u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Being a “poser” was THE worst insult where I grew up. People were often criticized for being too big for their boots and dressing like rockstars. Nowadays, with social media etc, everyone is invested in their own brand management and if you think it’s cringe, you’re a ‘hater.’ -u/AGuerillaGorilla</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hello! Earth to (insert persons name.) -u/Sonicboom343</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Talk to the hand. -u/llcucf80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Say it, dont spray it! -u/bigkeef69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. These are all good answers... NOT!!! -u/chichi_benson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. All that and a bag of potato chips! -u/Wishyouamerry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Schwing! -u/rileysauntie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My wife got made fun of by our friends kid for using the phrase “word on the street”. It really blew his mind when we told him we needed the “4-1-1” on why it’s not cool anymore. -u/Treibemj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Coolio. The word, not the rapper. Though I suppose no one talks about the rapper any more either.  So, Coolio. -u/Ok-Table9721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129390.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Referring to balls as “nards” -u/AquamarineCheetah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Up your butt and around the corner! -u/granny_yoda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129393.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Booyah! -u/ScarecrowNighmare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Dont have a cow, man! -u/SilasMarner77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Whats up, home skillet?! -u/Orlando1701</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129395.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Pardon me, do you have any Grey Poupon? -u/Cosity82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Thats for me to know and you to never find out was one that was used a lot. -u/Skeptic_Juggernaut84</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Exsqueeze me.
+
+-u/LakeLov3r</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Phat. And smooth move, X-Lax. -u/JeremyBreitenbach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">30 Disturbing Meals People Will Never Forget</a><br>
+
+<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">29 Startling Sights People Spotted in Plain Sight</a><br>
+
+<span style="font-size:4em">1. “I found this tiny feather from my bird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Icicles on my trucks wheels”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My new nose ring”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Found this flower growing out of the floor crack in my apartment.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “A piece of wood I found”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “A pen that melted and deformed, it works perfectly fine, and it’s in good condition.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Colorful eggs are the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Melted apple sculptures.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This plant growing up a road sign post.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I buy honey from backroad beekeeper stands.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Nature has spotted my dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My dog laying down with his head on the curb...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This twisted circle built out of stone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My local supermarket grows their own herbs in-store.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128894.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This tree looks like a bunny.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “The stem valve on the car of the surgical ophthalmologist at my office building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “My daughter praises the sunlight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Leroy is living his best life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This equestrian crossing near Wassenaar, Netherlands, has a button at horse rider’s height.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Rent-a-crane truck parks his car on his roof.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “A man with lizard I saw at a Halloween store.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The way this billboard looks like a Zombie Movie”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128903.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I thought I captured the first species of seagulls with human legs, realizing later there was actually a person crossing behind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Squeak squeak.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “I married a hybrid.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Kaunas, Lithuania on Valentine’s Day”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “In place of license plates, this car has attached a small model of itself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “This woman is taking her rabbit for a ride on the subway.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “My friend’s shadow looks like a cartoon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128910.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">27 Dank Memes For Being Forever Online</a><br>
+
+<span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Does bacon belong on a donut? Only serious people need respond. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127872.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Now this is what we call commitment  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127873.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. What a savage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127874.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shut up brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127875.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Time to log off. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127877.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dont ya just love working from home? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127878.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Please dont. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127879.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Its too much cringe to handle. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127880.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Go off girl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. True friends get a shot in when youre down. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127882.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Oh you think this is funny Sharon? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im dying, need crunchy food please good sir. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127885.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Have you seen the new Batman? if so what do you think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127886.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127887.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The emo revival doesnt need to happen. I think we can all agree on that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127888.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This is like the beginning of a horror movie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127889.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127890.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thats, thats not why they do that. Its to remove the oxygen, if injected into your body would kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Joe Biden is that you? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127892.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127893.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127894.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Cry more please. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127895.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Woah, weve got a tough guy on our hands. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127896.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. I dont really need money do I? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127897.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127898.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 People Of Walmart In Their Natural Habitat</a><br>
+
+<span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The sign says it all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Master Chief really let himself go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. At least its not in the food section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Here comes the bride down aisle 6</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Who needs a shopping cart when you have a head?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Roar XD</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Now thats Christmas Spirit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Relationship goals</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The mountains are blue so you know its cold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Just trying to lighten the mood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Sometimes you just need a nap</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Umm excuse me miss, there is something growing out of your head. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. The Pink Panther of Walmart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
 
