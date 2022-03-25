@@ -1,123 +1,163 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/24/2022-19:11:32
+Last updated: 03/24/2022-20:11:31
 <br>
-## <a href="#linky2" id="linky1">30 Disturbing Meals People Will Never Forget</a><br>
+## <a href="#linky2" id="linky1">50 Relatable Memes that Speak the Truth</a><br>
 
-<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If one parent says no, you still have a 50/50 chance with the other one.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125208/87130793/87130256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125400/87130811/87130740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Seriously, whats the deal with these things?</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125219/87130794/87130266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125337/87130808/87130737.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Keep an eye on that timer, because if not all hell breaks loose.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125230/87130795/87130271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125446/87130819/87130751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. When you dont mind not hearing from people:</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125238/87130796/87130270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Seriously, why cant we get rid of this stupid thing already.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125242/87130797/87130273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125336/87130807/87130736.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. We changed everything and made it worse, but its the fans fault.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125249/87130798/87130272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This happens to me almost every single morning.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125253/87130799/87130274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. We sharing that, right?</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125253/87130800/87130276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Dad just out here not giving a f**k.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125302/87130801/87130279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Gas and a case of the sore ass if youre not careful.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125305/87130802/87130280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125349/87130810/87130739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. I like to believe they can understand.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125314/87130803/87130292.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125316/87130804/87130281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125325/87130805/87130732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Who doesnt enjoy watching a dumpster fire?</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125327/87130806/87130733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. *rings tiny little bell on handlebars* Ring Ring, were cars.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125348/87130809/87130738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125400/87130812/87130741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125411/87130813/87130742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125412/87130814/87130743.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">31 Dank Memes to Sink Your Teeth Into</a><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125423/87130815/87130744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128624.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125425/87130816/87130745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128628.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125435/87130817/87130746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128634.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125436/87130818/87130748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128613.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/125447/87130820/87130755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128615.png" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128641.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128616.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128617.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128618.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128638.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128619.png" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128620.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128621.png" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128623.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128622.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128625.jpg" style="width:100%"><br>
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128627.png" style="width:100%"><br>
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128614.jpg" style="width:100%"><br>
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128629.jpg" style="width:100%"><br>
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87127222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128630.gif" style="width:100%"><br>
+## <a href="#linky3" id="linky2">25 Medical Conditions Way More Serious Than They Look</a><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128631.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Inflammatory Bowel Disease (Crohns, Colitis, etc). People here bowel and think Oh, thats just that pooping illness but internal bleeding, intestinal obstructions, massive amounts of pain, ulcers... its not an easy ride even for mild cases.-u/sticks1218</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128632.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Asthma. People stop breathing. Tv and movies like to show it as a way of identifying a weakling, but it is a serious, deadly disease. It is also super not fun.Until my mid-20s I was hospitalized at least 2x a year because my emergency inhaler wasnt enough to make me start breathing again. I bought my own nebulizer, and it is the only reason I havent been hospitalized since.-u/AtheneSchmidt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128635.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Eczema. People think its just itchy skin but it can be horrendously damaging-u/WitAndSavvy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128636.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Type 1 diabetes. I generally downplay it to I can just take insulin and can eat whatever I want because its easier than explaining Ill be playing a game of Flappy Bird the rest of my life where if I get the dosage wrong I can die immediately and without warning, where if I dont have insulin for 3 days I die a horrible painful death, and if I ignore it I can go blind and lose the ability to digest food. And all the fucking beeping devices, all day every day. Its beeping at me right now.Oh, and insulin costs $600 a month, so thats cool.-u/CrackSammiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128637.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. All the autoimmune diseases. The amount of pain suffered is incomprehensible. The medications can be brutal with side effects, and can cause other issues. The impact on families and the mental health of the patients is almost always negative. Most of the diseases are degenerative, and there is no cure for any of them.-u/mykidsarecrazy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128425.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128639.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tinnitus. It literally drives people to commit suicide to stop the ringing.-u/beasterne7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128642.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Deaf/HOH backstory: both sides of my family have back hearing backgrounds. My father is deaf and my moms side just has bad hearing in general. I had good hearing most of my life until I was about 14ish. Discovered I have progressive hearing lose and I’ll eventually go completely deaf. It just sucks cause It’s so hard to communicate and do most things like a normal person and most people don’t understand that. For example when I ask someone to repeat myself and they say “ what are you deaf?” Yeah, I f*cking am.-u/Proper-Type7899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. As a narcoleptic: people tend to think its funny/quirky that I will fall asleep randomly but get all serious when Im suddenly lying asleep in the middle of a crossroad.-u/evoli21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Parkinsons. It is a whole lot more than just shaky hands-u/electrishian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. ShinglesIt can infect your eye and cause blindness. It can cause such severe pain and debility, you require long term nursing care (nursing home). Shingles is horrible.-u/Secret_Choice7764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Anorexia nervosa gets joked about a lot, but the survival rate is actually quite poor.-u/Secret_Choice7764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. GERD. Cant count the number of people who say I just get stomachaches sometimes or everyone gets heartburn. I have esophageal scarring and have a restricted diet just so I dont spend days in agony because I decided to drink a sprite. I had a feeding tube attached to my stomach for years because I couldnt swallow and everything irritated my esophagus. My concerns werent taken seriously by doctors and I spent two weeks in a hospital struggling to convince them I wasnt anorexic. Even my voice is affected, I sound raspy to various degrees all the time.-u/PeculiarInsomniac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Migraines and cluster headaches. We might look okay on the outside, but its completely debilitating. I lose a lot of my life to head pain, as I mainly work and lay in bed. I have lost touch with a lot of friends and family members due to last-minute cancelation plans. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128420.png" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Some days, its so bad I want to drill a hole in my head to release the pain. Clusters are worse. This is why Im not a gun owner. It really sucks with this condition; its really not considered a disability. So I have to force myself to work to live, but forcing it makes it worse, so the quality of life really sucks. I have to warn new coworkers that if I start slurring, talking funny, or cant find words, Im not drunk and not having a stroke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+I know there are tons of horrible diseases out there, so I try to tell myself it could be worse. It also really sucks when someone tells you to suck it up because its just a headache. Ok, sorry, rant over.-u/turtle-girl420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Restless Legs Syndrome. Yes it is real, and yes it disrupts ones life, especially the ability to sleep. Lack of sleep then leads to a whole host of other conditions.-u/Mymoggievan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128435.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Chronic Fatigue Syndrome. Took my husband from an active, healthy, intelligent man to barely able to get out of bed. Terrible brain fog and many other debilitating symptoms. It is not just being tired.-u/Motor_Relation_5459</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Hypothyroidism. People think it just makes you fat, but if your thyroid stops working it can wreck your life. So many bodily functions are controlled by your thyroid. Every weird symptom I had for years can be explained by my thyroid going out, from years-long exhaustion to depression to my hair falling out to muscle aches to anemia to shortness of breath to brain fog to intermittent double vision. There are more. Those are just the most prominent ones for me.-u/PetLemur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My friend had an endometriosis case so severe, that it created webbing that was wrapped not only around her uterus and Fallopian tubes, but also was beginning to wrap around her intestines. While it’s incredibly painful on its own, it would get worse when she ate. I may be describing this incorrectly, but the doctors told her as she was digesting her food, it would pull on the “webbing” which caused the cramping to intensify. So did having bowel movements. She was in agony until the surgery to remove it. She lost so much weight because eating caused her so much more pain.-u/SomewhereinOregon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Dental abscess. A lot of people dont realize that dental infections can kill you if they spread throughout your body.-u/DeathSpiral321</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A nurse in my hometown committed suicide a few months after giving birth. She had been treating her Postpartum Depression the whole time and could never get the correct meds. It was very shocking to a lot of people who didn’t know what she was going through.-u/hawgfan1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Dementia. It’s not just “Haha grandma woke up today and thought somebody stole her purse but she had hidden it,” or “Come on Dad, just look at the picture carefully and you’ll remember it’s your grandchildren and great-grandchildren in it.” There are so many behaviors, they get violent, they elope in the middle of the night or day, they lose their entire identity. They go back into not knowing how to care for themselves. It is extremely heartbreaking to watch the process. Especially with Lewy Body Dementia. They’re getting younger and younger nowadays and they tend to decline at a much faster rate.-u/nollyson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Snoring Often a sign of something more serious, like apnea, which can impair cognitive function, cause weight gain, and trim years off your life.-u/BudgetHero</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. How about OCD. People think it just makes them quirky and particular. Ive seen it where people end up harming themselves, and cant function in society.-u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100141/87128878/0.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Anxiety. One time I told someone I had anxiety and they said “at least you don’t have depression”-u/DolphinPlayz123</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100146/87128879/0.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">15 Coincidences People Couldn't Believe</a><br>
 
@@ -275,7 +315,63 @@ Last updated: 03/24/2022-19:11:32
 
 <span style="font-size:4em">20. I dont even know who you are.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87130098.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">29 Startling Sights People Spotted in Plain Sight</a><br>
+## <a href="#linky8" id="linky7">31 Dank Memes to Sink Your Teeth Into</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128615.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128619.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128621.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128627.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128630.gif" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87128642.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">29 Startling Sights People Spotted in Plain Sight</a><br>
 
 <span style="font-size:4em">1. “I found this tiny feather from my bird.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128882.jpg" style="width:100%"><br>
 
@@ -335,7 +431,7 @@ Last updated: 03/24/2022-19:11:32
 
 <span style="font-size:4em">29. “My friend’s shadow looks like a cartoon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128910.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">19 Things Women Want Men to Understand</a><br>
+## <a href="#linky10" id="linky9">19 Things Women Want Men to Understand</a><br>
 
 <span style="font-size:4em">1. The moving fart. From hips to lips. - ShloppShlopp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129133.jpg" style="width:100%"><br>
 
@@ -375,7 +471,7 @@ Last updated: 03/24/2022-19:11:32
 
 <span style="font-size:4em">19. when we are polite to dudes that like us, we are accused of leading them on. but when we distance ourself, we are accused of being a bitch. we really can’t win. - 00pilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129148.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Best '90s Terms That Completely Faded Away</a><br>
+## <a href="#linky11" id="linky10">Best '90s Terms That Completely Faded Away</a><br>
 
 <span style="font-size:4em">1. No doy! -u/XxBoognishxX
 
@@ -429,7 +525,7 @@ Last updated: 03/24/2022-19:11:32
 
 <span style="font-size:4em">24. As if! From Clueless with Alicia Silverstone. -u/blargggggg823</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87129401.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">27 Dank Memes For Being Forever Online</a><br>
+## <a href="#linky12" id="linky11">27 Dank Memes For Being Forever Online</a><br>
 
 <span style="font-size:4em">1. Not gonna lie, he had us going. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127871.png" style="width:100%"><br>
 
@@ -485,7 +581,69 @@ Last updated: 03/24/2022-19:11:32
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87127899.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 People Of Walmart In Their Natural Habitat</a><br>
+## <a href="#linky13" id="linky12">30 Disturbing Meals People Will Never Forget</a><br>
+
+<span style="font-size:4em">1. Dumplings From The Hells Gate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My Kids School Lunch Today. Pancake Sausage Burger With Cheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Our Airbnb Had A Brick Oven. We Tried Making Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Behold! The Worlds Largest Nigiri Sushi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Peas And Mayonnaise Pizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ah, Breakfast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A Tempting Slice From The 1970s Cookbook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My School’s $7 Take On Avocado Toast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I Noticed A Piece Of Broccoli On My Plate That I Thought Looked Like An Opossum Face So I Used It To Make A Little Food Opossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Chicken Sandwich I Got From Mr Beast Burger Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Local Bakery Made These, All Profits Will Go To Colon Cancer Research.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Spaghetti With The Proper Amount Of Powdered Cheese Product</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Sandwich My Dad Likes To Eat, Raw Ground Beef With Raw Onions And White Pepper On Hard Bread</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Food Before Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Spider Man Saving His Own Cake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The “Pizza Americana” I Ordered In Slovakia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I Tried To Make Bread Using Only Flour And Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Blörö - The Famous Finnish Breakfast Consisting Of Hot Coffee, Vodka, And A Cigarette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. $59 Worth Of BBQ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Regular Pepperoni My Brother Ordered</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Types Of Cones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Damn Damn Damn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I Got Trashed, Made Orange Chicken Dino Nuggets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. $50 Slow Roasted Prime Rib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Me And My Girlfriend Hit One Year Together. We’re Both Broke. So Nugs And Fries To Celebrate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I Like To Eat Bread With Mashed Potatoes And People Tell Me Thats Not Normal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This Was $20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The Arrogance Of Man Rears Its Ugly Head Once More As We Continue To Sin Against Heaven And God</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. It Was Actually Pretty Tasty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. It May Look Kinda [bad] But I’m Still Grateful As It’s All From My Local Food Bank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128850.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 People Of Walmart In Their Natural Habitat</a><br>
 
 <span style="font-size:4em">1. A different kind of store security</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128189.jpg" style="width:100%"><br>
 
@@ -536,60 +694,4 @@ Last updated: 03/24/2022-19:11:32
 <span style="font-size:4em">24. Looks like Christmas is on this year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128210.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Someone get this woman a modeling gig asap. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128211.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">25 Medical Conditions Way More Serious Than They Look</a><br>
-
-<span style="font-size:4em">1. Inflammatory Bowel Disease (Crohns, Colitis, etc). People here bowel and think Oh, thats just that pooping illness but internal bleeding, intestinal obstructions, massive amounts of pain, ulcers... its not an easy ride even for mild cases.-u/sticks1218</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Asthma. People stop breathing. Tv and movies like to show it as a way of identifying a weakling, but it is a serious, deadly disease. It is also super not fun.Until my mid-20s I was hospitalized at least 2x a year because my emergency inhaler wasnt enough to make me start breathing again. I bought my own nebulizer, and it is the only reason I havent been hospitalized since.-u/AtheneSchmidt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Eczema. People think its just itchy skin but it can be horrendously damaging-u/WitAndSavvy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Type 1 diabetes. I generally downplay it to I can just take insulin and can eat whatever I want because its easier than explaining Ill be playing a game of Flappy Bird the rest of my life where if I get the dosage wrong I can die immediately and without warning, where if I dont have insulin for 3 days I die a horrible painful death, and if I ignore it I can go blind and lose the ability to digest food. And all the fucking beeping devices, all day every day. Its beeping at me right now.Oh, and insulin costs $600 a month, so thats cool.-u/CrackSammiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. All the autoimmune diseases. The amount of pain suffered is incomprehensible. The medications can be brutal with side effects, and can cause other issues. The impact on families and the mental health of the patients is almost always negative. Most of the diseases are degenerative, and there is no cure for any of them.-u/mykidsarecrazy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128425.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tinnitus. It literally drives people to commit suicide to stop the ringing.-u/beasterne7</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Deaf/HOH backstory: both sides of my family have back hearing backgrounds. My father is deaf and my moms side just has bad hearing in general. I had good hearing most of my life until I was about 14ish. Discovered I have progressive hearing lose and I’ll eventually go completely deaf. It just sucks cause It’s so hard to communicate and do most things like a normal person and most people don’t understand that. For example when I ask someone to repeat myself and they say “ what are you deaf?” Yeah, I f*cking am.-u/Proper-Type7899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. As a narcoleptic: people tend to think its funny/quirky that I will fall asleep randomly but get all serious when Im suddenly lying asleep in the middle of a crossroad.-u/evoli21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Parkinsons. It is a whole lot more than just shaky hands-u/electrishian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. ShinglesIt can infect your eye and cause blindness. It can cause such severe pain and debility, you require long term nursing care (nursing home). Shingles is horrible.-u/Secret_Choice7764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Anorexia nervosa gets joked about a lot, but the survival rate is actually quite poor.-u/Secret_Choice7764</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. GERD. Cant count the number of people who say I just get stomachaches sometimes or everyone gets heartburn. I have esophageal scarring and have a restricted diet just so I dont spend days in agony because I decided to drink a sprite. I had a feeding tube attached to my stomach for years because I couldnt swallow and everything irritated my esophagus. My concerns werent taken seriously by doctors and I spent two weeks in a hospital struggling to convince them I wasnt anorexic. Even my voice is affected, I sound raspy to various degrees all the time.-u/PeculiarInsomniac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Migraines and cluster headaches. We might look okay on the outside, but its completely debilitating. I lose a lot of my life to head pain, as I mainly work and lay in bed. I have lost touch with a lot of friends and family members due to last-minute cancelation plans. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128420.png" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Some days, its so bad I want to drill a hole in my head to release the pain. Clusters are worse. This is why Im not a gun owner. It really sucks with this condition; its really not considered a disability. So I have to force myself to work to live, but forcing it makes it worse, so the quality of life really sucks. I have to warn new coworkers that if I start slurring, talking funny, or cant find words, Im not drunk and not having a stroke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-I know there are tons of horrible diseases out there, so I try to tell myself it could be worse. It also really sucks when someone tells you to suck it up because its just a headache. Ok, sorry, rant over.-u/turtle-girl420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Restless Legs Syndrome. Yes it is real, and yes it disrupts ones life, especially the ability to sleep. Lack of sleep then leads to a whole host of other conditions.-u/Mymoggievan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128435.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Chronic Fatigue Syndrome. Took my husband from an active, healthy, intelligent man to barely able to get out of bed. Terrible brain fog and many other debilitating symptoms. It is not just being tired.-u/Motor_Relation_5459</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Hypothyroidism. People think it just makes you fat, but if your thyroid stops working it can wreck your life. So many bodily functions are controlled by your thyroid. Every weird symptom I had for years can be explained by my thyroid going out, from years-long exhaustion to depression to my hair falling out to muscle aches to anemia to shortness of breath to brain fog to intermittent double vision. There are more. Those are just the most prominent ones for me.-u/PetLemur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My friend had an endometriosis case so severe, that it created webbing that was wrapped not only around her uterus and Fallopian tubes, but also was beginning to wrap around her intestines. While it’s incredibly painful on its own, it would get worse when she ate. I may be describing this incorrectly, but the doctors told her as she was digesting her food, it would pull on the “webbing” which caused the cramping to intensify. So did having bowel movements. She was in agony until the surgery to remove it. She lost so much weight because eating caused her so much more pain.-u/SomewhereinOregon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Dental abscess. A lot of people dont realize that dental infections can kill you if they spread throughout your body.-u/DeathSpiral321</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A nurse in my hometown committed suicide a few months after giving birth. She had been treating her Postpartum Depression the whole time and could never get the correct meds. It was very shocking to a lot of people who didn’t know what she was going through.-u/hawgfan1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Dementia. It’s not just “Haha grandma woke up today and thought somebody stole her purse but she had hidden it,” or “Come on Dad, just look at the picture carefully and you’ll remember it’s your grandchildren and great-grandchildren in it.” There are so many behaviors, they get violent, they elope in the middle of the night or day, they lose their entire identity. They go back into not knowing how to care for themselves. It is extremely heartbreaking to watch the process. Especially with Lewy Body Dementia. They’re getting younger and younger nowadays and they tend to decline at a much faster rate.-u/nollyson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Snoring Often a sign of something more serious, like apnea, which can impair cognitive function, cause weight gain, and trim years off your life.-u/BudgetHero</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87128442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. How about OCD. People think it just makes them quirky and particular. Ive seen it where people end up harming themselves, and cant function in society.-u/ooo-ooo-oooyea</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100141/87128878/0.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Anxiety. One time I told someone I had anxiety and they said “at least you don’t have depression”-u/DolphinPlayz123</span><br><img src="https://cdn.ebaumsworld.com/2022/03/22/100146/87128879/0.png" style="width:100%"><br>
 
