@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/26/2022-19:11:31
+Last updated: 03/26/2022-20:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Hilarious Things Kids Have Asked Their Teachers</a><br>
 
@@ -33,45 +33,59 @@ Last updated: 03/26/2022-19:11:31
 
 <span style="font-size:4em">15. I asked my kindergartners if anyone knew what a period was (while teaching sentence punctuation) and one boy enthusiastically says “yeah, my mom has them in the bathroom!!” - mrs_chanandlerr_bong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129211.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">19 Insults That Really Hit the Mark</a><br>
+## <a href="#linky3" id="linky2">26 Designs That Are Just Terrible</a><br>
 
-<span style="font-size:4em">1. I wonder if he can cook too?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129888.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129883.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. To be fair, I dont think many of us can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129900.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Well thats helpful. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Is this even an insult though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129894.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. You almost have to wonder if thats just a brilliant sales tactic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129885.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129886.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Looks delicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129887.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Those can look cool from time to time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129881.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Dont kiss any frogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129896.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Kangaroos dont even walk...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129889.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Chaos. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Sounds like he must be on to something...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129890.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. At least it was cool in the 1700s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129884.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Please asteroid, just hit us already. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129892.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129893.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Well someone did design those clothes...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129882.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. That one kisses a tender spot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129895.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129897.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. At least its with makeup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129898.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. At least theyre up front about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Dont chat about moms spaghetti around him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129901.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Break glass to get rock to break glass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130185.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">47 Fun Pics to Laugh at Alone in an Empty Room</a><br>
 
@@ -315,57 +329,49 @@ Last updated: 03/26/2022-19:11:31
 
 <span style="font-size:4em">15. Edward Norton, age 27 and 50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130692.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">People Who Were Screwed Over By the Media</a><br>
+## <a href="#linky8" id="linky7">Dudes Posting Their Wins Online Is the Content We Love to See</a><br>
 
-<span style="font-size:4em">1. Christopher Jefferies who had the bad luck to be a bit strange-looking and eccentric and be the close neighbor of a murdered woman. Originally questioned over the murder and released, he was hounded by Britains tabloid papers right up to the point where it was proved that someone else was the murderer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131006.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Never give up on your dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131094.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A Dingo really did eat that baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131007.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Not only a best friend, but a brother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131095.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Edward Snowden. The guy may have defected but he revealed how corrupt our government actually was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131005.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I need this dudes motivation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131097.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Brendan Fraser.Was shamed and blacklisted for admitting to being sexually assaulted in the industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131008.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Pay these lifeguards whatever they want.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Britney Spears. They loved her mental breakdown.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131009.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Men protecting women from other men. Need more of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131099.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A lot of Dolly Parton media from her early years is pretty hard to watch. She always handled it like a class act, though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131010.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Father of the century right here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Paul Reubens How dare he got to an adult jerk off theater and jerk off in the presence of other adults who went to the adult jerk off theater specifically to jerk off in the presence of other adults who were also jerking off.Wont someone please think of the children!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131018.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Hank the Tank is free!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Sharks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131011.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The celebratory pose is everything. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131101.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Lindsay Lohan. David Letterman made fun of her for going to rehab on national television, to the point where she began to cry. She had her demons, but was treated disgustingly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131012.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This one hits hard. But what a win it is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131102.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Richard Jewell. The media basically killed him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131013.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This dude is doing the lords work. Thank you sir.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131103.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Stella Liebeck. Nearly died from 3rd degree burns courtesy of McDonald’s coffee, gets them to stop serving coffee at a hazardous temperature, and what does she get? Her name synonymous with stupid lawsuits and even Darwin-esque awards for stupidest lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131014.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Just a dude dominating his sport.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131105.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. All those people prosecuted as part of the Satanic Panic, 1980s-90s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131015.png" style="width:100%"><br>
+<span style="font-size:4em">12. This guy is the true Prank Sinatra.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131106.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Monika Lewinsky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131016.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Ethan Suplee, the actor from Remember the Titans and The Wolf of Wall Street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131104.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Jake Lloyd. Not his fault much of Phantom Menace was cringe, especially the dialogue. Personally, I think Anakin should’ve been introduced and played by a teenager. Would’ve made his relationship with Padme less creepy.But that was all Lucas. Kid didn’t need to crapped on by fans and the media.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131017.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Doesnt get much better than this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131107.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Janet. Jackson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131019.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dad coming in clutch for the win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131108.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Dr Steven Hatfill. The man who didn’t send out envelopes full of anthrax.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131020.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. I plank for about 10 seconds before Im shaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131109.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Pamela AndersonPam & Tommy gutted me. She didnt deserve that mess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131021.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. How are we not holding a parade for this man??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131110.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Sinead O’Connor. The media practically cancelled her for speaking out against abuse in the Catholic Church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131022.png" style="width:100%"><br>
+<span style="font-size:4em">18. Some girls just dont understand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131111.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Howard Dean. Oh no, dont get too excited about winning elections!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131023.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Just casually kayaking oceans without any fan-fair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131112.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Amy WinehouseIf you see that doco about her, her parents did not help that situation at all. Her mum knew she was bulimic from a young age and did nothing. Her dad could see her suffering and still encouraged the paparazzi to take photos of her while on holiday no less. Gross, gross parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131024.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This man holding up a photo of the forest that he saved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131113.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Princess Diana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Milli Vanilli. The producer behind them is the one who should have got all the sh*t, it was all his idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Duke lacrosse guys. Rich, over privileged white frat bros who beat and raped a black stripper they had hired to perform at their frat party. Because of course they did, it was obvious. Lock em up and throw away the key.Except it never happened. The woman made it all up. They were presumed guilty, and were treated as such by the media.Charges were eventually dropped, but not before the accused and sustained extreme damage to their names, reputations, and, surely, mental health. Eventual fallout would include the prosecutor getting disbarred for fraud, and Duke University settling with the guys for $20 million each. The stripper? Several years later, she would be arrested and convicted of murder after stabbing her boyfriend to death. Yea, its unrelated, but its a lso a window into the kind of person she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Amanda Knox. I can’t imagine being blamed for the murder of your housemate and doing time for it. Not only that but the real murderer went to prison yet people still think she did it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Chicks, formerly the Dixie Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131029.png" style="width:100%"><br>
+<span style="font-size:4em">21. Take a bow young king!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131114.jpeg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">30 Statements That Aged Poorly</a><br>
 
@@ -429,7 +435,113 @@ Last updated: 03/26/2022-19:11:31
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131360.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
+## <a href="#linky10" id="linky9">26 Memes from ‘The Office’ That Would Get Michael Fired</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130650.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130651.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130652.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130653.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130654.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130655.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130657.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130659.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130661.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130664.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130665.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130667.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130668.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130669.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130670.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130674.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130675.png" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/015057/87131796/fresh-memes-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131250.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131248.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131269.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131272.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131363.jpeg" style="width:100%"><br>
 
@@ -493,210 +605,7 @@ Last updated: 03/26/2022-19:11:31
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131393.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/015057/87131796/fresh-memes-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131250.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131248.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131269.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131272.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">24 Unsettling Facts About Nuclear Bombs</a><br>
-
-<span style="font-size:4em">1. 54% of the USs deterrent nuclear weapons are onboard nuclear-powered submarines capable of prowling the ocean for 70 days at a time, their exact locations are known only to their crews. Their mission is to remain hidden so as to assure second-strike retaliatory capability </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> -u/penny_can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Don’t use conditioner in your hair in the wake of nuclear particles. It’ll bind the radioactive material to the hair shaft.-u/DubiousAxolotl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. -The first one (or maybe the first two) were referred to simply as The gadget.- An underground nuclear bomb test is thought by some to be responsible for the fastest-moving man-made object in history: A manhole cover. It was used to cover the hole down which the bomb was lowered, and a high-speed camera was trained on it because there was the expectation that it would bugger off very quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-The camera captured only one frame with the lid in it post-explosion. Calculations are very rough, but if accurate, the lid far exceeded escape velocity, reaching a speed higher than even any spacecraft or probe yet launched, and if it survived intact it will right now be whizzing through space at a ridiculous pace.-u/kiseca</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Castle Bravo test ended up being WAY bigger than the scientists predicted. The video is on youtube and its crazy.-u/Deim05_gs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. They were once used to try and create manmade weaponize tsunamis. Project Seal-u/CaptainBillyum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There was a nuclear missile treaty that a technician describes as “it’s like you have a Volkswagen in your garage. You can never drive it, but you can periodically disassemble it, examine every part, perform maintenance on the parts, ensure that each individual part works as intended, then reassemble it, but you can never start the engine and you definitely can’t drive it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-”There’s also a website where you can superimpose a nuclear blast over various cities. Helps give perspective on the scale of the blast.https://nuclearsecrecy.com/nukemap/-u/Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. During the Cold War, 32 nuclear weapons were lost due to accidents, six of which were never recovered.-u/johndenverspilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Depending on how high the fallout is it can be blown around the Earth by winds affecting everybody-u/Kittiem85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Fun fact: if one can intercept a nuclear missile the odds of a nuclear explosion is extremely low.-u/Badjib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Once the chain reaction with the uranium is initiated, neutrons bounce around inside the device triggering more atoms to release their energy. Early designs exploded before much of the nuclear material had even been triggered, leading to wasted uranium and smaller explosions. The most effective designs contain this chain reaction for as long as possible like a pressure cooker to maximize the size of the explosion.-u/KnowsHair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That the national weather service has a published response to the question is nuking a hurricane a viable solution?-u/WarlikeMicrobe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. If you can see it clearly youre probably standing too close-u/mercurypuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Operation Crossroads: After the iconic “Baker” shot, Bikini Lagoon was heavily irradiated, as the bomb was detonated underwater. To show how irradiated the water was, army general Stafford Warren caught a fish from the lagoon and used it to expose an X-Ray image of itself on a piece of film. The fish experiment (and subsequent scientific instrument readings of the radiation) led to the eventual cancellation of the third planned test that was supposed to happen.-u/FreeMoCo2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. After a nuclear war, the ozone layer would be burnt off and would take 3-10 years to recover. So if you go outside you’ll get a killer sunburn and possibly blindness and much higher chance of skin cancer. Stay covered up and wear good sunglasses I guess!-u/blue_nowhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In 1961, a Boeing B-52 Stratofortress carrying 2 Mark 39 3-4 megaton nuclear bombs broke apart while flying near Goldsboro, North Carolina. One of the two nuclear bombs came really came close to detonate as somehow 3 out of 4 triggering mechanisms were triggered when they found the bomb.-u/TheBassMeister</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. General McArthur and a few other high military uppers wanted to nuke North Korea with something like 34 warheads. President Truman basically told them to piss off.-u/jajones81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The reason mushroom clouds are as prevalent as they are in SpongeBob is because Bikini Bottom is the sea bed under Bikini Atoll, the site of the Operation Crossroads nuclear tests. Its also a bit of a tourist attraction and the ships there, which include IJN Nagato and USS Saratoga, are diveable wrecks.On a secondary note, water does a very good job of containing radiation.-u/Braith117</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That it’s not freaking pronounced “NUKYULAR”-u/Prossdog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. There is a distance from any nuclear blast at which a frozen pizza would instantly be cooked to perfection.-u/TheOrdersMaster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130929.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is why the Fallout guy is giving a thumbs up. If the mushroom is larger than your thumb it means you are too close-u/ewokoncaffine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. That we have hundreds of them sitting in all seven seas.-u/cvn74em</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130909.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">26 Designs That Are Just Terrible</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Well thats helpful. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. You almost have to wonder if thats just a brilliant sales tactic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Chaos. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Please asteroid, just hit us already. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. At least theyre up front about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Break glass to get rock to break glass. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130185.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">Dudes Posting Their Wins Online Is the Content We Love to See</a><br>
-
-<span style="font-size:4em">1. Never give up on your dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131094.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Not only a best friend, but a brother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131095.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I need this dudes motivation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131097.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Pay these lifeguards whatever they want.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131098.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Men protecting women from other men. Need more of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131099.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Father of the century right here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131100.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hank the Tank is free!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131096.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The celebratory pose is everything. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131101.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This one hits hard. But what a win it is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131102.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This dude is doing the lords work. Thank you sir.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131103.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Just a dude dominating his sport.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131105.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This guy is the true Prank Sinatra.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131106.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ethan Suplee, the actor from Remember the Titans and The Wolf of Wall Street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131104.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Doesnt get much better than this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131107.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dad coming in clutch for the win.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131108.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I plank for about 10 seconds before Im shaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131109.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. How are we not holding a parade for this man??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131110.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Some girls just dont understand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131111.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Just casually kayaking oceans without any fan-fair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131112.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This man holding up a photo of the forest that he saved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131113.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Take a bow young king!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131114.jpeg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Pictures That Make You Lose Faith In Humanity</a><br>
+## <a href="#linky13" id="linky12">Pictures That Make You Lose Faith In Humanity</a><br>
 
 <span style="font-size:4em">1. This is Everything Thats Wrong With the Working World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130632.jpg" style="width:100%"><br>
 
@@ -758,61 +667,7 @@ The camera captured only one frame with the lid in it post-explosion. Calculatio
 
 <span style="font-size:4em">30. Building This Road Destroyed Castle Ruins (Kajaani, Finland)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130648.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">26 Memes from ‘The Office’ That Would Get Michael Fired</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130650.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130651.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130652.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130653.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130654.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130655.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130657.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130659.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130661.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130664.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130665.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130667.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130668.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130669.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130670.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130674.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87130675.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">28 Dank Memes We Found While Dumpster Diving</a><br>
+## <a href="#linky14" id="linky13">28 Dank Memes We Found While Dumpster Diving</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87130470.jpg" style="width:100%"><br>
 
@@ -863,4 +718,149 @@ The camera captured only one frame with the lid in it post-explosion. Calculatio
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87130496.jpeg" style="width:100%"><br>
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87130497.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">19 Insults That Really Hit the Mark</a><br>
+
+<span style="font-size:4em">1. I wonder if he can cook too?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. To be fair, I dont think many of us can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Is this even an insult though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Looks delicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Those can look cool from time to time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Dont kiss any frogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kangaroos dont even walk...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Sounds like he must be on to something...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. At least it was cool in the 1700s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Well someone did design those clothes...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That one kisses a tender spot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. At least its with makeup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Dont chat about moms spaghetti around him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129901.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Unsettling Facts About Nuclear Bombs</a><br>
+
+<span style="font-size:4em">1. 54% of the USs deterrent nuclear weapons are onboard nuclear-powered submarines capable of prowling the ocean for 70 days at a time, their exact locations are known only to their crews. Their mission is to remain hidden so as to assure second-strike retaliatory capability </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> -u/penny_can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Don’t use conditioner in your hair in the wake of nuclear particles. It’ll bind the radioactive material to the hair shaft.-u/DubiousAxolotl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. -The first one (or maybe the first two) were referred to simply as The gadget.- An underground nuclear bomb test is thought by some to be responsible for the fastest-moving man-made object in history: A manhole cover. It was used to cover the hole down which the bomb was lowered, and a high-speed camera was trained on it because there was the expectation that it would bugger off very quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+The camera captured only one frame with the lid in it post-explosion. Calculations are very rough, but if accurate, the lid far exceeded escape velocity, reaching a speed higher than even any spacecraft or probe yet launched, and if it survived intact it will right now be whizzing through space at a ridiculous pace.-u/kiseca</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The Castle Bravo test ended up being WAY bigger than the scientists predicted. The video is on youtube and its crazy.-u/Deim05_gs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. They were once used to try and create manmade weaponize tsunamis. Project Seal-u/CaptainBillyum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. There was a nuclear missile treaty that a technician describes as “it’s like you have a Volkswagen in your garage. You can never drive it, but you can periodically disassemble it, examine every part, perform maintenance on the parts, ensure that each individual part works as intended, then reassemble it, but you can never start the engine and you definitely can’t drive it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+”There’s also a website where you can superimpose a nuclear blast over various cities. Helps give perspective on the scale of the blast.https://nuclearsecrecy.com/nukemap/-u/Thirty_Helens_Agree</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. During the Cold War, 32 nuclear weapons were lost due to accidents, six of which were never recovered.-u/johndenverspilot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Depending on how high the fallout is it can be blown around the Earth by winds affecting everybody-u/Kittiem85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Fun fact: if one can intercept a nuclear missile the odds of a nuclear explosion is extremely low.-u/Badjib</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Once the chain reaction with the uranium is initiated, neutrons bounce around inside the device triggering more atoms to release their energy. Early designs exploded before much of the nuclear material had even been triggered, leading to wasted uranium and smaller explosions. The most effective designs contain this chain reaction for as long as possible like a pressure cooker to maximize the size of the explosion.-u/KnowsHair</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That the national weather service has a published response to the question is nuking a hurricane a viable solution?-u/WarlikeMicrobe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If you can see it clearly youre probably standing too close-u/mercurypuppy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Operation Crossroads: After the iconic “Baker” shot, Bikini Lagoon was heavily irradiated, as the bomb was detonated underwater. To show how irradiated the water was, army general Stafford Warren caught a fish from the lagoon and used it to expose an X-Ray image of itself on a piece of film. The fish experiment (and subsequent scientific instrument readings of the radiation) led to the eventual cancellation of the third planned test that was supposed to happen.-u/FreeMoCo2009</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. After a nuclear war, the ozone layer would be burnt off and would take 3-10 years to recover. So if you go outside you’ll get a killer sunburn and possibly blindness and much higher chance of skin cancer. Stay covered up and wear good sunglasses I guess!-u/blue_nowhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 1961, a Boeing B-52 Stratofortress carrying 2 Mark 39 3-4 megaton nuclear bombs broke apart while flying near Goldsboro, North Carolina. One of the two nuclear bombs came really came close to detonate as somehow 3 out of 4 triggering mechanisms were triggered when they found the bomb.-u/TheBassMeister</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. General McArthur and a few other high military uppers wanted to nuke North Korea with something like 34 warheads. President Truman basically told them to piss off.-u/jajones81</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The reason mushroom clouds are as prevalent as they are in SpongeBob is because Bikini Bottom is the sea bed under Bikini Atoll, the site of the Operation Crossroads nuclear tests. Its also a bit of a tourist attraction and the ships there, which include IJN Nagato and USS Saratoga, are diveable wrecks.On a secondary note, water does a very good job of containing radiation.-u/Braith117</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That it’s not freaking pronounced “NUKYULAR”-u/Prossdog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. There is a distance from any nuclear blast at which a frozen pizza would instantly be cooked to perfection.-u/TheOrdersMaster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130929.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is why the Fallout guy is giving a thumbs up. If the mushroom is larger than your thumb it means you are too close-u/ewokoncaffine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. That we have hundreds of them sitting in all seven seas.-u/cvn74em</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87130909.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">People Who Were Screwed Over By the Media</a><br>
+
+<span style="font-size:4em">1. Christopher Jefferies who had the bad luck to be a bit strange-looking and eccentric and be the close neighbor of a murdered woman. Originally questioned over the murder and released, he was hounded by Britains tabloid papers right up to the point where it was proved that someone else was the murderer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A Dingo really did eat that baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Edward Snowden. The guy may have defected but he revealed how corrupt our government actually was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Brendan Fraser.Was shamed and blacklisted for admitting to being sexually assaulted in the industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Britney Spears. They loved her mental breakdown.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A lot of Dolly Parton media from her early years is pretty hard to watch. She always handled it like a class act, though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Paul Reubens How dare he got to an adult jerk off theater and jerk off in the presence of other adults who went to the adult jerk off theater specifically to jerk off in the presence of other adults who were also jerking off.Wont someone please think of the children!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Sharks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Lindsay Lohan. David Letterman made fun of her for going to rehab on national television, to the point where she began to cry. She had her demons, but was treated disgustingly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Richard Jewell. The media basically killed him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Stella Liebeck. Nearly died from 3rd degree burns courtesy of McDonald’s coffee, gets them to stop serving coffee at a hazardous temperature, and what does she get? Her name synonymous with stupid lawsuits and even Darwin-esque awards for stupidest lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. All those people prosecuted as part of the Satanic Panic, 1980s-90s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131015.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Monika Lewinsky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Jake Lloyd. Not his fault much of Phantom Menace was cringe, especially the dialogue. Personally, I think Anakin should’ve been introduced and played by a teenager. Would’ve made his relationship with Padme less creepy.But that was all Lucas. Kid didn’t need to crapped on by fans and the media.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Janet. Jackson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Dr Steven Hatfill. The man who didn’t send out envelopes full of anthrax.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Pamela AndersonPam & Tommy gutted me. She didnt deserve that mess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Sinead O’Connor. The media practically cancelled her for speaking out against abuse in the Catholic Church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131022.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Howard Dean. Oh no, dont get too excited about winning elections!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Amy WinehouseIf you see that doco about her, her parents did not help that situation at all. Her mum knew she was bulimic from a young age and did nothing. Her dad could see her suffering and still encouraged the paparazzi to take photos of her while on holiday no less. Gross, gross parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Princess Diana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Milli Vanilli. The producer behind them is the one who should have got all the sh*t, it was all his idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The Duke lacrosse guys. Rich, over privileged white frat bros who beat and raped a black stripper they had hired to perform at their frat party. Because of course they did, it was obvious. Lock em up and throw away the key.Except it never happened. The woman made it all up. They were presumed guilty, and were treated as such by the media.Charges were eventually dropped, but not before the accused and sustained extreme damage to their names, reputations, and, surely, mental health. Eventual fallout would include the prosecutor getting disbarred for fraud, and Duke University settling with the guys for $20 million each. The stripper? Several years later, she would be arrested and convicted of murder after stabbing her boyfriend to death. Yea, its unrelated, but its a lso a window into the kind of person she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Amanda Knox. I can’t imagine being blamed for the murder of your housemate and doing time for it. Not only that but the real murderer went to prison yet people still think she did it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The Chicks, formerly the Dixie Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131029.png" style="width:100%"><br>
 
