@@ -1,171 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/28/2022-09:11:31
+Last updated: 03/28/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">Stanley Kubrick’s Photos of NYC Are Pure Eye Candy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131087.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">30 Statements That Aged Poorly</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Makes you wonder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Youre welcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Youre a real piece of work, Jerry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I hear that Jeffrey Dahmer was a very polite guest too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ah, if only if only. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I guess Ill have to take your word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Somebody sounds a little bitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Psych!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Youre sure, right? You wouldnt publish it if you werent sure, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131360.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">15 People Who Had the Worst Neighbors Imaginable </a><br>
-
-<span style="font-size:4em">1. My asshole neighbors are actually fine to me. A very old woman lives there and her step-brother uses the location to sell drugs. His clientele are not nice. They piss on the sidewalk, they harass my neighbors, they sit on peoples property, they will steal anything that isnt nailed down. - Oudeis16</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. We live on a farm. We share a driveway with one other family. Theyre very passive-aggressive. Long story short they want us to build a separate driveway. Numerous times he has blocked our only way out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-As of late, Ive been finding nails, screws, and scrap metal in the driveway past where they ever drive their vehicles. I try to avoid conflict, but its starting to get out of hand. As of yesterday, I installed a trail cam in hopes that they will stop being assholes. Time will tell if that actually works. - stealyourfaced</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not the worst but the funniest was threatened to kill my father via “mafia connections” over weed whacker. He laughed in his face and kept going - tyrom22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Used to live next to this single mother (40s) and her daughter (16). They were the type of neighbors that would have the police round a handful of times a year for god knows what reason. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-This one day Im working on my motorbike out in the shared car park, when the mother turned up in her Ford Ka and parked next to my parents car. She got out of her car and proceeded to smash her car door into my parents about 8 or 9 times while smiling at me. Her nickname was Psycho Sally for a reason. - slawter_uk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Had a neighbor leave a note on my then-girlfriends car saying she wasnt allowed to park in front of their house because their taxes paid for that part of the street. That same neighbor constantly called the cops on me for trivial things like one time I was shoveling my driveway and I moved my car onto the sidewalk for 5 minutes while I shoveled the spot where it was previously parked. Pretty much every discussion I had with the cops involved the cop making fun of how stupid the people were for calling to complain. - DobRex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. One guy fed my cat antifreeze. Spapoop was a good kitty and didnt deserve that. - Spodson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My brother’s neighbor once gave poisoned meat to his (my brother’s) dog. Fortunately the dog decided to come show off her “prize” instead of just scarfing it down so she was okay. - LadySygerrik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I had a weird old creep for a neighbor who would spend his time washing his car in front of his house. one day we had workers over doing building work on the house. after a few days, they informed us that the old creep would hide behind the fence and spend the afternoon abusing them and throwing racist comments. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-My dad discreetly crept back to catch him doing it and gave him the fright and humiliation of his life. The next day he started mowing the lawn at night with a flashlight and testing his fire alarm in the middle of the night. the police was called to deal with him. - Meanwhile-in-Paris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Let their monster children run around the neighborhood and destroy peoples cars. They were always in and out of court because of their negligence. - Express_Topic_4081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Tried to poison our horses because the wives were fighting. - WyomingVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He cornered my wife in a corner of the garage preventing her escape. He explained how he would protect her and showed her his gun in his waistband. He pulled out a knife and showcased his military training on how to kill a man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Finally he expressed his love for her and how he fantasizes about sneaking into our bedroom to give her oral. He told her he was really good at giving it and asked her to kiss him. Apparently none of these actions are a crime in Florida. - slowmen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129283.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">15 Hilarious Things Kids Have Asked Their Teachers</a><br>
+## <a href="#linky2" id="linky1">15 Hilarious Things Kids Have Asked Their Teachers</a><br>
 
 <span style="font-size:4em">1. The time a fourth grader asked me to show him my dong. Loudly. In front of his entire class. I’m a music teacher. And a female. He meant he wanted to see a gong. - urbancowgirl42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129197.jpg" style="width:100%"><br>
 
@@ -197,7 +33,113 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">15. I asked my kindergartners if anyone knew what a period was (while teaching sentence punctuation) and one boy enthusiastically says “yeah, my mom has them in the bathroom!!” - mrs_chanandlerr_bong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129211.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
+## <a href="#linky3" id="linky2">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/015057/87131796/fresh-memes-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131250.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131248.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131269.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131272.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">26 Clever Do It Yourself Life Hacks to Simplify Your Life</a><br>
+
+<span style="font-size:4em">1. Cheap cell phone holder that could be found in your workplace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “To remove strong adhesive labels from the containers, leave the containers in the freezer and the stickers will peel off with ease!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Reuse a Pringles can for other snacks that come in bags to avoid loud bag crinkling in the office.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I had no idea this was a thing even after 45 years of grocery shopping. Hang your crunchables on the back of the cart.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “PopSocket on the fridge door. Credit to my 14-year-old daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “3M hanger upside down keeps a trash bag in place.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. You can store headphones and keep them tangle free in these mint / candy / gum cases.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/110430/87131635/1a.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Putting together furniture is tedious, so use some of its Styrofoam packaging for keeping small parts from disappearing!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You can use a mug to increase your phone volume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “A large carabiner with a sponge grip makes carrying groceries a more pleasant experience for your fingers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “To store a cake without having to dig it out the container later, just flip a Tupperware container upside down and use the lid as the bottom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No more messy and scattered detergents and cleaning bottles if you hang them in a shoe organizer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Starbucks containers are actually designed to sit on their lids to help prevent unsightly table stains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “To replace an old coaster, just go to the tile store and stick adhesive felt or cork on the underside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My parents used 2 coat hangers and scrap wood to make a temporary shelf.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. You’re supposed to shake out the popcorn kernels through the little opening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The loop on your backpack makes a handy coffee cup holder.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/110438/87131636/2b.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Common runner’s trick, wear socks inside out to prevent blisters and chafing from seams.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you eat your food raw, you will tend to lose weight. If you eat the same food cooked, you will tend to gain weight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Use heat shrink tubing to repair lost aglets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Use a ladder when hauling tall plants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. If your coffee is too bitter, you can add a few specks of salt to make it smooth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “If you accidentally tear the chip bag use a hole puncher to keep it from spreading.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The little arrow tells you which side of your car the fuel cap is located on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Reuse a Pringles can for other snacks that come in bags to avoid loud bag crinkling in the office.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The hole on the inside of your pasta utensil is supposed to measure a single serving of spaghetti.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129761.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
 
 <span style="font-size:4em">1. I saw tiny tiny bugs crawling over a little flower among the grass. I realized they had never heard music before, poor lil guys, so I put my phone next to the flower and gave them the concert of a lifetime. - satooshi-nakamooshi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129233.jpg" style="width:100%"><br>
 
@@ -245,7 +187,7 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">16. This one time I was in front of my TV watching comedians in cars getting coffee. I had my bong on the coffee table between me and the TV. I am seeing Jerry Seinfeld driving someone in new York and suddenly I can see a cop car joining their lane behind them. I quietly and slowly took the bong down on the floor so the cops cant see it. - osvalds1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129252.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">46 Dirty Memes to Spicy for the Daytime</a><br>
+## <a href="#linky6" id="linky5">46 Dirty Memes to Spicy for the Daytime</a><br>
 
 <span style="font-size:4em">1. Now thats a deal you really just cant afford to pass up!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87130862.jpg" style="width:100%"><br>
 
@@ -339,7 +281,149 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87130899.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 Savage Tweets That Don't Hold Back </a><br>
+## <a href="#linky7" id="linky6">15 People Who Had the Worst Neighbors Imaginable </a><br>
+
+<span style="font-size:4em">1. My asshole neighbors are actually fine to me. A very old woman lives there and her step-brother uses the location to sell drugs. His clientele are not nice. They piss on the sidewalk, they harass my neighbors, they sit on peoples property, they will steal anything that isnt nailed down. - Oudeis16</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. We live on a farm. We share a driveway with one other family. Theyre very passive-aggressive. Long story short they want us to build a separate driveway. Numerous times he has blocked our only way out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+As of late, Ive been finding nails, screws, and scrap metal in the driveway past where they ever drive their vehicles. I try to avoid conflict, but its starting to get out of hand. As of yesterday, I installed a trail cam in hopes that they will stop being assholes. Time will tell if that actually works. - stealyourfaced</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Not the worst but the funniest was threatened to kill my father via “mafia connections” over weed whacker. He laughed in his face and kept going - tyrom22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Used to live next to this single mother (40s) and her daughter (16). They were the type of neighbors that would have the police round a handful of times a year for god knows what reason. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+This one day Im working on my motorbike out in the shared car park, when the mother turned up in her Ford Ka and parked next to my parents car. She got out of her car and proceeded to smash her car door into my parents about 8 or 9 times while smiling at me. Her nickname was Psycho Sally for a reason. - slawter_uk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Had a neighbor leave a note on my then-girlfriends car saying she wasnt allowed to park in front of their house because their taxes paid for that part of the street. That same neighbor constantly called the cops on me for trivial things like one time I was shoveling my driveway and I moved my car onto the sidewalk for 5 minutes while I shoveled the spot where it was previously parked. Pretty much every discussion I had with the cops involved the cop making fun of how stupid the people were for calling to complain. - DobRex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. One guy fed my cat antifreeze. Spapoop was a good kitty and didnt deserve that. - Spodson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My brother’s neighbor once gave poisoned meat to his (my brother’s) dog. Fortunately the dog decided to come show off her “prize” instead of just scarfing it down so she was okay. - LadySygerrik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I had a weird old creep for a neighbor who would spend his time washing his car in front of his house. one day we had workers over doing building work on the house. after a few days, they informed us that the old creep would hide behind the fence and spend the afternoon abusing them and throwing racist comments. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+My dad discreetly crept back to catch him doing it and gave him the fright and humiliation of his life. The next day he started mowing the lawn at night with a flashlight and testing his fire alarm in the middle of the night. the police was called to deal with him. - Meanwhile-in-Paris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Let their monster children run around the neighborhood and destroy peoples cars. They were always in and out of court because of their negligence. - Express_Topic_4081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Tried to poison our horses because the wives were fighting. - WyomingVet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129281.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. He cornered my wife in a corner of the garage preventing her escape. He explained how he would protect her and showed her his gun in his waistband. He pulled out a knife and showcased his military training on how to kill a man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Finally he expressed his love for her and how he fantasizes about sneaking into our bedroom to give her oral. He told her he was really good at giving it and asked her to kiss him. Apparently none of these actions are a crime in Florida. - slowmen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129283.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">30 Cases Of Mild Vandalism</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Thats not what a belly button piercing looks like!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Rock out, this way!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ive never met a man named Radar before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. And another year of ForLease - idad. (Felicidad)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Everything is better with friends, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Towel me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. What are you doing, step van?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Looks right to me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Well I guess fish can wear shoes if they want</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im having such a good time!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Better be on the lookout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I wonder where that sign is, and I wonder what it does?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Someday this wont be true :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dont @ the bubonic plague </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Isnt the add technically.... graffiti?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Patrick is no bohemian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A waste of resources, placing a sign for only one day a year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Its precious to him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Finally! I never knew what that sign meant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The real way to never have clogged toilets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Thats what I was doing wrong in gym class!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131501.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">19 Terrible Things That Are Legally Being Sold</a><br>
+
+<span style="font-size:4em">1. Those non-fda approved energy pills sold at gas stations and corner stores. Tried em once, should have listened to the crackhead who told me not to buy them. - Available_Job1288</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I work in a pet store and though it’s not majorly fucked up i think it’s wild that people can buy a tortoise or any animals for that matter that can and will outlive them and their kids. just assuming their grandkids will take care of them or given to another sanctuary. - Dope_Lunaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. courses that show you dreams of being rich but turn out to be poorly plagiarised material from some self help book. - fuddafascists</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ink cartriges and printers - their manufacturing cost is really cheap, but companies keep the price at all time high. - N0L1CZE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Betta fish in those cups. It would be like telling you to go wait in a closet until someone rescues you, and when they do, it means that another victim is destined for the closet to replace you. - steelep13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Mobile game ads that show a completely different gameplay than that of the game they’re actually advertising - speedbro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. All of Gwyneth Paltrows goop shit. - bobby-spanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Child beauty shows are gross - Remarkable_Toe_4423</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Anything that claims to rid your body of “toxins” - Lost-Sea4916</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Weight loss pills - Stupidsexyflanders61</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tanning beds. Theyre known to double your risk for melanoma. Its a wonder they havent been banned or at least taxed four times over like cigarettes. - Dynasuarez-Wrecks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Shark fin soup - Bnmko_007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ads on TV for pharmaceuticals. - satellite_retro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Little plastic keychains with live animals sealed inside them. - VitaDeVoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Politicians... Purchased by lobbyist and others - Mobile_Zebra3897</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Tinder premium subscription. - redditCredditLeggit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Positive pregnancy tests used to trick people. - Freeiheit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Extended warranties. - N79806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Bleaching/Skin lightening creams. They are extremely dangerous and may cause damage to ones skin that is irreversible. Ive known friends who bleached and it looked like parts of their skin had literally been boiled off or they became darker in complexion due to damage. They tend to be sold a lot in countries in Africa and south east Asia. Its quite scary how easy they can also be found in Asian/African beauty stores in the states but are probably sold illegally. - stakedrivers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129195.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">30 Savage Tweets That Don't Hold Back </a><br>
 
 <span style="font-size:4em">1. Not going to lie this looks pretty great. Lower back pain bros stand up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129698.jpg" style="width:100%"><br>
 
@@ -401,59 +485,7 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129728.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">People Who Were Screwed Over By the Media</a><br>
-
-<span style="font-size:4em">1. Christopher Jefferies who had the bad luck to be a bit strange-looking and eccentric and be the close neighbor of a murdered woman. Originally questioned over the murder and released, he was hounded by Britains tabloid papers right up to the point where it was proved that someone else was the murderer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Dingo really did eat that baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Edward Snowden. The guy may have defected but he revealed how corrupt our government actually was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Brendan Fraser.Was shamed and blacklisted for admitting to being sexually assaulted in the industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Britney Spears. They loved her mental breakdown.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A lot of Dolly Parton media from her early years is pretty hard to watch. She always handled it like a class act, though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Paul Reubens How dare he got to an adult jerk off theater and jerk off in the presence of other adults who went to the adult jerk off theater specifically to jerk off in the presence of other adults who were also jerking off.Wont someone please think of the children!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Sharks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lindsay Lohan. David Letterman made fun of her for going to rehab on national television, to the point where she began to cry. She had her demons, but was treated disgustingly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Richard Jewell. The media basically killed him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Stella Liebeck. Nearly died from 3rd degree burns courtesy of McDonald’s coffee, gets them to stop serving coffee at a hazardous temperature, and what does she get? Her name synonymous with stupid lawsuits and even Darwin-esque awards for stupidest lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. All those people prosecuted as part of the Satanic Panic, 1980s-90s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131015.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Monika Lewinsky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jake Lloyd. Not his fault much of Phantom Menace was cringe, especially the dialogue. Personally, I think Anakin should’ve been introduced and played by a teenager. Would’ve made his relationship with Padme less creepy.But that was all Lucas. Kid didn’t need to crapped on by fans and the media.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Janet. Jackson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Dr Steven Hatfill. The man who didn’t send out envelopes full of anthrax.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Pamela AndersonPam & Tommy gutted me. She didnt deserve that mess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Sinead O’Connor. The media practically cancelled her for speaking out against abuse in the Catholic Church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131022.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Howard Dean. Oh no, dont get too excited about winning elections!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Amy WinehouseIf you see that doco about her, her parents did not help that situation at all. Her mum knew she was bulimic from a young age and did nothing. Her dad could see her suffering and still encouraged the paparazzi to take photos of her while on holiday no less. Gross, gross parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Princess Diana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Milli Vanilli. The producer behind them is the one who should have got all the sh*t, it was all his idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Duke lacrosse guys. Rich, over privileged white frat bros who beat and raped a black stripper they had hired to perform at their frat party. Because of course they did, it was obvious. Lock em up and throw away the key.Except it never happened. The woman made it all up. They were presumed guilty, and were treated as such by the media.Charges were eventually dropped, but not before the accused and sustained extreme damage to their names, reputations, and, surely, mental health. Eventual fallout would include the prosecutor getting disbarred for fraud, and Duke University settling with the guys for $20 million each. The stripper? Several years later, she would be arrested and convicted of murder after stabbing her boyfriend to death. Yea, its unrelated, but its a lso a window into the kind of person she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Amanda Knox. I can’t imagine being blamed for the murder of your housemate and doing time for it. Not only that but the real murderer went to prison yet people still think she did it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Chicks, formerly the Dixie Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131029.png" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">22 Times Life Decided to Suck </a><br>
+## <a href="#linky11" id="linky10">22 Times Life Decided to Suck </a><br>
 
 <span style="font-size:4em">1. “Travelling back to work and my bag gets caught in a car fire. All medical equipment, garmin watch, Xbox, projector and countless clothes up in smoke. Let my week get better…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130701.jpg" style="width:100%"><br>
 
@@ -499,47 +531,111 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">22. “Testing out our new printer. Left the room for 5 minutes and came back to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130721.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">19 Terrible Things That Are Legally Being Sold</a><br>
+## <a href="#linky12" id="linky11">Stanley Kubrick’s Photos of NYC Are Pure Eye Candy</a><br>
 
-<span style="font-size:4em">1. Those non-fda approved energy pills sold at gas stations and corner stores. Tried em once, should have listened to the crackhead who told me not to buy them. - Available_Job1288</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129178.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I work in a pet store and though it’s not majorly fucked up i think it’s wild that people can buy a tortoise or any animals for that matter that can and will outlive them and their kids. just assuming their grandkids will take care of them or given to another sanctuary. - Dope_Lunaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129179.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. courses that show you dreams of being rich but turn out to be poorly plagiarised material from some self help book. - fuddafascists</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129180.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Ink cartriges and printers - their manufacturing cost is really cheap, but companies keep the price at all time high. - N0L1CZE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129181.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Betta fish in those cups. It would be like telling you to go wait in a closet until someone rescues you, and when they do, it means that another victim is destined for the closet to replace you. - steelep13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129182.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Mobile game ads that show a completely different gameplay than that of the game they’re actually advertising - speedbro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129177.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. All of Gwyneth Paltrows goop shit. - bobby-spanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129183.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Child beauty shows are gross - Remarkable_Toe_4423</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129184.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Anything that claims to rid your body of “toxins” - Lost-Sea4916</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129185.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Weight loss pills - Stupidsexyflanders61</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129186.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Tanning beds. Theyre known to double your risk for melanoma. Its a wonder they havent been banned or at least taxed four times over like cigarettes. - Dynasuarez-Wrecks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129187.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Shark fin soup - Bnmko_007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129188.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Ads on TV for pharmaceuticals. - satellite_retro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129189.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Little plastic keychains with live animals sealed inside them. - VitaDeVoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129190.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Politicians... Purchased by lobbyist and others - Mobile_Zebra3897</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129191.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Tinder premium subscription. - redditCredditLeggit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129192.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Positive pregnancy tests used to trick people. - Freeiheit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129193.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Extended warranties. - N79806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129194.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Bleaching/Skin lightening creams. They are extremely dangerous and may cause damage to ones skin that is irreversible. Ive known friends who bleached and it looked like parts of their skin had literally been boiled off or they became darker in complexion due to damage. They tend to be sold a lot in countries in Africa and south east Asia. Its quite scary how easy they can also be found in Asian/African beauty stores in the states but are probably sold illegally. - stakedrivers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129195.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131075.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131087.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131363.jpeg" style="width:100%"><br>
 
@@ -603,163 +699,7 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131393.jpeg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">30 Cases Of Mild Vandalism</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Thats not what a belly button piercing looks like!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Rock out, this way!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ive never met a man named Radar before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And another year of ForLease - idad. (Felicidad)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Everything is better with friends, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Towel me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. What are you doing, step van?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Looks right to me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Well I guess fish can wear shoes if they want</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im having such a good time!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Better be on the lookout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I wonder where that sign is, and I wonder what it does?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Someday this wont be true :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dont @ the bubonic plague </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Isnt the add technically.... graffiti?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Patrick is no bohemian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A waste of resources, placing a sign for only one day a year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Its precious to him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Finally! I never knew what that sign meant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The real way to never have clogged toilets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Thats what I was doing wrong in gym class!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131501.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/015057/87131796/fresh-memes-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131250.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131248.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131269.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131272.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky15" id="linky14">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
 
@@ -861,57 +801,113 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">26 Clever Do It Yourself Life Hacks to Simplify Your Life</a><br>
+## <a href="#linky16" id="linky15">23 Pictures Of Stupidity Irony and Karma</a><br>
 
-<span style="font-size:4em">1. Cheap cell phone holder that could be found in your workplace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129745.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “To remove strong adhesive labels from the containers, leave the containers in the freezer and the stickers will peel off with ease!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129742.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Reuse a Pringles can for other snacks that come in bags to avoid loud bag crinkling in the office.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I had no idea this was a thing even after 45 years of grocery shopping. Hang your crunchables on the back of the cart.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129731.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “PopSocket on the fridge door. Credit to my 14-year-old daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129732.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “3M hanger upside down keeps a trash bag in place.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129733.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. You can store headphones and keep them tangle free in these mint / candy / gum cases.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/110430/87131635/1a.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Putting together furniture is tedious, so use some of its Styrofoam packaging for keeping small parts from disappearing!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129734.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You can use a mug to increase your phone volume.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129755.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “A large carabiner with a sponge grip makes carrying groceries a more pleasant experience for your fingers.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129735.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “To store a cake without having to dig it out the container later, just flip a Tupperware container upside down and use the lid as the bottom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129736.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. No more messy and scattered detergents and cleaning bottles if you hang them in a shoe organizer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129737.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Starbucks containers are actually designed to sit on their lids to help prevent unsightly table stains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129760.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “To replace an old coaster, just go to the tile store and stick adhesive felt or cork on the underside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129738.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My parents used 2 coat hangers and scrap wood to make a temporary shelf.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129739.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. You’re supposed to shake out the popcorn kernels through the little opening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129749.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The loop on your backpack makes a handy coffee cup holder.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/110438/87131636/2b.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Common runner’s trick, wear socks inside out to prevent blisters and chafing from seams.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129740.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. If you eat your food raw, you will tend to lose weight. If you eat the same food cooked, you will tend to gain weight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129748.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Use heat shrink tubing to repair lost aglets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129741.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Use a ladder when hauling tall plants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129743.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. If your coffee is too bitter, you can add a few specks of salt to make it smooth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129754.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “If you accidentally tear the chip bag use a hole puncher to keep it from spreading.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129744.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The little arrow tells you which side of your car the fuel cap is located on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129758.jpg" style="width:100%"><br>
+## <a href="#linky17" id="linky16">30 Statements That Aged Poorly</a><br>
 
-<span style="font-size:4em">25. “Reuse a Pringles can for other snacks that come in bags to avoid loud bag crinkling in the office.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129747.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. The hole on the inside of your pasta utensil is supposed to measure a single serving of spaghetti.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129761.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Makes you wonder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Youre welcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Youre a real piece of work, Jerry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I hear that Jeffrey Dahmer was a very polite guest too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ah, if only if only. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I guess Ill have to take your word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Somebody sounds a little bitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Psych!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Youre sure, right? You wouldnt publish it if you werent sure, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131360.jpg" style="width:100%"><br>
 
