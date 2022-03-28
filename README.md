@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/27/2022-19:11:32
+Last updated: 03/27/2022-20:11:31
 <br>
 ## <a href="#linky2" id="linky1">32 Photos That Claim ‘They Are Never Drinking Again'</a><br>
 
@@ -67,107 +67,57 @@ Last updated: 03/27/2022-19:11:32
 
 <span style="font-size:4em">32. Its so beautiful. Im so lucky to be here.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/24/124655/87130792/1623682268_nh3asdpcm4.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky3" id="linky2">People Who Were Screwed Over By the Media</a><br>
 
-<span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Christopher Jefferies who had the bad luck to be a bit strange-looking and eccentric and be the close neighbor of a murdered woman. Originally questioned over the murder and released, he was hounded by Britains tabloid papers right up to the point where it was proved that someone else was the murderer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A man stands up for what is right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131506.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A Dingo really did eat that baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131507.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Edward Snowden. The guy may have defected but he revealed how corrupt our government actually was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131508.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Brendan Fraser.Was shamed and blacklisted for admitting to being sexually assaulted in the industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131509.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Britney Spears. They loved her mental breakdown.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131510.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. A lot of Dolly Parton media from her early years is pretty hard to watch. She always handled it like a class act, though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131511.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Paul Reubens How dare he got to an adult jerk off theater and jerk off in the presence of other adults who went to the adult jerk off theater specifically to jerk off in the presence of other adults who were also jerking off.Wont someone please think of the children!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Weve all had this dream. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131512.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Sharks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131513.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Lindsay Lohan. David Letterman made fun of her for going to rehab on national television, to the point where she began to cry. She had her demons, but was treated disgustingly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131514.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Richard Jewell. The media basically killed him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131515.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Stella Liebeck. Nearly died from 3rd degree burns courtesy of McDonald’s coffee, gets them to stop serving coffee at a hazardous temperature, and what does she get? Her name synonymous with stupid lawsuits and even Darwin-esque awards for stupidest lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A man keeps his word(s).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131516.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. All those people prosecuted as part of the Satanic Panic, 1980s-90s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131015.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is horrible and I do not like it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131517.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Monika Lewinsky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131518.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Jake Lloyd. Not his fault much of Phantom Menace was cringe, especially the dialogue. Personally, I think Anakin should’ve been introduced and played by a teenager. Would’ve made his relationship with Padme less creepy.But that was all Lucas. Kid didn’t need to crapped on by fans and the media.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131519.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Janet. Jackson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131520.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Dr Steven Hatfill. The man who didn’t send out envelopes full of anthrax.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131521.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Pamela AndersonPam & Tommy gutted me. She didnt deserve that mess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131522.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Sinead O’Connor. The media practically cancelled her for speaking out against abuse in the Catholic Church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131022.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131523.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Howard Dean. Oh no, dont get too excited about winning elections!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131524.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Amy WinehouseIf you see that doco about her, her parents did not help that situation at all. Her mum knew she was bulimic from a young age and did nothing. Her dad could see her suffering and still encouraged the paparazzi to take photos of her while on holiday no less. Gross, gross parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131525.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Princess Diana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131526.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Milli Vanilli. The producer behind them is the one who should have got all the sh*t, it was all his idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Mom, dad, Id like you meet my new boyfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131527.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The Duke lacrosse guys. Rich, over privileged white frat bros who beat and raped a black stripper they had hired to perform at their frat party. Because of course they did, it was obvious. Lock em up and throw away the key.Except it never happened. The woman made it all up. They were presumed guilty, and were treated as such by the media.Charges were eventually dropped, but not before the accused and sustained extreme damage to their names, reputations, and, surely, mental health. Eventual fallout would include the prosecutor getting disbarred for fraud, and Duke University settling with the guys for $20 million each. The stripper? Several years later, she would be arrested and convicted of murder after stabbing her boyfriend to death. Yea, its unrelated, but its a lso a window into the kind of person she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131528.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Amanda Knox. I can’t imagine being blamed for the murder of your housemate and doing time for it. Not only that but the real murderer went to prison yet people still think she did it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. Just a little kiss!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. And you thought Elden Ring was hard. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The Chicks, formerly the Dixie Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131029.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">26 Clever Do It Yourself Life Hacks to Simplify Your Life</a><br>
 
@@ -419,53 +369,7 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87130899.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">22 Times Life Decided to Suck </a><br>
-
-<span style="font-size:4em">1. “Travelling back to work and my bag gets caught in a car fire. All medical equipment, garmin watch, Xbox, projector and countless clothes up in smoke. Let my week get better…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Drank the whole coconut then cracked it open to find this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Today I found a moth halfway through my $12 salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Bought a PS5 for my son’s birthday. Someone at UPS swapped it out with a rock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The only path back to my room blocked by cute but incredibly angry sea lions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Neighbor just got a Supra a few weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My puppy ate my passport.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “What I asked for vs what I got. $400 and I feel like an idiot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Neighbor’s cat decided to take shit on our skylight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Missed my pocket knife in the laundry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I rarely make a hot breakfast for myself but I decided to treat myself this morning. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My truck fell off a tow truck today and sideswiped a nice lady’s tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Some random keyed my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “My friend went to get into his work truck this morning and found that someone drilled a hole in the gas tank and stole all of his gas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Excited to get a gig building a greenhouse near the beach. Find out what sand fleas are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Was wondering how the dogs water bowl kept getting refilled…..welp.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “On vacation with my kid: I went to check in at 2:30 and my hotel asked I come back in an hour to pick up my key cards because my room wasn’t quite ready. I came back to a line that literally spanned a city block, 100 more people behind me. They had only ONE single working bathroom and no water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Brushed my teeth for a good 20 seconds with this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Guess I’ll stay at home today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Somebody smeared dog shit on the front of my car after I reported a dangerous situation at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Somebody dropped their coffee on the bus.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Testing out our new printer. Left the room for 5 minutes and came back to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130721.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">15 Hilarious Things Kids Have Asked Their Teachers</a><br>
+## <a href="#linky8" id="linky7">15 Hilarious Things Kids Have Asked Their Teachers</a><br>
 
 <span style="font-size:4em">1. The time a fourth grader asked me to show him my dong. Loudly. In front of his entire class. I’m a music teacher. And a female. He meant he wanted to see a gong. - urbancowgirl42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129197.jpg" style="width:100%"><br>
 
@@ -497,7 +401,7 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">15. I asked my kindergartners if anyone knew what a period was (while teaching sentence punctuation) and one boy enthusiastically says “yeah, my mom has them in the bathroom!!” - mrs_chanandlerr_bong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129211.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
+## <a href="#linky9" id="linky8">25 Funny Memes Fueling Our Dankness-Powered Mech Suit</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/25/015057/87131796/fresh-memes-01.jpg" style="width:100%"><br>
 
@@ -549,7 +453,7 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87131272.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">30 Savage Tweets That Don't Hold Back </a><br>
+## <a href="#linky10" id="linky9">30 Savage Tweets That Don't Hold Back </a><br>
 
 <span style="font-size:4em">1. Not going to lie this looks pretty great. Lower back pain bros stand up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129698.jpg" style="width:100%"><br>
 
@@ -611,7 +515,163 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129728.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
+## <a href="#linky11" id="linky10">30 Statements That Aged Poorly</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Makes you wonder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Youre welcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Youre a real piece of work, Jerry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I hear that Jeffrey Dahmer was a very polite guest too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ah, if only if only. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I guess Ill have to take your word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Somebody sounds a little bitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Psych!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Youre sure, right? You wouldnt publish it if you werent sure, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131360.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
+
+<span style="font-size:4em">1. I saw tiny tiny bugs crawling over a little flower among the grass. I realized they had never heard music before, poor lil guys, so I put my phone next to the flower and gave them the concert of a lifetime. - satooshi-nakamooshi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The bouncer at the entrance of the club put his arms out to indicate that I should do so for him to pat me down. Instead I though he wanted a hug so I hugged him. - Gabriel_Issimo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I convinced myself that I could really walk and it was just mind over matter, and despite my boyfriend and friends telling me not to, I rose up from my wheelchair and promptly fell under the pub table. I was covered in bruises, and I had a sore bum for days. My boyfriend and his best mate had to retrieve me from under the table. - Blackcat1206</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not dumbest but laziest. I microwaved something and when I opened the door to get it, because it wasnt centered on the turning plate, it was a bit further from the door. So I closed it and restarted the microwave another 5 seconds to get it closer to me so I didnt have to reach so far back to get it. - Mathinpozani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I microwaved cheesecake because stoned me found it odd that it was always served cold and not hot like it should be. And on a related note, piping hot cheesecake will take those munchies away real quick. - TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. One night I go in the backyard to get high. I leave the backyard lights off so that my older neighbors can’t see what I’m doing cause I’m immature like that lol. I got a glass of ice water in one hand and I stepped into my pitch black backyard. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Every time I move I hear a sound like there is an animal stalking me in the many bushes in my backyard. Whenever I stop the sound stops but once I start moving again it sounds to me like the leaves in the bushes in our backyard are rustling and there is an animal in them. If I try to go back toward my back door the sound follows me. If I move further into the backyard the sound follows me. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I am legit freaking out thinking there is a big animal stalking me in my backyard. Turns out it was just the ice in my drink clinking every time I moved. I never felt so stupid in my life. - Scarlaymama0721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost gave myself hypothermia. While on a hike I picked up a big a** rock to throw onto a frozen lake and break the ice. I decided to walk out onto the ice to throw it. Rock hit the ice, ice broke, I fell in. Had to walk about 2 miles back to the car. - RotundMarmot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Needed to go into the gas station to get another dutch. Noticed for whatever reason my best friends boyfriend had a full chicken costume in the backseat. I decided it would be funny to wear JUST the mask into the gas station. Didnt realize how bad I f**ked up til the girl at the register started screaming for the guy in the back room. They had just been robbed 2 weeks prior. - hippiesoul03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A sober friend put the other high guys phone in my bag. I found it funny so I left it there. I completely forgot and took it home with me. Later on an alarm goes off, so I go investigate and then find the phone. Tried to tell the guy and called his phone. The phone that was in my hand. - Hanazzo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Once I was eating a burrito like a ravenous beast and straight up bit my own finger. Another time I was gaming and my hands were cold, as I can get bad circulation. Well I sat there thinking “man it would be great if they made socks, but for your hands” and thought I had a great idea. 10 seconds go by and then “Oh yeah, gloves!” Had a good laugh at myself for that one. - Poxalox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Playing video games with my bro, split screen MW3. Im absolutely crushing it then I realized Im looking at the wrong screen, my dude is in a corner moving and shooting the wall. - GrandmasBoy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I was typing on the computer and kept trying to make the numbers uppercase because I couldn’t figure out why I was just getting %]%*]+. - bubblegumbreeze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Once I was looking at the moon and I was just noticing the details in it, and I took a step forward to get a closer look like a dumba**. - LoosKiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I was high as a kite with some friends. I look up at the sky and I was in awe. There were dozens of shooting stars through the sky. About 2 mins later I realized the stars weren’t moving but the clouds were. - goatedmomoshiki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I got super blazed one night near the beginning of pandemic lockdown, and went across the street to the drugstore to get some chips and such. As I approached the automatic glass doors I saw a person standing on the other side, so I waited for them to come through. I stood there waiting for what felt like an eternity. I was getting frustrated, like “what’s up with this clown? Cant they see I’m waiting for them?” Then i realized it was just my reflection. - hemingward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This one time I was in front of my TV watching comedians in cars getting coffee. I had my bong on the coffee table between me and the TV. I am seeing Jerry Seinfeld driving someone in new York and suddenly I can see a cop car joining their lane behind them. I quietly and slowly took the bong down on the floor so the cops cant see it. - osvalds1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129252.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">22 Times Life Decided to Suck </a><br>
+
+<span style="font-size:4em">1. “Travelling back to work and my bag gets caught in a car fire. All medical equipment, garmin watch, Xbox, projector and countless clothes up in smoke. Let my week get better…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Drank the whole coconut then cracked it open to find this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Today I found a moth halfway through my $12 salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Bought a PS5 for my son’s birthday. Someone at UPS swapped it out with a rock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The only path back to my room blocked by cute but incredibly angry sea lions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Neighbor just got a Supra a few weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My puppy ate my passport.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “What I asked for vs what I got. $400 and I feel like an idiot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Neighbor’s cat decided to take shit on our skylight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Missed my pocket knife in the laundry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I rarely make a hot breakfast for myself but I decided to treat myself this morning. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My truck fell off a tow truck today and sideswiped a nice lady’s tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Some random keyed my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My friend went to get into his work truck this morning and found that someone drilled a hole in the gas tank and stole all of his gas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Excited to get a gig building a greenhouse near the beach. Find out what sand fleas are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Was wondering how the dogs water bowl kept getting refilled…..welp.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “On vacation with my kid: I went to check in at 2:30 and my hotel asked I come back in an hour to pick up my key cards because my room wasn’t quite ready. I came back to a line that literally spanned a city block, 100 more people behind me. They had only ONE single working bathroom and no water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Brushed my teeth for a good 20 seconds with this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Guess I’ll stay at home today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Somebody smeared dog shit on the front of my car after I reported a dangerous situation at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Somebody dropped their coffee on the bus.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Testing out our new printer. Left the room for 5 minutes and came back to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130721.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">31 Fresh Memes That Crash Landed in Dankville, USA</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131363.jpeg" style="width:100%"><br>
 
@@ -675,59 +735,7 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87131393.jpeg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">People Who Were Screwed Over By the Media</a><br>
-
-<span style="font-size:4em">1. Christopher Jefferies who had the bad luck to be a bit strange-looking and eccentric and be the close neighbor of a murdered woman. Originally questioned over the murder and released, he was hounded by Britains tabloid papers right up to the point where it was proved that someone else was the murderer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A Dingo really did eat that baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Edward Snowden. The guy may have defected but he revealed how corrupt our government actually was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Brendan Fraser.Was shamed and blacklisted for admitting to being sexually assaulted in the industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Britney Spears. They loved her mental breakdown.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A lot of Dolly Parton media from her early years is pretty hard to watch. She always handled it like a class act, though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Paul Reubens How dare he got to an adult jerk off theater and jerk off in the presence of other adults who went to the adult jerk off theater specifically to jerk off in the presence of other adults who were also jerking off.Wont someone please think of the children!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Sharks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lindsay Lohan. David Letterman made fun of her for going to rehab on national television, to the point where she began to cry. She had her demons, but was treated disgustingly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Richard Jewell. The media basically killed him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Stella Liebeck. Nearly died from 3rd degree burns courtesy of McDonald’s coffee, gets them to stop serving coffee at a hazardous temperature, and what does she get? Her name synonymous with stupid lawsuits and even Darwin-esque awards for stupidest lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. All those people prosecuted as part of the Satanic Panic, 1980s-90s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131015.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Monika Lewinsky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jake Lloyd. Not his fault much of Phantom Menace was cringe, especially the dialogue. Personally, I think Anakin should’ve been introduced and played by a teenager. Would’ve made his relationship with Padme less creepy.But that was all Lucas. Kid didn’t need to crapped on by fans and the media.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Janet. Jackson.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Dr Steven Hatfill. The man who didn’t send out envelopes full of anthrax.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Pamela AndersonPam & Tommy gutted me. She didnt deserve that mess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Sinead O’Connor. The media practically cancelled her for speaking out against abuse in the Catholic Church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131022.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Howard Dean. Oh no, dont get too excited about winning elections!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Amy WinehouseIf you see that doco about her, her parents did not help that situation at all. Her mum knew she was bulimic from a young age and did nothing. Her dad could see her suffering and still encouraged the paparazzi to take photos of her while on holiday no less. Gross, gross parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Princess Diana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Milli Vanilli. The producer behind them is the one who should have got all the sh*t, it was all his idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Duke lacrosse guys. Rich, over privileged white frat bros who beat and raped a black stripper they had hired to perform at their frat party. Because of course they did, it was obvious. Lock em up and throw away the key.Except it never happened. The woman made it all up. They were presumed guilty, and were treated as such by the media.Charges were eventually dropped, but not before the accused and sustained extreme damage to their names, reputations, and, surely, mental health. Eventual fallout would include the prosecutor getting disbarred for fraud, and Duke University settling with the guys for $20 million each. The stripper? Several years later, she would be arrested and convicted of murder after stabbing her boyfriend to death. Yea, its unrelated, but its a lso a window into the kind of person she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Amanda Knox. I can’t imagine being blamed for the murder of your housemate and doing time for it. Not only that but the real murderer went to prison yet people still think she did it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Chicks, formerly the Dixie Chicks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87131029.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">15 Famous Actors Then and Now</a><br>
+## <a href="#linky15" id="linky14">15 Famous Actors Then and Now</a><br>
 
 <span style="font-size:4em">1. Tommy Lee Jones, age 32 and 56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130678.jpg" style="width:100%"><br>
 
@@ -759,113 +767,105 @@ Finally he expressed his love for her and how he fantasizes about sneaking into 
 
 <span style="font-size:4em">15. Edward Norton, age 27 and 50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130692.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 Statements That Aged Poorly</a><br>
+## <a href="#linky16" id="linky15">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131353.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Makes you wonder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131331.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A man stands up for what is right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Youre welcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131332.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Youre a real piece of work, Jerry. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131333.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I hear that Jeffrey Dahmer was a very polite guest too. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131334.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131335.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ah, if only if only. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131336.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I guess Ill have to take your word for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131337.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Weve all had this dream. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Somebody sounds a little bitter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131338.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Classic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131339.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131340.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131341.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A man keeps his word(s).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131342.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This is horrible and I do not like it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131343.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131344.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131345.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131346.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Psych!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131347.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131348.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131349.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131350.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131351.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131352.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Mom, dad, Id like you meet my new boyfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131354.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Youre sure, right? You wouldnt publish it if you werent sure, </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131355.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131356.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131357.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131358.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131359.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131360.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131534.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. I saw tiny tiny bugs crawling over a little flower among the grass. I realized they had never heard music before, poor lil guys, so I put my phone next to the flower and gave them the concert of a lifetime. - satooshi-nakamooshi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129233.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The bouncer at the entrance of the club put his arms out to indicate that I should do so for him to pat me down. Instead I though he wanted a hug so I hugged him. - Gabriel_Issimo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129234.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I convinced myself that I could really walk and it was just mind over matter, and despite my boyfriend and friends telling me not to, I rose up from my wheelchair and promptly fell under the pub table. I was covered in bruises, and I had a sore bum for days. My boyfriend and his best mate had to retrieve me from under the table. - Blackcat1206</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129235.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Not dumbest but laziest. I microwaved something and when I opened the door to get it, because it wasnt centered on the turning plate, it was a bit further from the door. So I closed it and restarted the microwave another 5 seconds to get it closer to me so I didnt have to reach so far back to get it. - Mathinpozani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129236.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I microwaved cheesecake because stoned me found it odd that it was always served cold and not hot like it should be. And on a related note, piping hot cheesecake will take those munchies away real quick. - TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129237.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. One night I go in the backyard to get high. I leave the backyard lights off so that my older neighbors can’t see what I’m doing cause I’m immature like that lol. I got a glass of ice water in one hand and I stepped into my pitch black backyard. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129238.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. Just a little kiss!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129248.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Every time I move I hear a sound like there is an animal stalking me in the many bushes in my backyard. Whenever I stop the sound stops but once I start moving again it sounds to me like the leaves in the bushes in our backyard are rustling and there is an animal in them. If I try to go back toward my back door the sound follows me. If I move further into the backyard the sound follows me. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129239.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129240.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I am legit freaking out thinking there is a big animal stalking me in my backyard. Turns out it was just the ice in my drink clinking every time I moved. I never felt so stupid in my life. - Scarlaymama0721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129241.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Almost gave myself hypothermia. While on a hike I picked up a big a** rock to throw onto a frozen lake and break the ice. I decided to walk out onto the ice to throw it. Rock hit the ice, ice broke, I fell in. Had to walk about 2 miles back to the car. - RotundMarmot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129242.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Needed to go into the gas station to get another dutch. Noticed for whatever reason my best friends boyfriend had a full chicken costume in the backseat. I decided it would be funny to wear JUST the mask into the gas station. Didnt realize how bad I f**ked up til the girl at the register started screaming for the guy in the back room. They had just been robbed 2 weeks prior. - hippiesoul03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129243.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. A sober friend put the other high guys phone in my bag. I found it funny so I left it there. I completely forgot and took it home with me. Later on an alarm goes off, so I go investigate and then find the phone. Tried to tell the guy and called his phone. The phone that was in my hand. - Hanazzo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129244.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. And you thought Elden Ring was hard. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Once I was eating a burrito like a ravenous beast and straight up bit my own finger. Another time I was gaming and my hands were cold, as I can get bad circulation. Well I sat there thinking “man it would be great if they made socks, but for your hands” and thought I had a great idea. 10 seconds go by and then “Oh yeah, gloves!” Had a good laugh at myself for that one. - Poxalox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129245.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Playing video games with my bro, split screen MW3. Im absolutely crushing it then I realized Im looking at the wrong screen, my dude is in a corner moving and shooting the wall. - GrandmasBoy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129246.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I was typing on the computer and kept trying to make the numbers uppercase because I couldn’t figure out why I was just getting %]%*]+. - bubblegumbreeze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129247.jpg" style="width:100%"><br>
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Once I was looking at the moon and I was just noticing the details in it, and I took a step forward to get a closer look like a dumba**. - LoosKiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129249.jpg" style="width:100%"><br>
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131552.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I was high as a kite with some friends. I look up at the sky and I was in awe. There were dozens of shooting stars through the sky. About 2 mins later I realized the stars weren’t moving but the clouds were. - goatedmomoshiki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129250.jpg" style="width:100%"><br>
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131553.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I got super blazed one night near the beginning of pandemic lockdown, and went across the street to the drugstore to get some chips and such. As I approached the automatic glass doors I saw a person standing on the other side, so I waited for them to come through. I stood there waiting for what felt like an eternity. I was getting frustrated, like “what’s up with this clown? Cant they see I’m waiting for them?” Then i realized it was just my reflection. - hemingward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This one time I was in front of my TV watching comedians in cars getting coffee. I had my bong on the coffee table between me and the TV. I am seeing Jerry Seinfeld driving someone in new York and suddenly I can see a cop car joining their lane behind them. I quietly and slowly took the bong down on the floor so the cops cant see it. - osvalds1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129252.jpg" style="width:100%"><br>
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
 
