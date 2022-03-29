@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/29/2022-08:11:31
+Last updated: 03/29/2022-09:11:31
 <br>
 ## <a href="#linky2" id="linky1">17 Crazy Dating App Demands</a><br>
 
@@ -37,153 +37,117 @@ Last updated: 03/29/2022-08:11:31
 
 <span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky3" id="linky2">31 Will Smith Memes for When a Comedian Literally Does His Job</a><br>
 
-<span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When art truly does imitate life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A man stands up for what is right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131506.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I would totally play this video game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131507.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. So meta. So HAWWWWTTT.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131508.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The most wholesome meme to come out of this fiasco.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131509.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Sunday scaries hit different this week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131510.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Gotta protect mans best friend at all costs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131511.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Seems like everybody really does hate Chris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Weve all had this dream. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131512.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061241/87133556/will-smith-memes7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131513.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Fight is the only option here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131514.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061249/87133557/will-smith-memes3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131515.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. It...its beautiful. Hang it in the Louvre.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A man keeps his word(s).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131516.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061252/87133558/will-smith-memes4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is horrible and I do not like it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131517.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. But then he won best actor, so were good!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131518.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061303/87133560/will-smith-memes1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131519.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The Penguins beat the Red Wings 11-2 on this past week just FYI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131520.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061326/87133564/will-smith-memes2.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131521.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Gettin jiggy with it, nah nah nah nah nah nah nah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131522.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061322/87133563/will-smith-memes5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131523.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Aliens dropping alopecia jokes has me laughing out loud.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133122.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131524.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061315/87133562/will-smith-memes9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131525.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Yo Toby, did Chris Rock just get his tongue slapped out of his body? -Andy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133123.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131526.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061259/87133559/will-smith-memes6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Mom, dad, Id like you meet my new boyfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131527.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Whole crew about to roll up to the Smith residence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131528.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061311/87133561/will-smith-memes8.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131529.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. This joke is going to be made by so many bros.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/110243/87133125/song.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131530.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Boobs will never not be awesome.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/110150/87133124/what.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131531.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. We all truly love the drama.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112434/87133127/drama.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131532.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Talk about the coldest take ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112447/87133128/coldtake.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131533.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. He left some fresh prints all over Chris Rocks face.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112458/87133129/fresh.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131534.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Open-handed slap line doesnt the ring that punchline does.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112509/87133130/punchline.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131535.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Someone go check on Kevin James.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112519/87133131/kev.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131536.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">23 Pictures Of Stupidity, Irony, and Karma</a><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131537.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131538.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131539.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131540.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. Just a little kiss!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131541.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131542.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131543.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131544.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131545.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131546.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131547.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. And you thought Elden Ring was hard. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131548.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131549.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131550.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131551.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131552.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131553.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131661.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">15 Celebrities Who Found Fame In Strange Ways </a><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
- The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131666.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">31 Fresh Memes From The Dank Side of the Moon</a><br>
 
@@ -383,159 +347,249 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">19 Terrible Things That Are Legally Being Sold</a><br>
+## <a href="#linky9" id="linky8">25 Fictional Villains We Love To Hate</a><br>
 
-<span style="font-size:4em">1. Those non-fda approved energy pills sold at gas stations and corner stores. Tried em once, should have listened to the crackhead who told me not to buy them. - Available_Job1288</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129178.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Tom from Tom and Jerry. I’ve always rooted for him. -u/deaf_phrog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I work in a pet store and though it’s not majorly fucked up i think it’s wild that people can buy a tortoise or any animals for that matter that can and will outlive them and their kids. just assuming their grandkids will take care of them or given to another sanctuary. - Dope_Lunaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129179.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Yzma. For one, she’s just so crazy that it’s hard to be afraid of her and you end up just liking her. She and Kronk have such great chemistry too. -u/everythinglatte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. courses that show you dreams of being rich but turn out to be poorly plagiarised material from some self help book. - fuddafascists</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129180.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Hank Scorpio. “On your way out, if you wanna kill somebody, it would help me a lot.” -u/acehigh21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Ink cartriges and printers - their manufacturing cost is really cheap, but companies keep the price at all time high. - N0L1CZE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129181.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Glados. She is just so crazy and hilarious you forget she enjoys gassing innocents. -u/HenryFrenchFries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Betta fish in those cups. It would be like telling you to go wait in a closet until someone rescues you, and when they do, it means that another victim is destined for the closet to replace you. - steelep13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129182.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Magneto. Was he wrong, in knowing that humans hate and would inevitably attack mutants? According to Days of Future Past, no. Humans have proven that you dont have to be non-human for people to turn on you and kill you. -u/shygirl1995_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Mobile game ads that show a completely different gameplay than that of the game they’re actually advertising - speedbro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129177.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The Lego Batman Movie Lego Joker. -u/irobot_67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. All of Gwyneth Paltrows goop shit. - bobby-spanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129183.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The Monarch from Venture Bros (Cartoon Network.) Dude is hilarious.  -u/tossaway69420lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Child beauty shows are gross - Remarkable_Toe_4423</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129184.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Robbie Rotten. Great example because he’s not a murderer or anything, just a troublemaker. So you can actually sympathize with him without feeling bad about it. -u/TimeLordAsparagus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Anything that claims to rid your body of “toxins” - Lost-Sea4916</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129185.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The Ice King. Its just a tragic backstory. Hes just lonely and desperate for friends. -u/evil_wazard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Weight loss pills - Stupidsexyflanders61</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129186.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Mr. Freeze. Especially in BTAS and the Arkham games. Dude just wants his wife to live a long life. -u/Aniwaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Tanning beds. Theyre known to double your risk for melanoma. Its a wonder they havent been banned or at least taxed four times over like cigarettes. - Dynasuarez-Wrecks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129187.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Shego from Kim Possible. Shes so entertaining and one of my cartoon crushes growing up, one of the reasons why I watch that show. -u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Shark fin soup - Bnmko_007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129188.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Jessie and James. Pokemon would not be the same without them. -u/MyAccounts0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Ads on TV for pharmaceuticals. - satellite_retro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129189.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Davy Jones. He’s so extra, too. His first scene has him emerging from the water, walking along a line of terrified sailors while smoking from a pipe, stopping in front of one of them and saying “Do you fear death?” It’s an absolutely amazing way to introduce a character. -u/ShinyNinja25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Little plastic keychains with live animals sealed inside them. - VitaDeVoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129190.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Crowley. He didn’t fall from grace, so much as sauntered down. -u/JeremyMo88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Politicians... Purchased by lobbyist and others - Mobile_Zebra3897</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129191.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Plankton. F is for fire that burns down the whole town. U is for uranium bombs. N is for no survivor. -u/dominatorkickback97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Tinder premium subscription. - redditCredditLeggit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129192.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Wile E. Coyote. Im rooting for him to blow the Road Runner up. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Positive pregnancy tests used to trick people. - Freeiheit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129193.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Dr. Doofenshmirtz. DOOFENSHMIRTZ EVIL INCORPORATED. -u/oscar_meow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Extended warranties. - N79806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129194.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The Grinch. He wouldnt be so grumpy if there wasnt a dude singing songs every 5 minutes, about what a piece of sh*t he is. -u/steakandcheese1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Bleaching/Skin lightening creams. They are extremely dangerous and may cause damage to ones skin that is irreversible. Ive known friends who bleached and it looked like parts of their skin had literally been boiled off or they became darker in complexion due to damage. They tend to be sold a lot in countries in Africa and south east Asia. Its quite scary how easy they can also be found in Asian/African beauty stores in the states but are probably sold illegally. - stakedrivers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129195.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Hades in the animated Hercules movie. Huge POS, but f*ck if he wasn’t entertaining. -u/yungjaquellus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133152.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">31 Will Smith Memes for When a Comedian Literally Does His Job</a><br>
+<span style="font-size:4em">20. You can’t hate my man Bowser. Dude has 8 kids, legit go-karts and plays sports with Mario and his kids. He’s looking out for his kids by kidnapping Peach so they can have a mom lol. -u/AbstractElite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. When art truly does imitate life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133112.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Vlad Dracula Tepes in the 2017 Castlevania series. Humanity sucks.-u/fufufufufufufufuf15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I would totally play this video game.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133110.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Vulture from MCU Spiderman. The dude was looking out for his people. -u/TeddyRoo_v_Gods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. So meta. So HAWWWWTTT.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133111.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Spike in Buffy the Vampire Slayer. His out for a walk, b*tch line randomly pops into my head every once in a while and I still laugh, he was a great character. -u/amediocremusician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The most wholesome meme to come out of this fiasco.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133113.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Gus and Mike from Breaking Bad. -u/Maximo-One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Sunday scaries hit different this week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133114.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Prince Zuko. Never was really a villain in my opinion .-u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Gotta protect mans best friend at all costs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133116.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">15 Celebrities Who Found Fame In Strange Ways </a><br>
 
-<span style="font-size:4em">7. Seems like everybody really does hate Chris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133115.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061241/87133556/will-smith-memes7.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Fight is the only option here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133117.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061249/87133557/will-smith-memes3.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. It...its beautiful. Hang it in the Louvre.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133118.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061252/87133558/will-smith-memes4.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+ The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. But then he won best actor, so were good!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133119.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061303/87133560/will-smith-memes1.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Penguins beat the Red Wings 11-2 on this past week just FYI.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133109.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061326/87133564/will-smith-memes2.png" style="width:100%"><br>
+<span style="font-size:4em">
+
+That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Gettin jiggy with it, nah nah nah nah nah nah nah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133120.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061322/87133563/will-smith-memes5.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Aliens dropping alopecia jokes has me laughing out loud.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133122.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061315/87133562/will-smith-memes9.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Yo Toby, did Chris Rock just get his tongue slapped out of his body? -Andy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133123.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061259/87133559/will-smith-memes6.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
 
-<span style="font-size:4em">23. Whole crew about to roll up to the Smith residence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133121.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/061311/87133561/will-smith-memes8.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. This joke is going to be made by so many bros.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/110243/87133125/song.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. Boobs will never not be awesome.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/110150/87133124/what.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. We all truly love the drama.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112434/87133127/drama.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. Talk about the coldest take ever.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112447/87133128/coldtake.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. He left some fresh prints all over Chris Rocks face.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112458/87133129/fresh.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
 
-<span style="font-size:4em">30. Open-handed slap line doesnt the ring that punchline does.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112509/87133130/punchline.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. Someone go check on Kevin James.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/112519/87133131/kev.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">23 Pictures Of Stupidity, Irony, and Karma</a><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131644.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131645.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131643.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131646.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131647.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131648.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131649.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131650.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131651.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131652.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131653.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131654.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131655.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A man stands up for what is right. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131657.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131658.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131659.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131660.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131661.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131662.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Weve all had this dream. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131663.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131664.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131665.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131666.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A man keeps his word(s).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131516.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Stanley Kubrick’s Photos of NYC Are Pure Eye Candy</a><br>
+<span style="font-size:4em">13. This is horrible and I do not like it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Mom, dad, Id like you meet my new boyfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. Just a little kiss!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. And you thought Elden Ring was hard. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Stanley Kubrick’s Photos of NYC Are Pure Eye Candy</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131059.jpg" style="width:100%"><br>
 
@@ -597,7 +651,47 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131087.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">41 Funny Memes and Pics of the Dank Variety</a><br>
+## <a href="#linky14" id="linky13">19 Terrible Things That Are Legally Being Sold</a><br>
+
+<span style="font-size:4em">1. Those non-fda approved energy pills sold at gas stations and corner stores. Tried em once, should have listened to the crackhead who told me not to buy them. - Available_Job1288</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I work in a pet store and though it’s not majorly fucked up i think it’s wild that people can buy a tortoise or any animals for that matter that can and will outlive them and their kids. just assuming their grandkids will take care of them or given to another sanctuary. - Dope_Lunaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. courses that show you dreams of being rich but turn out to be poorly plagiarised material from some self help book. - fuddafascists</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ink cartriges and printers - their manufacturing cost is really cheap, but companies keep the price at all time high. - N0L1CZE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Betta fish in those cups. It would be like telling you to go wait in a closet until someone rescues you, and when they do, it means that another victim is destined for the closet to replace you. - steelep13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Mobile game ads that show a completely different gameplay than that of the game they’re actually advertising - speedbro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. All of Gwyneth Paltrows goop shit. - bobby-spanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Child beauty shows are gross - Remarkable_Toe_4423</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Anything that claims to rid your body of “toxins” - Lost-Sea4916</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Weight loss pills - Stupidsexyflanders61</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tanning beds. Theyre known to double your risk for melanoma. Its a wonder they havent been banned or at least taxed four times over like cigarettes. - Dynasuarez-Wrecks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Shark fin soup - Bnmko_007</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ads on TV for pharmaceuticals. - satellite_retro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Little plastic keychains with live animals sealed inside them. - VitaDeVoid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Politicians... Purchased by lobbyist and others - Mobile_Zebra3897</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Tinder premium subscription. - redditCredditLeggit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Positive pregnancy tests used to trick people. - Freeiheit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Extended warranties. - N79806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Bleaching/Skin lightening creams. They are extremely dangerous and may cause damage to ones skin that is irreversible. Ive known friends who bleached and it looked like parts of their skin had literally been boiled off or they became darker in complexion due to damage. They tend to be sold a lot in countries in Africa and south east Asia. Its quite scary how easy they can also be found in Asian/African beauty stores in the states but are probably sold illegally. - stakedrivers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129195.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">41 Funny Memes and Pics of the Dank Variety</a><br>
 
 <span style="font-size:4em">1. Its a mystery scientists have yet to be able to solve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87132390.jpg" style="width:100%"><br>
 
@@ -680,46 +774,4 @@ Wayne started his career on the big screen playing football players in a couple 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/090321/87133069/87132816.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/090328/87133070/87132817.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
 
