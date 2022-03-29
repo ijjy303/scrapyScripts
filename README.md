@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/29/2022-02:11:31
+Last updated: 03/29/2022-03:11:31
 <br>
 ## <a href="#linky2" id="linky1">18 Small Movie Details Most People Didn't Notice</a><br>
 
@@ -39,47 +39,67 @@ Last updated: 03/29/2022-02:11:31
 
 <span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
+## <a href="#linky3" id="linky2">30 Cases Of Mild Vandalism</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
+<span style="font-size:4em">2. Thats not what a belly button piercing looks like!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
+<span style="font-size:4em">3. Rock out, this way!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
+<span style="font-size:4em">4. Ive never met a man named Radar before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
+<span style="font-size:4em">5. And another year of ForLease - idad. (Felicidad)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
+<span style="font-size:4em">6. Everything is better with friends, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
+<span style="font-size:4em">7. Towel me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
+<span style="font-size:4em">8. What are you doing, step van?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
+<span style="font-size:4em">10. Looks right to me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
+<span style="font-size:4em">11. Well I guess fish can wear shoes if they want</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
+<span style="font-size:4em">13. Im having such a good time!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
+<span style="font-size:4em">14. Better be on the lookout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
+<span style="font-size:4em">15. I wonder where that sign is, and I wonder what it does?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
+<span style="font-size:4em">18. Someday this wont be true :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dont @ the bubonic plague </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Isnt the ad technically.... graffiti?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Patrick is no bohemian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A waste of resources, placing a sign for only one day a year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Its precious to him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Finally! I never knew what that sign meant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. The real way to never have clogged toilets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Thats what I was doing wrong in gym class!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131501.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">Stanley Kubrick’s Photos of NYC Are Pure Eye Candy</a><br>
 
@@ -143,51 +163,53 @@ Last updated: 03/29/2022-02:11:31
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131087.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">22 Times Life Decided to Suck </a><br>
+## <a href="#linky5" id="linky4">23 Pictures Of Stupidity, Irony, and Karma</a><br>
 
-<span style="font-size:4em">1. “Travelling back to work and my bag gets caught in a car fire. All medical equipment, garmin watch, Xbox, projector and countless clothes up in smoke. Let my week get better…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130701.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Drank the whole coconut then cracked it open to find this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130700.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Today I found a moth halfway through my $12 salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130702.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Bought a PS5 for my son’s birthday. Someone at UPS swapped it out with a rock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130703.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The only path back to my room blocked by cute but incredibly angry sea lions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130704.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Neighbor just got a Supra a few weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130705.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My puppy ate my passport.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130706.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “What I asked for vs what I got. $400 and I feel like an idiot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130707.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Neighbor’s cat decided to take shit on our skylight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130708.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Missed my pocket knife in the laundry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130709.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I rarely make a hot breakfast for myself but I decided to treat myself this morning. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130710.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My truck fell off a tow truck today and sideswiped a nice lady’s tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130711.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Some random keyed my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130712.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “My friend went to get into his work truck this morning and found that someone drilled a hole in the gas tank and stole all of his gas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130713.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Excited to get a gig building a greenhouse near the beach. Find out what sand fleas are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130714.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Was wondering how the dogs water bowl kept getting refilled…..welp.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130715.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “On vacation with my kid: I went to check in at 2:30 and my hotel asked I come back in an hour to pick up my key cards because my room wasn’t quite ready. I came back to a line that literally spanned a city block, 100 more people behind me. They had only ONE single working bathroom and no water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130716.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Brushed my teeth for a good 20 seconds with this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130717.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Guess I’ll stay at home today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130718.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Somebody smeared dog shit on the front of my car after I reported a dangerous situation at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130719.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Somebody dropped their coffee on the bus.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130720.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Testing out our new printer. Left the room for 5 minutes and came back to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130721.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131666.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">31 Will Smith Memes for When a Comedian Literally Does His Job</a><br>
 
@@ -443,165 +465,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">23 Pictures Of Stupidity, Irony, and Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131666.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">30 Cases Of Mild Vandalism</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Thats not what a belly button piercing looks like!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Rock out, this way!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Ive never met a man named Radar before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And another year of ForLease - idad. (Felicidad)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Everything is better with friends, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Towel me!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. What are you doing, step van?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Looks right to me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Well I guess fish can wear shoes if they want</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im having such a good time!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Better be on the lookout</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I wonder where that sign is, and I wonder what it does?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Someday this wont be true :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dont @ the bubonic plague </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Isnt the ad technically.... graffiti?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Patrick is no bohemian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A waste of resources, placing a sign for only one day a year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Its precious to him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Finally! I never knew what that sign meant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The real way to never have clogged toilets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Thats what I was doing wrong in gym class!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131501.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
-
-<span style="font-size:4em">1. I saw tiny tiny bugs crawling over a little flower among the grass. I realized they had never heard music before, poor lil guys, so I put my phone next to the flower and gave them the concert of a lifetime. - satooshi-nakamooshi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The bouncer at the entrance of the club put his arms out to indicate that I should do so for him to pat me down. Instead I though he wanted a hug so I hugged him. - Gabriel_Issimo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I convinced myself that I could really walk and it was just mind over matter, and despite my boyfriend and friends telling me not to, I rose up from my wheelchair and promptly fell under the pub table. I was covered in bruises, and I had a sore bum for days. My boyfriend and his best mate had to retrieve me from under the table. - Blackcat1206</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Not dumbest but laziest. I microwaved something and when I opened the door to get it, because it wasnt centered on the turning plate, it was a bit further from the door. So I closed it and restarted the microwave another 5 seconds to get it closer to me so I didnt have to reach so far back to get it. - Mathinpozani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I microwaved cheesecake because stoned me found it odd that it was always served cold and not hot like it should be. And on a related note, piping hot cheesecake will take those munchies away real quick. - TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. One night I go in the backyard to get high. I leave the backyard lights off so that my older neighbors can’t see what I’m doing cause I’m immature like that lol. I got a glass of ice water in one hand and I stepped into my pitch black backyard. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Every time I move I hear a sound like there is an animal stalking me in the many bushes in my backyard. Whenever I stop the sound stops but once I start moving again it sounds to me like the leaves in the bushes in our backyard are rustling and there is an animal in them. If I try to go back toward my back door the sound follows me. If I move further into the backyard the sound follows me. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I am legit freaking out thinking there is a big animal stalking me in my backyard. Turns out it was just the ice in my drink clinking every time I moved. I never felt so stupid in my life. - Scarlaymama0721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Almost gave myself hypothermia. While on a hike I picked up a big a** rock to throw onto a frozen lake and break the ice. I decided to walk out onto the ice to throw it. Rock hit the ice, ice broke, I fell in. Had to walk about 2 miles back to the car. - RotundMarmot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Needed to go into the gas station to get another dutch. Noticed for whatever reason my best friends boyfriend had a full chicken costume in the backseat. I decided it would be funny to wear JUST the mask into the gas station. Didnt realize how bad I f**ked up til the girl at the register started screaming for the guy in the back room. They had just been robbed 2 weeks prior. - hippiesoul03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A sober friend put the other high guys phone in my bag. I found it funny so I left it there. I completely forgot and took it home with me. Later on an alarm goes off, so I go investigate and then find the phone. Tried to tell the guy and called his phone. The phone that was in my hand. - Hanazzo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Once I was eating a burrito like a ravenous beast and straight up bit my own finger. Another time I was gaming and my hands were cold, as I can get bad circulation. Well I sat there thinking “man it would be great if they made socks, but for your hands” and thought I had a great idea. 10 seconds go by and then “Oh yeah, gloves!” Had a good laugh at myself for that one. - Poxalox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Playing video games with my bro, split screen MW3. Im absolutely crushing it then I realized Im looking at the wrong screen, my dude is in a corner moving and shooting the wall. - GrandmasBoy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was typing on the computer and kept trying to make the numbers uppercase because I couldn’t figure out why I was just getting %]%*]+. - bubblegumbreeze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Once I was looking at the moon and I was just noticing the details in it, and I took a step forward to get a closer look like a dumba**. - LoosKiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I was high as a kite with some friends. I look up at the sky and I was in awe. There were dozens of shooting stars through the sky. About 2 mins later I realized the stars weren’t moving but the clouds were. - goatedmomoshiki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I got super blazed one night near the beginning of pandemic lockdown, and went across the street to the drugstore to get some chips and such. As I approached the automatic glass doors I saw a person standing on the other side, so I waited for them to come through. I stood there waiting for what felt like an eternity. I was getting frustrated, like “what’s up with this clown? Cant they see I’m waiting for them?” Then i realized it was just my reflection. - hemingward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This one time I was in front of my TV watching comedians in cars getting coffee. I had my bong on the coffee table between me and the TV. I am seeing Jerry Seinfeld driving someone in new York and suddenly I can see a cop car joining their lane behind them. I quietly and slowly took the bong down on the floor so the cops cant see it. - osvalds1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129252.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky10" id="linky9">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. Thats one way to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131505.jpg" style="width:100%"><br>
 
@@ -703,7 +567,7 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87131554.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">30 Savage Tweets That Don't Hold Back </a><br>
+## <a href="#linky11" id="linky10">30 Savage Tweets That Don't Hold Back </a><br>
 
 <span style="font-size:4em">1. Not going to lie this looks pretty great. Lower back pain bros stand up! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129698.jpg" style="width:100%"><br>
 
@@ -765,7 +629,53 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87129728.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">19 Terrible Things That Are Legally Being Sold</a><br>
+## <a href="#linky12" id="linky11">22 Times Life Decided to Suck </a><br>
+
+<span style="font-size:4em">1. “Travelling back to work and my bag gets caught in a car fire. All medical equipment, garmin watch, Xbox, projector and countless clothes up in smoke. Let my week get better…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Drank the whole coconut then cracked it open to find this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Today I found a moth halfway through my $12 salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Bought a PS5 for my son’s birthday. Someone at UPS swapped it out with a rock.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The only path back to my room blocked by cute but incredibly angry sea lions.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Neighbor just got a Supra a few weeks ago.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My puppy ate my passport.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “What I asked for vs what I got. $400 and I feel like an idiot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Neighbor’s cat decided to take shit on our skylight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Missed my pocket knife in the laundry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I rarely make a hot breakfast for myself but I decided to treat myself this morning. “</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My truck fell off a tow truck today and sideswiped a nice lady’s tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Some random keyed my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “My friend went to get into his work truck this morning and found that someone drilled a hole in the gas tank and stole all of his gas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Excited to get a gig building a greenhouse near the beach. Find out what sand fleas are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Was wondering how the dogs water bowl kept getting refilled…..welp.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “On vacation with my kid: I went to check in at 2:30 and my hotel asked I come back in an hour to pick up my key cards because my room wasn’t quite ready. I came back to a line that literally spanned a city block, 100 more people behind me. They had only ONE single working bathroom and no water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Brushed my teeth for a good 20 seconds with this…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Guess I’ll stay at home today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Somebody smeared dog shit on the front of my car after I reported a dangerous situation at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Somebody dropped their coffee on the bus.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Testing out our new printer. Left the room for 5 minutes and came back to this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87130721.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">19 Terrible Things That Are Legally Being Sold</a><br>
 
 <span style="font-size:4em">1. Those non-fda approved energy pills sold at gas stations and corner stores. Tried em once, should have listened to the crackhead who told me not to buy them. - Available_Job1288</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129178.jpg" style="width:100%"><br>
 
@@ -804,4 +714,94 @@ I am legit freaking out thinking there is a big animal stalking me in my backyar
 <span style="font-size:4em">18. Extended warranties. - N79806</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129194.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. Bleaching/Skin lightening creams. They are extremely dangerous and may cause damage to ones skin that is irreversible. Ive known friends who bleached and it looked like parts of their skin had literally been boiled off or they became darker in complexion due to damage. They tend to be sold a lot in countries in Africa and south east Asia. Its quite scary how easy they can also be found in Asian/African beauty stores in the states but are probably sold illegally. - stakedrivers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129195.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">20 Dumbest Things People Have Ever Done While Intoxicated</a><br>
+
+<span style="font-size:4em">1. I saw tiny tiny bugs crawling over a little flower among the grass. I realized they had never heard music before, poor lil guys, so I put my phone next to the flower and gave them the concert of a lifetime. - satooshi-nakamooshi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The bouncer at the entrance of the club put his arms out to indicate that I should do so for him to pat me down. Instead I though he wanted a hug so I hugged him. - Gabriel_Issimo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I convinced myself that I could really walk and it was just mind over matter, and despite my boyfriend and friends telling me not to, I rose up from my wheelchair and promptly fell under the pub table. I was covered in bruises, and I had a sore bum for days. My boyfriend and his best mate had to retrieve me from under the table. - Blackcat1206</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not dumbest but laziest. I microwaved something and when I opened the door to get it, because it wasnt centered on the turning plate, it was a bit further from the door. So I closed it and restarted the microwave another 5 seconds to get it closer to me so I didnt have to reach so far back to get it. - Mathinpozani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I microwaved cheesecake because stoned me found it odd that it was always served cold and not hot like it should be. And on a related note, piping hot cheesecake will take those munchies away real quick. - TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. One night I go in the backyard to get high. I leave the backyard lights off so that my older neighbors can’t see what I’m doing cause I’m immature like that lol. I got a glass of ice water in one hand and I stepped into my pitch black backyard. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Every time I move I hear a sound like there is an animal stalking me in the many bushes in my backyard. Whenever I stop the sound stops but once I start moving again it sounds to me like the leaves in the bushes in our backyard are rustling and there is an animal in them. If I try to go back toward my back door the sound follows me. If I move further into the backyard the sound follows me. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I am legit freaking out thinking there is a big animal stalking me in my backyard. Turns out it was just the ice in my drink clinking every time I moved. I never felt so stupid in my life. - Scarlaymama0721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Almost gave myself hypothermia. While on a hike I picked up a big a** rock to throw onto a frozen lake and break the ice. I decided to walk out onto the ice to throw it. Rock hit the ice, ice broke, I fell in. Had to walk about 2 miles back to the car. - RotundMarmot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Needed to go into the gas station to get another dutch. Noticed for whatever reason my best friends boyfriend had a full chicken costume in the backseat. I decided it would be funny to wear JUST the mask into the gas station. Didnt realize how bad I f**ked up til the girl at the register started screaming for the guy in the back room. They had just been robbed 2 weeks prior. - hippiesoul03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A sober friend put the other high guys phone in my bag. I found it funny so I left it there. I completely forgot and took it home with me. Later on an alarm goes off, so I go investigate and then find the phone. Tried to tell the guy and called his phone. The phone that was in my hand. - Hanazzo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Once I was eating a burrito like a ravenous beast and straight up bit my own finger. Another time I was gaming and my hands were cold, as I can get bad circulation. Well I sat there thinking “man it would be great if they made socks, but for your hands” and thought I had a great idea. 10 seconds go by and then “Oh yeah, gloves!” Had a good laugh at myself for that one. - Poxalox</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Playing video games with my bro, split screen MW3. Im absolutely crushing it then I realized Im looking at the wrong screen, my dude is in a corner moving and shooting the wall. - GrandmasBoy85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I was typing on the computer and kept trying to make the numbers uppercase because I couldn’t figure out why I was just getting %]%*]+. - bubblegumbreeze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Once I was looking at the moon and I was just noticing the details in it, and I took a step forward to get a closer look like a dumba**. - LoosKiii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I was high as a kite with some friends. I look up at the sky and I was in awe. There were dozens of shooting stars through the sky. About 2 mins later I realized the stars weren’t moving but the clouds were. - goatedmomoshiki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I got super blazed one night near the beginning of pandemic lockdown, and went across the street to the drugstore to get some chips and such. As I approached the automatic glass doors I saw a person standing on the other side, so I waited for them to come through. I stood there waiting for what felt like an eternity. I was getting frustrated, like “what’s up with this clown? Cant they see I’m waiting for them?” Then i realized it was just my reflection. - hemingward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This one time I was in front of my TV watching comedians in cars getting coffee. I had my bong on the coffee table between me and the TV. I am seeing Jerry Seinfeld driving someone in new York and suddenly I can see a cop car joining their lane behind them. I quietly and slowly took the bong down on the floor so the cops cant see it. - osvalds1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87129252.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Heavy Metal Meets Taxidermy on Insane Instagram Page</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131849.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131850.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131851.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131852.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131853.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131854.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131857.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131855.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131856.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131858.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131859.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131860.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131861.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131862.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131863.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131864.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131865.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131866.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131867.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87131868.png" style="width:100%"><br>
 
