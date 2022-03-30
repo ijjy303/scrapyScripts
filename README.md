@@ -1,7 +1,67 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/30/2022-01:11:31
+Last updated: 03/30/2022-02:11:31
 <br>
-## <a href="#linky2" id="linky1">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
+## <a href="#linky2" id="linky1">31 Fresh Memes From The Dank Side of the Moon</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132876.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132877.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132878.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132879.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132881.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132883.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132884.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132885.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132886.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132887.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132888.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132889.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132890.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132891.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132892.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132893.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132894.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132896.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132897.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132898.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132899.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132900.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132901.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132902.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132903.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132904.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
 
 <span style="font-size:4em">1. Leo enshrined in glory forever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133342.png" style="width:100%"><br>
 
@@ -59,7 +119,7 @@ Last updated: 03/30/2022-01:11:31
 
 <span style="font-size:4em">28. The Seth Rogen box set.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014310/87133418/rogen-min.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Some Funny Tweets Because That's Why You're Here</a><br>
+## <a href="#linky4" id="linky3">Some Funny Tweets Because That's Why You're Here</a><br>
 
 <span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
 
@@ -100,52 +160,6 @@ Last updated: 03/30/2022-01:11:31
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">15 Celebrities Who Found Fame In Strange Ways </a><br>
-
-<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
- The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Fictional Bad Guys and Girls That We Actually Don’t Hate</a><br>
 
@@ -199,113 +213,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">25. Prince Zuko. Never was really a villain in my opinion .-u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133133.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">24 Pics That Escalate Quickly</a><br>
-
-<span style="font-size:4em">1. An Alabama Man gives Florida Man a run for his money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A conversation escalates quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Confidence is no substitute for accuracy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Sometimes the stars just seem to align. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Fire against fire. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. No point in dipping your toes in the water. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If only if only, the woodpecker sighs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Grandmas ready to do some damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Followed by a mic drop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">30 Then-And-Nows Showcasing The Power of Time</a><br>
-
-<span style="font-size:4em">1. Holland, 82-2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Borodyanka, Ukraine – Before The War And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Here’s A Wonderful 1915 Pasadena Craftsmen Located In Bunglsow Heaven That I Had The Pleasure Of Purchasing And Restoring A Few Years Back. Although This House Was Only 950 Sqft It Took Nearly 2 Years To Complete The Renovations Due To Working With The Pasadena Historical Society And City Permitting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Edinburgh, Scotland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Washington Square Arch In NYC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Bhitargaon Temple, Kanpur, India. 1875 And 2011. Built In 5th Century Ce And Renovated By British In 1901. Its The Oldest Surviving Brick Structure In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133002.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Manhattan, 1931 To 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Railway Station In Okhtyrka, Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Times Square A Few Years Apart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Monstrosity That Was The Kowloon Walled City</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Arch Of Ctesiphon As It May Have Appeared In 600ad. Compared To Its Remaining Ruins Today In Iraq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Chernobyl Power Plant Control Room In 1986 And Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Chróstnik Palace 2009 vs. 2021. Chróstnik, Lubin County, Poland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Family Farmhouse 1912-2022 (Id Especially Like To Note That The Green Bench Has Been On The Front Porch For At Least 110 Years)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Circa 1803 Hope Plantation, Windsor, North Carolina Before And After Restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Nickelodeon Studios In The 90’s vs. The Same Building Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Moore Hall, Ireland, 1800s vs. Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Edinburgh Princes Street, 1996 - Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Newcastle Castle, UK - 1895 To 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Clifton Rocks Railway, Clifton, Bristol. 1905 And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Bok Tower (Built 1929) And Today …</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Same Car 1988 vs. 2021, Somewhere In Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. For The First Time In 76 Years, Wwii Veteran Robert White Stands In The Vicinity In Which He Landed After Jumping Into Germany In March Of 1945. He Was As A Paratrooper With The 17th Airborne Division.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A 3.300-Year-Old Chariot Bridge Is Still In Use Today. The Arkadiko Bridge Was Built Between 1300 And 1190 Bce, Making It One Of The Oldest Still-Used Arch Bridges Still In Existence. It Was Built On A Road That Linked Tiryns To Epidaurus, And Was Part Of A Larger Military Road System.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Mahabodhi Temple At Bodh Gaya, India, As Seen From A Second Century Plaque And How It Looks Like Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Panch Ratha Monument, Mahabalipuram, India. Monolithic Temples Sculptured From Granite Rocks Between 630 - 668 Ce. 1825 Sketch By J. Braddock J. Gantz And Now. Its A Unesco World Heritage Site.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Odessa, Ukraine 1942- And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The Lincoln Memorial In 1920 Before The Reflecting Pool Was Built.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Captured Japanese Mini Submarine In The Aleutian Islands, 1943 And 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Unknowingly Captured The Same Image In 2020 That My Dad Took On Vacation Back In 1965 - Shenandoah Np</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133025.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">18 Small Movie Details Most People Didn't Notice</a><br>
+## <a href="#linky6" id="linky5">18 Small Movie Details Most People Didn't Notice</a><br>
 
 <span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
 
@@ -342,6 +250,92 @@ Wayne started his career on the big screen playing football players in a couple 
 <span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">17 Crazy Dating App Demands</a><br>
+
+<span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why do I feel like they might be lying about their own finances?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Is this some vampire s**t? Id stay away from this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I scored an 8. Is that good?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. He might need to go to hairapy for that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Dont they realize these things contradict each other?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Why be on the app then?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That better be a funny comedy show</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Is there another option other than casual / formal attire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. What he said...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. How can they be gym partners by this logic? And what happened to the daughter?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I guess full ass is always the way to go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I didnt make the cut :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. No, you wont get matches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Honestly I see nothing wrong here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">24 Posts You Will Not See Coming</a><br>
+
+<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">30 Tips That May Save Your Life One Day</a><br>
 
@@ -405,153 +399,113 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">31 Fresh Memes From The Dank Side of the Moon</a><br>
+## <a href="#linky10" id="linky9">24 Pics That Escalate Quickly</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. An Alabama Man gives Florida Man a run for his money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132876.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132877.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. A conversation escalates quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132878.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Confidence is no substitute for accuracy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132879.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132881.png" style="width:100%"><br>
+<span style="font-size:4em">6. Same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132882.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132883.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Sometimes the stars just seem to align. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132884.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132609.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132885.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. Fire against fire. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132611.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132886.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132887.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. No point in dipping your toes in the water. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132888.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132889.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. If only if only, the woodpecker sighs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132890.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Grandmas ready to do some damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132892.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132893.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132894.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. Followed by a mic drop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132896.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132897.png" style="width:100%"><br>
+<span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132898.jpeg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">30 Then-And-Nows Showcasing The Power of Time</a><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132899.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Holland, 82-2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132900.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Borodyanka, Ukraine – Before The War And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132901.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Here’s A Wonderful 1915 Pasadena Craftsmen Located In Bunglsow Heaven That I Had The Pleasure Of Purchasing And Restoring A Few Years Back. Although This House Was Only 950 Sqft It Took Nearly 2 Years To Complete The Renovations Due To Working With The Pasadena Historical Society And City Permitting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132902.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Edinburgh, Scotland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132903.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Washington Square Arch In NYC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132904.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Bhitargaon Temple, Kanpur, India. 1875 And 2011. Built In 5th Century Ce And Renovated By British In 1901. Its The Oldest Surviving Brick Structure In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133002.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Manhattan, 1931 To 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133003.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">24 Posts You Will Not See Coming</a><br>
+<span style="font-size:4em">8. Railway Station In Okhtyrka, Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Times Square A Few Years Apart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133004.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The Monstrosity That Was The Kowloon Walled City</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Arch Of Ctesiphon As It May Have Appeared In 600ad. Compared To Its Remaining Ruins Today In Iraq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Chernobyl Power Plant Control Room In 1986 And Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Chróstnik Palace 2009 vs. 2021. Chróstnik, Lubin County, Poland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Family Farmhouse 1912-2022 (Id Especially Like To Note That The Green Bench Has Been On The Front Porch For At Least 110 Years)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Circa 1803 Hope Plantation, Windsor, North Carolina Before And After Restoration</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Nickelodeon Studios In The 90’s vs. The Same Building Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Moore Hall, Ireland, 1800s vs. Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Edinburgh Princes Street, 1996 - Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Newcastle Castle, UK - 1895 To 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Clifton Rocks Railway, Clifton, Bristol. 1905 And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Bok Tower (Built 1929) And Today …</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Same Car 1988 vs. 2021, Somewhere In Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. For The First Time In 76 Years, Wwii Veteran Robert White Stands In The Vicinity In Which He Landed After Jumping Into Germany In March Of 1945. He Was As A Paratrooper With The 17th Airborne Division.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. A 3.300-Year-Old Chariot Bridge Is Still In Use Today. The Arkadiko Bridge Was Built Between 1300 And 1190 Bce, Making It One Of The Oldest Still-Used Arch Bridges Still In Existence. It Was Built On A Road That Linked Tiryns To Epidaurus, And Was Part Of A Larger Military Road System.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. The Mahabodhi Temple At Bodh Gaya, India, As Seen From A Second Century Plaque And How It Looks Like Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Panch Ratha Monument, Mahabalipuram, India. Monolithic Temples Sculptured From Granite Rocks Between 630 - 668 Ce. 1825 Sketch By J. Braddock J. Gantz And Now. Its A Unesco World Heritage Site.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Odessa, Ukraine 1942- And Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. The Lincoln Memorial In 1920 Before The Reflecting Pool Was Built.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Captured Japanese Mini Submarine In The Aleutian Islands, 1943 And 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. Unknowingly Captured The Same Image In 2020 That My Dad Took On Vacation Back In 1965 - Shenandoah Np</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">17 Crazy Dating App Demands</a><br>
-
-<span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Why do I feel like they might be lying about their own finances?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Is this some vampire s**t? Id stay away from this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I scored an 8. Is that good?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. He might need to go to hairapy for that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Dont they realize these things contradict each other?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Why be on the app then?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That better be a funny comedy show</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Is there another option other than casual / formal attire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. What he said...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. How can they be gym partners by this logic? And what happened to the daughter?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I guess full ass is always the way to go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I didnt make the cut :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. No, you wont get matches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Honestly I see nothing wrong here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+## <a href="#linky12" id="linky11">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
 
@@ -566,4 +520,50 @@ Wayne started his career on the big screen playing football players in a couple 
 <span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">15 Celebrities Who Found Fame In Strange Ways </a><br>
+
+<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+ The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
 
