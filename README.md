@@ -1,157 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/30/2022-08:11:31
+Last updated: 03/30/2022-09:11:31
 <br>
-## <a href="#linky2" id="linky1">31 Fresh Memes From The Dank Side of the Moon</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132876.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132877.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132878.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132879.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132881.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132883.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132884.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132885.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132886.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132887.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132888.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132889.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132890.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132891.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132892.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132893.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132894.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132896.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132897.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132898.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132899.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132900.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132901.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132902.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132903.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132904.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">26 Things That Are Really Awesome</a><br>
-
-<span style="font-size:4em">1. “Someone bought me Lego highlighters. You can stick them together and it’s remarkably satisfying.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123308/87134274/87133386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Came across a typewriter for writing music.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Turned my TV into a Nintendo switch.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134270/87133363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. ’’I can’t unsee the chihuahua’s face on this bread.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123220/87134268/87130932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “This Lego schematic at my doctor’s office.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123331/87134277/87133391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. ’’I opened my pill bottle and this is how the pills were lined up in the opening.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123222/87134269/87130933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. ’’My dog learned how to use the doorbell.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134271/87130944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Rainbow rose made from dried acrylic paint skins.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123245/87134272/87133374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123256/87134273/87133367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My wife told me to make a craft with our 6-year-old son. 40 hours later. Papier Mache.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123319/87134275/87133389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Jellybean does not like the cone of shame. He tolerates the flower of protection.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123328/87134276/87133387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This chunk of bismuth I got today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “This Glass Car I Found Buried in the Dirt in My Yard.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A stop sign in my town is so old it’s become a death metal band logo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This bird laid an egg on my window sill.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My gardening tool kit came with a claw glove.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “This guy makes pizza using volcanic vents on the Volcán de Pacaya in Guatemala.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Food is allowed in the library at my college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This bush that looks like Pikachu.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “I got three fortune cookies baked into one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “These frog earrings i own.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Truck converted tesla I saw on the way home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My cat looks like a deer trophy here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This cute baby clementine inside a regular one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Parent’s dog on near identical rug.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “My friends baby has a full head of hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132688.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">17 Crazy Dating App Demands</a><br>
-
-<span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Why do I feel like they might be lying about their own finances?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Is this some vampire s**t? Id stay away from this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I scored an 8. Is that good?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. He might need to go to hairapy for that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Dont they realize these things contradict each other?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Why be on the app then?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That better be a funny comedy show</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Is there another option other than casual / formal attire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. What he said...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. How can they be gym partners by this logic? And what happened to the daughter?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I guess full ass is always the way to go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I didnt make the cut :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. No, you wont get matches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Honestly I see nothing wrong here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">24 Pics That Escalate Quickly</a><br>
+## <a href="#linky2" id="linky1">24 Pics That Escalate Quickly</a><br>
 
 <span style="font-size:4em">1. An Alabama Man gives Florida Man a run for his money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132615.jpg" style="width:100%"><br>
 
@@ -195,7 +45,7 @@ Last updated: 03/30/2022-08:11:31
 
 <span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
+## <a href="#linky3" id="linky2">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
 
 <span style="font-size:4em">1. Leo enshrined in glory forever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133342.png" style="width:100%"><br>
 
@@ -253,7 +103,59 @@ Last updated: 03/30/2022-08:11:31
 
 <span style="font-size:4em">28. The Seth Rogen box set.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014310/87133418/rogen-min.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">30 Tips That May Save Your Life One Day</a><br>
+## <a href="#linky4" id="linky3">17 Crazy Dating App Demands</a><br>
+
+<span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why do I feel like they might be lying about their own finances?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Is this some vampire s**t? Id stay away from this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I scored an 8. Is that good?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. He might need to go to hairapy for that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Dont they realize these things contradict each other?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Why be on the app then?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That better be a funny comedy show</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Is there another option other than casual / formal attire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. What he said...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. How can they be gym partners by this logic? And what happened to the daughter?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I guess full ass is always the way to go</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I didnt make the cut :(</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. No, you wont get matches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Honestly I see nothing wrong here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">30 Tips That May Save Your Life One Day</a><br>
 
 <span style="font-size:4em">1. If you are ever trapped in a car, the headrest pole is made of material that is designed to smash car windows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134026.jpg" style="width:100%"><br>
 
@@ -315,65 +217,57 @@ Last updated: 03/30/2022-08:11:31
 
 <span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">Some Funny Tweets Because That's Why You're Here</a><br>
+## <a href="#linky7" id="linky6">24 Posts You Will Not See Coming</a><br>
 
-<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">34 Funny Signs That Are Useless</a><br>
+## <a href="#linky8" id="linky7">34 Funny Signs That Are Useless</a><br>
 
 <span style="font-size:4em">1. Botched translations are the best</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134182.jpg" style="width:100%"><br>
 
@@ -443,57 +337,113 @@ Last updated: 03/30/2022-08:11:31
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134205.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">24 Posts You Will Not See Coming</a><br>
+## <a href="#linky9" id="linky8">26 Things That Are Really Awesome</a><br>
 
-<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Someone bought me Lego highlighters. You can stick them together and it’s remarkably satisfying.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123308/87134274/87133386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Came across a typewriter for writing music.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Turned my TV into a Nintendo switch.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134270/87133363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. ’’I can’t unsee the chihuahua’s face on this bread.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123220/87134268/87130932.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “This Lego schematic at my doctor’s office.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123331/87134277/87133391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. ’’I opened my pill bottle and this is how the pills were lined up in the opening.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123222/87134269/87130933.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. ’’My dog learned how to use the doorbell.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134271/87130944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Rainbow rose made from dried acrylic paint skins.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123245/87134272/87133374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123256/87134273/87133367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “My wife told me to make a craft with our 6-year-old son. 40 hours later. Papier Mache.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123319/87134275/87133389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Jellybean does not like the cone of shame. He tolerates the flower of protection.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123328/87134276/87133387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “This chunk of bismuth I got today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “This Glass Car I Found Buried in the Dirt in My Yard.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “A stop sign in my town is so old it’s become a death metal band logo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “This bird laid an egg on my window sill.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “My gardening tool kit came with a claw glove.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. “This guy makes pizza using volcanic vents on the Volcán de Pacaya in Guatemala.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Food is allowed in the library at my college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “This bush that looks like Pikachu.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. “I got three fortune cookies baked into one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “These frog earrings i own.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. “Truck converted tesla I saw on the way home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “My cat looks like a deer trophy here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “This cute baby clementine inside a regular one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132686.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">30 Then-And-Nows Showcasing The Power of Time</a><br>
+<span style="font-size:4em">25. “Parent’s dog on near identical rug.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “My friends baby has a full head of hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132688.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Fictional Bad Guys and Girls That We Actually Don’t Hate</a><br>
+
+<span style="font-size:4em">1. Tom from Tom and Jerry. I’ve always rooted for him. -u/deaf_phrog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Yzma. For one, she’s just so crazy that it’s hard to be afraid of her and you end up just liking her. She and Kronk have such great chemistry too. -u/everythinglatte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Hank Scorpio. “On your way out, if you wanna kill somebody, it would help me a lot.” -u/acehigh21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Glados. She is just so crazy and hilarious you forget she enjoys gassing innocents. -u/HenryFrenchFries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Magneto. Was he wrong, in knowing that humans hate and would inevitably attack mutants? According to Days of Future Past, no. Humans have proven that you dont have to be non-human for people to turn on you and kill you. -u/shygirl1995_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Lego Batman Movie Lego Joker. -u/irobot_67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Mr. Freeze. Especially in BTAS and the Arkham games. Dude just wants his wife to live a long life. -u/Aniwaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The Monarch from Venture Bros (Cartoon Network.) Dude is hilarious.  -u/tossaway69420lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Robbie Rotten. Great example because he’s not a murderer or anything, just a troublemaker. So you can actually sympathize with him without feeling bad about it. -u/TimeLordAsparagus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The Ice King. Its just a tragic backstory. Hes just lonely and desperate for friends. -u/evil_wazard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Shego from Kim Possible. Shes so entertaining and one of my cartoon crushes growing up, one of the reasons why I watch that show. -u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Jessie and James. Pokemon would not be the same without them. -u/MyAccounts0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Davy Jones. He’s so extra, too. His first scene has him emerging from the water, walking along a line of terrified sailors while smoking from a pipe, stopping in front of one of them and saying “Do you fear death?” It’s an absolutely amazing way to introduce a character. -u/ShinyNinja25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Crowley. He didn’t fall from grace, so much as sauntered down. -u/JeremyMo88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Plankton. F is for fire that burns down the whole town. U is for uranium bombs. N is for no survivor. -u/dominatorkickback97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Wile E. Coyote. Im rooting for him to blow the Road Runner up. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Dr. Doofenshmirtz. DOOFENSHMIRTZ EVIL INCORPORATED. -u/oscar_meow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Grinch. He wouldnt be so grumpy if there wasnt a dude singing songs every 5 minutes, about what a piece of sh*t he is. -u/steakandcheese1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Hades in the animated Hercules movie. Huge POS, but f*ck if he wasn’t entertaining. -u/yungjaquellus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. You can’t hate my man Bowser. Dude has 8 kids, legit go-karts and plays sports with Mario and his kids. He’s looking out for his kids by kidnapping Peach so they can have a mom lol. -u/AbstractElite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Vlad Dracula Tepes in the 2017 Castlevania series. Humanity sucks.-u/fufufufufufufufuf15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Vulture from MCU Spiderman. The dude was looking out for his people. -u/TeddyRoo_v_Gods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Spike in Buffy the Vampire Slayer. His out for a walk, b*tch line randomly pops into my head every once in a while and I still laugh, he was a great character. -u/amediocremusician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Gus and Mike from Breaking Bad. -u/Maximo-One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Prince Zuko. Never was really a villain in my opinion .-u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133133.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">30 Then-And-Nows Showcasing The Power of Time</a><br>
 
 <span style="font-size:4em">1. Holland, 82-2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132996.jpg" style="width:100%"><br>
 
@@ -555,59 +505,7 @@ Last updated: 03/30/2022-08:11:31
 
 <span style="font-size:4em">30. Unknowingly Captured The Same Image In 2020 That My Dad Took On Vacation Back In 1965 - Shenandoah Np</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133025.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Fictional Bad Guys and Girls That We Actually Don’t Hate</a><br>
-
-<span style="font-size:4em">1. Tom from Tom and Jerry. I’ve always rooted for him. -u/deaf_phrog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Yzma. For one, she’s just so crazy that it’s hard to be afraid of her and you end up just liking her. She and Kronk have such great chemistry too. -u/everythinglatte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Hank Scorpio. “On your way out, if you wanna kill somebody, it would help me a lot.” -u/acehigh21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Glados. She is just so crazy and hilarious you forget she enjoys gassing innocents. -u/HenryFrenchFries</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Magneto. Was he wrong, in knowing that humans hate and would inevitably attack mutants? According to Days of Future Past, no. Humans have proven that you dont have to be non-human for people to turn on you and kill you. -u/shygirl1995_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Lego Batman Movie Lego Joker. -u/irobot_67</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Mr. Freeze. Especially in BTAS and the Arkham games. Dude just wants his wife to live a long life. -u/Aniwaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The Monarch from Venture Bros (Cartoon Network.) Dude is hilarious.  -u/tossaway69420lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Robbie Rotten. Great example because he’s not a murderer or anything, just a troublemaker. So you can actually sympathize with him without feeling bad about it. -u/TimeLordAsparagus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The Ice King. Its just a tragic backstory. Hes just lonely and desperate for friends. -u/evil_wazard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Shego from Kim Possible. Shes so entertaining and one of my cartoon crushes growing up, one of the reasons why I watch that show. -u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Jessie and James. Pokemon would not be the same without them. -u/MyAccounts0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Davy Jones. He’s so extra, too. His first scene has him emerging from the water, walking along a line of terrified sailors while smoking from a pipe, stopping in front of one of them and saying “Do you fear death?” It’s an absolutely amazing way to introduce a character. -u/ShinyNinja25</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Crowley. He didn’t fall from grace, so much as sauntered down. -u/JeremyMo88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Plankton. F is for fire that burns down the whole town. U is for uranium bombs. N is for no survivor. -u/dominatorkickback97</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Wile E. Coyote. Im rooting for him to blow the Road Runner up. -u/ItsMyView</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Dr. Doofenshmirtz. DOOFENSHMIRTZ EVIL INCORPORATED. -u/oscar_meow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Grinch. He wouldnt be so grumpy if there wasnt a dude singing songs every 5 minutes, about what a piece of sh*t he is. -u/steakandcheese1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Hades in the animated Hercules movie. Huge POS, but f*ck if he wasn’t entertaining. -u/yungjaquellus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. You can’t hate my man Bowser. Dude has 8 kids, legit go-karts and plays sports with Mario and his kids. He’s looking out for his kids by kidnapping Peach so they can have a mom lol. -u/AbstractElite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Vlad Dracula Tepes in the 2017 Castlevania series. Humanity sucks.-u/fufufufufufufufuf15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Vulture from MCU Spiderman. The dude was looking out for his people. -u/TeddyRoo_v_Gods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Spike in Buffy the Vampire Slayer. His out for a walk, b*tch line randomly pops into my head every once in a while and I still laugh, he was a great character. -u/amediocremusician</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Gus and Mike from Breaking Bad. -u/Maximo-One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Prince Zuko. Never was really a villain in my opinion .-u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133133.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">18 Small Movie Details Most People Didn't Notice</a><br>
+## <a href="#linky12" id="linky11">18 Small Movie Details Most People Didn't Notice</a><br>
 
 <span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
 
@@ -644,4 +542,151 @@ Last updated: 03/30/2022-08:11:31
 <span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">25 Subtle Signs That Someone Is Filthy Rich</a><br>
+
+<span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
+
+-u/monkeyfeets
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Not hesitating to eat in a restaurant with no prices on the menu.
+
+-u/baloneycologne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I cleaned huge houses for a living, and to me, it was the custom-built Lego rooms with cabinets -floor to ceiling -full of organized lego sets.
+
+-u/EddieLaneWrites</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not knowing the price of everyday stuff, like groceries or electricity.
+
+-u/Myble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Friend of mine used to run a ridiculously exclusive cocktail bar. He always said The ones in the fancy clothes who look filthy rich are normally reasonably wealthy. The ones in jeans and t-shirts who look normal are normally filthy rich
+
+Basically, the truly rich people didnt see the place as anything out of the ordinary, so saw no reason to dress up.
+
+-u/DendroNate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Paying for everyone’s food/ picking up the tab (when done in a passive and nonchalant way).
+
+-u/Everyday_a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. If you use money to get time instead of time to get money
+
+-u/spyplusplus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Suspicious amounts of free time to pursue their interests, travel, or just be out and about.
+
+-u/dildonic_aftermath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Spontaneity. Just talking about something or some place and doing it or booking it there and then.
+
+-u/evilgiraffee57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Alan Clarke, a British politician born into a wealthy family, once disparaged someone by describing them as the sort of person who bought all his own furniture.
+
+-u/BobbyP27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I know its not a big thing, but people who use really nice plates and silver cutlery very casually. Ive seen poor people with mustangs. But Ive never seen poor people eating with polished silver.
+
+-u/garlicroastedpotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Going somewhere pricey and not looking at the total before you pay.
+
+-u/Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133216.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Owning a second house or a boat and not feeling obligated to use it heavily.
+
+-u/zMargeux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A Steinway concert grand piano in the living room (worth about $195,000) that no one in the household plays.
+
+-u/Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Retired with no debt before being in your 50s
+
+-u/Melodic_Machine_9818</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A family member owns a lake house but always refers to it as “just a little weekend place” like it’s no big deal and everyone has one.
+
+-u/samiam871</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. No logos on their clothes, but very well-fitted (tailored) and pressed/cleaned.
+
+-u/328944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I used to know the price of a gallon of milk but now I don’t. I am not rich, but I used to be poor. I needed to know that price. Now we are blessed to have enough that if I need it, I just grab it without looking at the price tag I imagine that being rich would be similar but on a grander scale.
+
+-u/ilyatwttmab</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I work in the private jet world. Rich takes tons of photos getting on the plane. Real money just walks straight onto the plane.
+
+-u/Clumsymax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Rocking socks and flops but sporting a 200k watch
+
+-u/pah23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Perfect teeth. It’s always the perfect teeth.
+
+-u/GreatXs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Maybe not quietly, but being able to afford college without loans, financial aid, or having a job screams money. Bonus points if the parents are bankrolling the whole experience.
+
+-u/mcmcsample</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Using the word Summer as a verb
+
+-u/ikindalold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Having a live-in housekeeper/nanny.
+
+-u/Obstetrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
+Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">Some Funny Tweets Because That's Why You're Here</a><br>
+
+<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
 
