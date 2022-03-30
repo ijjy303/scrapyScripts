@@ -1,7 +1,69 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/30/2022-17:11:31
+Last updated: 03/30/2022-18:11:31
 <br>
-## <a href="#linky2" id="linky1">34 Funny Signs That Are Useless</a><br>
+## <a href="#linky2" id="linky1">30 Tips That May Save Your Life One Day</a><br>
+
+<span style="font-size:4em">1. If you are ever trapped in a car, the headrest pole is made of material that is designed to smash car windows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If your house smells like fish for absolutely no reason there may be an electric fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Use this helpful rhyme to remember what to do in the event of facing each kind of bear If its brown - lay down, if its black - fight back, if its white - goodnight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. If you think your home is haunted and youve been seeing or hearing a presence, get a carbon monoxide detector, theres a chance you could be hallucinating and this could be lethal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If a moose is in the middle of the road, its better to just swerve and run into a ditch because hitting a moose is like hitting a brick wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you have a wound or bug bite and theres this kind of weird red line, thats blood poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When crying for help, try and call some specific people like hey, you in the red shirt, help, Im being mugged! A lot of people will ignore a help call so if you call someone specifically theyll look at you. If people are really ignoring your help call you can just try and yell fire! because people are going to come running to see stuff burning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Do not slide into the pins at a bowling alley as a joke. The pin setting machine will crush you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. If a service dog ever approaches you without its owner, follow them and do it quickly because you could be saving someone elses life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. If you need to break into a car window aim for the edges and corners because its weaker than the center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. If someone tries to kidnap you, scratch your attacker because now their DNA will be in your fingernails</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If you have tightness in the middle of your chest that goes to your jaw and your shoulders or down your left arm, chew an aspirin and wash it down with water, then call emergency services. You are having a heart attack and this could save your life. Females will have pain in their upper back between the shoulder blades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. If lost in the woods, always follow the water downstream.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If you ever come face to face with a mountain lion, dont turn around, just walk backwards, they will be waiting for you to turn around before they attack you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Keep a survival candle in your car when youre in cold areas because the heat from one candle can keep you from fatal freezing. And these candles can last up to 36 hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Milk from brown coconuts will dehydrate you, drink the green ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. If you witness an accident, never take off the persons helmet, you can make a spine or brain injury worse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Never mix bleach and ammonia because the result is a poisonous gas that will take your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you wake up in the middle of the night to the smell of gas do not turn your light switch on it could blow up your whole house</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. If you ever, for some reason, ingest windshield wiper fluid, drink a lot of vodka (90-120ml), so that it prevents your kidneys from shredding and gives you time to go to the hospital.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Too much cold snow in your stomach can cause you to pass away of hypothermia. If snow is all you have, melt the ice then drink it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. If your belly hurts on the lower right side of your stomach, push down on the lower left side. If that produces more pain, its likely appendicitis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. If youre ever in a foreign country 112 is the international 911</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. If you are ever buried in rubble, yelling will just waste energy, try and grab something and tap it in intervals of three, rescuers will notice the pattern.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Most drunk driving fatalities occur on Saturday mornings between 1 am and 3 am. Avoid the roads at this time if you can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. If youre ever trapped in a building on fire get to the ground because the most breathable air will always be at the lowest point</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. If you accidentally disturb a beehive, do not go underwater, they will just wait for you and sting you more. Run as far away as possible and they will eventually tire out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The more colorful and vivid the animal the more likely its poisonous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. If you ever see square waves in the ocean get out immediately</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">34 Funny Signs That Are Useless</a><br>
 
 <span style="font-size:4em">1. Botched translations are the best</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134182.jpg" style="width:100%"><br>
 
@@ -70,68 +132,6 @@ Last updated: 03/30/2022-17:11:31
 <span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134204.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134205.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">30 Tips That May Save Your Life One Day</a><br>
-
-<span style="font-size:4em">1. If you are ever trapped in a car, the headrest pole is made of material that is designed to smash car windows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. If your house smells like fish for absolutely no reason there may be an electric fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Use this helpful rhyme to remember what to do in the event of facing each kind of bear If its brown - lay down, if its black - fight back, if its white - goodnight</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. If you think your home is haunted and youve been seeing or hearing a presence, get a carbon monoxide detector, theres a chance you could be hallucinating and this could be lethal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If a moose is in the middle of the road, its better to just swerve and run into a ditch because hitting a moose is like hitting a brick wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. If you have a wound or bug bite and theres this kind of weird red line, thats blood poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When crying for help, try and call some specific people like hey, you in the red shirt, help, Im being mugged! A lot of people will ignore a help call so if you call someone specifically theyll look at you. If people are really ignoring your help call you can just try and yell fire! because people are going to come running to see stuff burning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Do not slide into the pins at a bowling alley as a joke. The pin setting machine will crush you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. If a service dog ever approaches you without its owner, follow them and do it quickly because you could be saving someone elses life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. If you need to break into a car window aim for the edges and corners because its weaker than the center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. If someone tries to kidnap you, scratch your attacker because now their DNA will be in your fingernails</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. If you have tightness in the middle of your chest that goes to your jaw and your shoulders or down your left arm, chew an aspirin and wash it down with water, then call emergency services. You are having a heart attack and this could save your life. Females will have pain in their upper back between the shoulder blades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. If lost in the woods, always follow the water downstream.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If you ever come face to face with a mountain lion, dont turn around, just walk backwards, they will be waiting for you to turn around before they attack you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Keep a survival candle in your car when youre in cold areas because the heat from one candle can keep you from fatal freezing. And these candles can last up to 36 hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Milk from brown coconuts will dehydrate you, drink the green ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. If you witness an accident, never take off the persons helmet, you can make a spine or brain injury worse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never mix bleach and ammonia because the result is a poisonous gas that will take your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If you wake up in the middle of the night to the smell of gas do not turn your light switch on it could blow up your whole house</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. If you ever, for some reason, ingest windshield wiper fluid, drink a lot of vodka (90-120ml), so that it prevents your kidneys from shredding and gives you time to go to the hospital.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Too much cold snow in your stomach can cause you to pass away of hypothermia. If snow is all you have, melt the ice then drink it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. If your belly hurts on the lower right side of your stomach, push down on the lower left side. If that produces more pain, its likely appendicitis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If youre ever in a foreign country 112 is the international 911</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. If you are ever buried in rubble, yelling will just waste energy, try and grab something and tap it in intervals of three, rescuers will notice the pattern.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Most drunk driving fatalities occur on Saturday mornings between 1 am and 3 am. Avoid the roads at this time if you can</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. If youre ever trapped in a building on fire get to the ground because the most breathable air will always be at the lowest point</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. If you accidentally disturb a beehive, do not go underwater, they will just wait for you and sting you more. Run as far away as possible and they will eventually tire out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The more colorful and vivid the animal the more likely its poisonous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. If you ever see square waves in the ocean get out immediately</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">26 Things That Are Really Awesome</a><br>
 
@@ -239,7 +239,39 @@ Last updated: 03/30/2022-17:11:31
 
 <span style="font-size:4em">25. Sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134168.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">47 Awesome Images Meant to Please</a><br>
+## <a href="#linky6" id="linky5">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">47 Awesome Images Meant to Please</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133928.jpg" style="width:100%"><br>
 
@@ -335,160 +367,47 @@ Last updated: 03/30/2022-17:11:31
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133974.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Subtle Signs That Someone Is Filthy Rich</a><br>
+## <a href="#linky8" id="linky7">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
 
-<span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
-
--u/monkeyfeets
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133205.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Not hesitating to eat in a restaurant with no prices on the menu.
-
--u/baloneycologne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133206.jpg" style="width:100%"><br>
+<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I cleaned huge houses for a living, and to me, it was the custom-built Lego rooms with cabinets -floor to ceiling -full of organized lego sets.
-
--u/EddieLaneWrites</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133207.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Not knowing the price of everyday stuff, like groceries or electricity.
-
--u/Myble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133208.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Friend of mine used to run a ridiculously exclusive cocktail bar. He always said The ones in the fancy clothes who look filthy rich are normally reasonably wealthy. The ones in jeans and t-shirts who look normal are normally filthy rich
-
-Basically, the truly rich people didnt see the place as anything out of the ordinary, so saw no reason to dress up.
-
--u/DendroNate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133209.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Paying for everyone’s food/ picking up the tab (when done in a passive and nonchalant way).
-
--u/Everyday_a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133210.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If you use money to get time instead of time to get money
-
--u/spyplusplus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133211.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Suspicious amounts of free time to pursue their interests, travel, or just be out and about.
-
--u/dildonic_aftermath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133212.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Spontaneity. Just talking about something or some place and doing it or booking it there and then.
-
--u/evilgiraffee57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133213.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Alan Clarke, a British politician born into a wealthy family, once disparaged someone by describing them as the sort of person who bought all his own furniture.
-
--u/BobbyP27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133214.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I know its not a big thing, but people who use really nice plates and silver cutlery very casually. Ive seen poor people with mustangs. But Ive never seen poor people eating with polished silver.
-
--u/garlicroastedpotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133215.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Going somewhere pricey and not looking at the total before you pay.
-
--u/Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133216.png" style="width:100%"><br>
+<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Owning a second house or a boat and not feeling obligated to use it heavily.
-
--u/zMargeux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133217.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A Steinway concert grand piano in the living room (worth about $195,000) that no one in the household plays.
-
--u/Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133218.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Retired with no debt before being in your 50s
-
--u/Melodic_Machine_9818</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133219.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A family member owns a lake house but always refers to it as “just a little weekend place” like it’s no big deal and everyone has one.
-
--u/samiam871</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133220.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. No logos on their clothes, but very well-fitted (tailored) and pressed/cleaned.
-
--u/328944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133221.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I used to know the price of a gallon of milk but now I don’t. I am not rich, but I used to be poor. I needed to know that price. Now we are blessed to have enough that if I need it, I just grab it without looking at the price tag I imagine that being rich would be similar but on a grander scale.
-
--u/ilyatwttmab</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133222.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. I work in the private jet world. Rich takes tons of photos getting on the plane. Real money just walks straight onto the plane.
-
--u/Clumsymax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133223.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Rocking socks and flops but sporting a 200k watch
-
--u/pah23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Perfect teeth. It’s always the perfect teeth.
-
--u/GreatXs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Maybe not quietly, but being able to afford college without loans, financial aid, or having a job screams money. Bonus points if the parents are bankrolling the whole experience.
-
--u/mcmcsample</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Using the word Summer as a verb
-
--u/ikindalold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Having a live-in housekeeper/nanny.
-
--u/Obstetrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
-Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">27 Fresh Memes From the Dank Side of the Tracks</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">31 Dank Memes We Found Living Out of Their Car </a><br>
 
@@ -594,49 +513,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
-
-<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">24 Depressing Memes For Depressed People</a><br>
+## <a href="#linky11" id="linky10">24 Depressing Memes For Depressed People</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134062.jpg" style="width:100%"><br>
 
@@ -686,6 +563,111 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134081.jpg" style="width:100%"><br>
 
+## <a href="#linky12" id="linky11">25 Subtle Signs That Someone Is Filthy Rich</a><br>
+
+<span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
+
+-u/monkeyfeets
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Not hesitating to eat in a restaurant with no prices on the menu.
+
+-u/baloneycologne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I cleaned huge houses for a living, and to me, it was the custom-built Lego rooms with cabinets -floor to ceiling -full of organized lego sets.
+
+-u/EddieLaneWrites</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not knowing the price of everyday stuff, like groceries or electricity.
+
+-u/Myble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Friend of mine used to run a ridiculously exclusive cocktail bar. He always said The ones in the fancy clothes who look filthy rich are normally reasonably wealthy. The ones in jeans and t-shirts who look normal are normally filthy rich
+
+Basically, the truly rich people didnt see the place as anything out of the ordinary, so saw no reason to dress up.
+
+-u/DendroNate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Paying for everyone’s food/ picking up the tab (when done in a passive and nonchalant way).
+
+-u/Everyday_a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. If you use money to get time instead of time to get money
+
+-u/spyplusplus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Suspicious amounts of free time to pursue their interests, travel, or just be out and about.
+
+-u/dildonic_aftermath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Spontaneity. Just talking about something or some place and doing it or booking it there and then.
+
+-u/evilgiraffee57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Alan Clarke, a British politician born into a wealthy family, once disparaged someone by describing them as the sort of person who bought all his own furniture.
+
+-u/BobbyP27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I know its not a big thing, but people who use really nice plates and silver cutlery very casually. Ive seen poor people with mustangs. But Ive never seen poor people eating with polished silver.
+
+-u/garlicroastedpotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Going somewhere pricey and not looking at the total before you pay.
+
+-u/Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133216.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Owning a second house or a boat and not feeling obligated to use it heavily.
+
+-u/zMargeux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A Steinway concert grand piano in the living room (worth about $195,000) that no one in the household plays.
+
+-u/Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Retired with no debt before being in your 50s
+
+-u/Melodic_Machine_9818</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A family member owns a lake house but always refers to it as “just a little weekend place” like it’s no big deal and everyone has one.
+
+-u/samiam871</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. No logos on their clothes, but very well-fitted (tailored) and pressed/cleaned.
+
+-u/328944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I used to know the price of a gallon of milk but now I don’t. I am not rich, but I used to be poor. I needed to know that price. Now we are blessed to have enough that if I need it, I just grab it without looking at the price tag I imagine that being rich would be similar but on a grander scale.
+
+-u/ilyatwttmab</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I work in the private jet world. Rich takes tons of photos getting on the plane. Real money just walks straight onto the plane.
+
+-u/Clumsymax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Rocking socks and flops but sporting a 200k watch
+
+-u/pah23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Perfect teeth. It’s always the perfect teeth.
+
+-u/GreatXs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Maybe not quietly, but being able to afford college without loans, financial aid, or having a job screams money. Bonus points if the parents are bankrolling the whole experience.
+
+-u/mcmcsample</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Using the word Summer as a verb
+
+-u/ikindalold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Having a live-in housekeeper/nanny.
+
+-u/Obstetrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
+Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
+
 ## <a href="#linky13" id="linky12">The Top 20 Most Hated Celebrities According To Reddit</a><br>
 
 <span style="font-size:4em">1. “Epstein, Ghislaine Maxwell and everyone who knew what they were doing.” - Ralphsnacks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134411.jpg" style="width:100%"><br>
@@ -730,7 +712,73 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">19. “Nick Cannon. He’s a spiteful, racist ass person and people really don’t call him out on it” - sovietsoaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134430.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">24 Posts You Will Not See Coming</a><br>
+## <a href="#linky14" id="linky13">27 Fresh Memes From the Dank Side of the Tracks</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Posts You Will Not See Coming</a><br>
 
 <span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
 
@@ -779,20 +827,4 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
 
