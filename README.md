@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/29/2022-22:11:31
+Last updated: 03/29/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">24 Posts You Will Not See Coming</a><br>
 
@@ -51,45 +51,7 @@ Last updated: 03/29/2022-22:11:31
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">18 Small Movie Details Most People Didn't Notice</a><br>
-
-<span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Spider-Man: No Way Home (2021) The graffiti on the roof of Peters school is a reference to Steve Ditko. Ditko is the co-creator of both Spider-man and Doctor Strange along with Stan Lee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In the Harry Potter Movies (2001-2011), Snape’s costume was the only one that never changed. According to costume designer, Jany Temine:Because, it was perfect. When something is perfect you cannot change it.” She joined in Prisoner of Azkaban and changed most costumes except Snape’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In Toy Story 4 (2019), a car has the licence plate RMRF97. In 1997, someone at Pixar accidentally typed “rm -r -f “, deleting the entire Toy Story 2 movie from the Pixar database. Fortunately, the films supervising technical director had a backup copy at home, and the movie was restored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In the end credits of Mr. Popper’s Penguins (2011), it is confirmed that while no penguins were harmed during the making of the movie, Jim Carrey was not so fortunate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In Ant-Man (2015) actor Garrett Morris makes a brief appearance in a scene. Morris was the first person to ever portray Ant-Man in a 1979 Saturday Night Live skit called Superhero Party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. In Meet The Robinsons (2007), Wilbur attends Joyce Williams Elementary. This is a reference to William Joyce, he wrote A Day with Wilbur Robinson, the book that Meet the Robinsons is based on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Nightmare Alley (2021) In psychiatrist Lilith Ritters office, we see Rorschach images as wall designs. Rorschach images are used in psychology to analyze the perceptions of it by patients and to examine their personalities</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In Tangled(2010) Mother Gothel says “I love you the most” , while kissing Rapunzels HAIR instead of her forehead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The ending of Back to the Future is shared by the opening sequence of Back to the Future: Part II. However due to recasting Jennifer and the five years that had past for Michael J Fox and Christopher Lloyd, the sequence was completely reshot for the second film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In The Invisible Man (2020), you can see graffiti of Billy the Puppet as Cece drives away. This is a reference to Saw, which Director Leigh Whannell both wrote and starred in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Skyfall (2012), a stolen painting is being shown to a man. The painting is ‘Woman with a fan’ by Amadeo Modigliani. It was stolen in real-life in 2010 and has yet to be recovered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Up in the Air (2009), during the scene in which Natalie (Anna Kendrick) presents her “glocal” concept in the company meeting, the man seated directly next to Ryan (George Clooney) is played by Walter Kirn, the real-life author of the book from which the movie was adapted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In Lethal Weapon (1987), you can see Lost Boys is playing at a theater in the background. Richard Donner was going to direct The Lost Boys, but instead directed Lethal Weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Giant ring used for close-ups in ‘Lord of the Rings: The Fellowship of the Ring’ (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Wolf of Wall Street features a brief shot filmed on an iPhone. Scorsese needed a shot of the fasten your seat belt sign for the aeroplane scene. Robert Legato, the effects supervisor, took a video of one during a flight on his iPhone and showed Scorsese who said Great. Lets just use that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">15 Celebrities Who Found Fame In Strange Ways </a><br>
+## <a href="#linky3" id="linky2">15 Celebrities Who Found Fame In Strange Ways </a><br>
 
 <span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
 
@@ -135,7 +97,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">31 Fresh Memes From The Dank Side of the Moon</a><br>
+## <a href="#linky4" id="linky3">31 Fresh Memes From The Dank Side of the Moon</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
 
@@ -195,49 +157,45 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Some Funny Tweets Because That's Why You're Here</a><br>
+## <a href="#linky5" id="linky4">18 Small Movie Details Most People Didn't Notice</a><br>
 
-<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Spider-Man: No Way Home (2021) The graffiti on the roof of Peters school is a reference to Steve Ditko. Ditko is the co-creator of both Spider-man and Doctor Strange along with Stan Lee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In the Harry Potter Movies (2001-2011), Snape’s costume was the only one that never changed. According to costume designer, Jany Temine:Because, it was perfect. When something is perfect you cannot change it.” She joined in Prisoner of Azkaban and changed most costumes except Snape’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In Toy Story 4 (2019), a car has the licence plate RMRF97. In 1997, someone at Pixar accidentally typed “rm -r -f “, deleting the entire Toy Story 2 movie from the Pixar database. Fortunately, the films supervising technical director had a backup copy at home, and the movie was restored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. In the end credits of Mr. Popper’s Penguins (2011), it is confirmed that while no penguins were harmed during the making of the movie, Jim Carrey was not so fortunate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In Ant-Man (2015) actor Garrett Morris makes a brief appearance in a scene. Morris was the first person to ever portray Ant-Man in a 1979 Saturday Night Live skit called Superhero Party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In Meet The Robinsons (2007), Wilbur attends Joyce Williams Elementary. This is a reference to William Joyce, he wrote A Day with Wilbur Robinson, the book that Meet the Robinsons is based on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Nightmare Alley (2021) In psychiatrist Lilith Ritters office, we see Rorschach images as wall designs. Rorschach images are used in psychology to analyze the perceptions of it by patients and to examine their personalities</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In Tangled(2010) Mother Gothel says “I love you the most” , while kissing Rapunzels HAIR instead of her forehead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The ending of Back to the Future is shared by the opening sequence of Back to the Future: Part II. However due to recasting Jennifer and the five years that had past for Michael J Fox and Christopher Lloyd, the sequence was completely reshot for the second film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In The Invisible Man (2020), you can see graffiti of Billy the Puppet as Cece drives away. This is a reference to Saw, which Director Leigh Whannell both wrote and starred in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In Skyfall (2012), a stolen painting is being shown to a man. The painting is ‘Woman with a fan’ by Amadeo Modigliani. It was stolen in real-life in 2010 and has yet to be recovered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In Up in the Air (2009), during the scene in which Natalie (Anna Kendrick) presents her “glocal” concept in the company meeting, the man seated directly next to Ryan (George Clooney) is played by Walter Kirn, the real-life author of the book from which the movie was adapted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In Lethal Weapon (1987), you can see Lost Boys is playing at a theater in the background. Richard Donner was going to direct The Lost Boys, but instead directed Lethal Weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Giant ring used for close-ups in ‘Lord of the Rings: The Fellowship of the Ring’ (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Wolf of Wall Street features a brief shot filmed on an iPhone. Scorsese needed a shot of the fasten your seat belt sign for the aeroplane scene. Robert Legato, the effects supervisor, took a video of one during a flight on his iPhone and showed Scorsese who said Great. Lets just use that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
+<span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
+## <a href="#linky6" id="linky5">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
 
 <span style="font-size:4em">1. Leo enshrined in glory forever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133342.png" style="width:100%"><br>
 
@@ -295,6 +253,48 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">28. The Seth Rogen box set.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014310/87133418/rogen-min.jpg" style="width:100%"><br>
 
+## <a href="#linky7" id="linky6">Some Funny Tweets Because That's Why You're Here</a><br>
+
+<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
+
 ## <a href="#linky8" id="linky7">25 Fictional Bad Guys and Girls That We Actually Don’t Hate</a><br>
 
 <span style="font-size:4em">1. Tom from Tom and Jerry. I’ve always rooted for him. -u/deaf_phrog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133134.jpg" style="width:100%"><br>
@@ -347,7 +347,51 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">25. Prince Zuko. Never was really a villain in my opinion .-u/Snoo79382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133133.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 Then-And-Nows Showcasing The Power of Time</a><br>
+## <a href="#linky9" id="linky8">24 Pics That Escalate Quickly</a><br>
+
+<span style="font-size:4em">1. An Alabama Man gives Florida Man a run for his money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A conversation escalates quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Confidence is no substitute for accuracy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Sometimes the stars just seem to align. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Fire against fire. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. No point in dipping your toes in the water. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. If only if only, the woodpecker sighs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Grandmas ready to do some damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Followed by a mic drop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">30 Then-And-Nows Showcasing The Power of Time</a><br>
 
 <span style="font-size:4em">1. Holland, 82-2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132996.jpg" style="width:100%"><br>
 
@@ -409,7 +453,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">30. Unknowingly Captured The Same Image In 2020 That My Dad Took On Vacation Back In 1965 - Shenandoah Np</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133025.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">17 Crazy Dating App Demands</a><br>
+## <a href="#linky11" id="linky10">17 Crazy Dating App Demands</a><br>
 
 <span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
 
@@ -445,7 +489,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+## <a href="#linky12" id="linky11">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
 
@@ -461,7 +505,7 @@ Wayne started his career on the big screen playing football players in a couple 
 
 <span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">30 Tips That May Save Your Life One Day</a><br>
+## <a href="#linky13" id="linky12">30 Tips That May Save Your Life One Day</a><br>
 
 <span style="font-size:4em">1. If you are ever trapped in a car, the headrest pole is made of material that is designed to smash car windows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134026.jpg" style="width:100%"><br>
 
@@ -522,48 +566,4 @@ Wayne started his career on the big screen playing football players in a couple 
 <span style="font-size:4em">29. If you ever see square waves in the ocean get out immediately</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134054.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">24 Pics That Escalate Quickly</a><br>
-
-<span style="font-size:4em">1. An Alabama Man gives Florida Man a run for his money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A conversation escalates quickly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Confidence is no substitute for accuracy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Sometimes the stars just seem to align. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Fire against fire. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. No point in dipping your toes in the water. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. If only if only, the woodpecker sighs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Grandmas ready to do some damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Followed by a mic drop. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
 
