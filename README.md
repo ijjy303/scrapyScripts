@@ -1,153 +1,151 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/30/2022-00:11:31
+Last updated: 03/30/2022-01:11:31
 <br>
-## <a href="#linky2" id="linky1">31 Fresh Memes From The Dank Side of the Moon</a><br>
+## <a href="#linky2" id="linky1">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Leo enshrined in glory forever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133342.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132876.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. This Halloween 2018 edit brings so much heat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133343.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132877.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. The old Disney logo, the black and white...chefs kiss.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133344.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132878.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Why do these look so real???</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133345.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132879.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Guardians of the Galaxy, Volume 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133346.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132881.png" style="width:100%"><br>
+<span style="font-size:4em">6. This epic horror movie lineup.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133347.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132882.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The red, black, and yellow Tarantino aesthetic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133348.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132883.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Deadpool 2, because every Ryan Reynolds movie deserves a sequel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133349.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132884.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Adam Sandler when he hears about Will Smith and Chris Rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133350.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132885.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. The entire You series box set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133351.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132886.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. This is peak 90s right here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133352.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132887.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. Just a sensible night of horror.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133353.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132888.png" style="width:100%"><br>
+<span style="font-size:4em">13. The best Batman movie ever made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133354.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132889.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. This one just fits so well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133355.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132890.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. The Batman in the style of Batman Returns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133356.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132891.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. The detail. All the way down to the FBI warning label.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133357.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132892.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. True Detective getting the recognition it deserves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133358.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132893.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Who remembers the plastic VHS covers!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133359.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132894.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. Spider-man: No Way Home, now available to own on VHS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133360.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132896.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Three words. Lets blade bruh!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013858/87133410/blades.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132897.png" style="width:100%"><br>
+<span style="font-size:4em">21. Horror movies should only be released on VHS. Just look how gorgeous that is.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013909/87133411/follows.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132898.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. The Joker, an instant classic.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013921/87133412/joke.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132899.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. This is giving me Sandlot/Rookie of the Year vibes. I love it.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013928/87133413/eastbound.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132900.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Michael Scotts crowning achievement!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013933/87133414/office.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132901.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. The higher you go, the weirder it gets!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013941/87133415/social.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132902.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. One of the most underrated comedies ever made.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013946/87133416/tropic.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132903.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. This one goes way too hard.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014259/87133417/judah-min.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132904.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. The Seth Rogen box set.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014310/87133418/rogen-min.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">Some Funny Tweets Because That's Why You're Here</a><br>
 
-## <a href="#linky3" id="linky2">24 Posts You Will Not See Coming</a><br>
+<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">15 Celebrities Who Found Fame In Strange Ways </a><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
+<span style="font-size:4em">
+
+When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">18 Small Movie Details Most People Didn't Notice</a><br>
+<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+ The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Spider-Man: No Way Home (2021) The graffiti on the roof of Peters school is a reference to Steve Ditko. Ditko is the co-creator of both Spider-man and Doctor Strange along with Stan Lee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133082.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In the Harry Potter Movies (2001-2011), Snape’s costume was the only one that never changed. According to costume designer, Jany Temine:Because, it was perfect. When something is perfect you cannot change it.” She joined in Prisoner of Azkaban and changed most costumes except Snape’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133083.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. In Toy Story 4 (2019), a car has the licence plate RMRF97. In 1997, someone at Pixar accidentally typed “rm -r -f “, deleting the entire Toy Story 2 movie from the Pixar database. Fortunately, the films supervising technical director had a backup copy at home, and the movie was restored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133084.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In the end credits of Mr. Popper’s Penguins (2011), it is confirmed that while no penguins were harmed during the making of the movie, Jim Carrey was not so fortunate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133085.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In Ant-Man (2015) actor Garrett Morris makes a brief appearance in a scene. Morris was the first person to ever portray Ant-Man in a 1979 Saturday Night Live skit called Superhero Party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133086.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In Meet The Robinsons (2007), Wilbur attends Joyce Williams Elementary. This is a reference to William Joyce, he wrote A Day with Wilbur Robinson, the book that Meet the Robinsons is based on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133087.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Nightmare Alley (2021) In psychiatrist Lilith Ritters office, we see Rorschach images as wall designs. Rorschach images are used in psychology to analyze the perceptions of it by patients and to examine their personalities</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133088.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In Tangled(2010) Mother Gothel says “I love you the most” , while kissing Rapunzels HAIR instead of her forehead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133089.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The ending of Back to the Future is shared by the opening sequence of Back to the Future: Part II. However due to recasting Jennifer and the five years that had past for Michael J Fox and Christopher Lloyd, the sequence was completely reshot for the second film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In The Invisible Man (2020), you can see graffiti of Billy the Puppet as Cece drives away. This is a reference to Saw, which Director Leigh Whannell both wrote and starred in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Skyfall (2012), a stolen painting is being shown to a man. The painting is ‘Woman with a fan’ by Amadeo Modigliani. It was stolen in real-life in 2010 and has yet to be recovered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Up in the Air (2009), during the scene in which Natalie (Anna Kendrick) presents her “glocal” concept in the company meeting, the man seated directly next to Ryan (George Clooney) is played by Walter Kirn, the real-life author of the book from which the movie was adapted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In Lethal Weapon (1987), you can see Lost Boys is playing at a theater in the background. Richard Donner was going to direct The Lost Boys, but instead directed Lethal Weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Giant ring used for close-ups in ‘Lord of the Rings: The Fellowship of the Ring’ (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Wolf of Wall Street features a brief shot filmed on an iPhone. Scorsese needed a shot of the fasten your seat belt sign for the aeroplane scene. Robert Legato, the effects supervisor, took a video of one during a flight on his iPhone and showed Scorsese who said Great. Lets just use that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Fictional Bad Guys and Girls That We Actually Don’t Hate</a><br>
 
@@ -245,23 +243,7 @@ Last updated: 03/30/2022-00:11:31
 
 <span style="font-size:4em">21. Nothing to see here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132624.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">30 Then-And-Nows Showcasing The Power of Time</a><br>
+## <a href="#linky7" id="linky6">30 Then-And-Nows Showcasing The Power of Time</a><br>
 
 <span style="font-size:4em">1. Holland, 82-2020</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132996.jpg" style="width:100%"><br>
 
@@ -322,6 +304,44 @@ Last updated: 03/30/2022-00:11:31
 <span style="font-size:4em">29. Captured Japanese Mini Submarine In The Aleutian Islands, 1943 And 2021</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133024.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. Unknowingly Captured The Same Image In 2020 That My Dad Took On Vacation Back In 1965 - Shenandoah Np</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133025.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">18 Small Movie Details Most People Didn't Notice</a><br>
+
+<span style="font-size:4em">1. Forrest Gump never blinks while playing ping pong, as he was told the trick was “to keep your eye on the ball.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Spider-Man: No Way Home (2021) The graffiti on the roof of Peters school is a reference to Steve Ditko. Ditko is the co-creator of both Spider-man and Doctor Strange along with Stan Lee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In the Harry Potter Movies (2001-2011), Snape’s costume was the only one that never changed. According to costume designer, Jany Temine:Because, it was perfect. When something is perfect you cannot change it.” She joined in Prisoner of Azkaban and changed most costumes except Snape’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In Toy Story 4 (2019), a car has the licence plate RMRF97. In 1997, someone at Pixar accidentally typed “rm -r -f “, deleting the entire Toy Story 2 movie from the Pixar database. Fortunately, the films supervising technical director had a backup copy at home, and the movie was restored.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In the end credits of Mr. Popper’s Penguins (2011), it is confirmed that while no penguins were harmed during the making of the movie, Jim Carrey was not so fortunate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In Ant-Man (2015) actor Garrett Morris makes a brief appearance in a scene. Morris was the first person to ever portray Ant-Man in a 1979 Saturday Night Live skit called Superhero Party.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In Meet The Robinsons (2007), Wilbur attends Joyce Williams Elementary. This is a reference to William Joyce, he wrote A Day with Wilbur Robinson, the book that Meet the Robinsons is based on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Nightmare Alley (2021) In psychiatrist Lilith Ritters office, we see Rorschach images as wall designs. Rorschach images are used in psychology to analyze the perceptions of it by patients and to examine their personalities</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In Tangled(2010) Mother Gothel says “I love you the most” , while kissing Rapunzels HAIR instead of her forehead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The ending of Back to the Future is shared by the opening sequence of Back to the Future: Part II. However due to recasting Jennifer and the five years that had past for Michael J Fox and Christopher Lloyd, the sequence was completely reshot for the second film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In The Invisible Man (2020), you can see graffiti of Billy the Puppet as Cece drives away. This is a reference to Saw, which Director Leigh Whannell both wrote and starred in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In Skyfall (2012), a stolen painting is being shown to a man. The painting is ‘Woman with a fan’ by Amadeo Modigliani. It was stolen in real-life in 2010 and has yet to be recovered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Up in the Air (2009), during the scene in which Natalie (Anna Kendrick) presents her “glocal” concept in the company meeting, the man seated directly next to Ryan (George Clooney) is played by Walter Kirn, the real-life author of the book from which the movie was adapted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In Lethal Weapon (1987), you can see Lost Boys is playing at a theater in the background. Richard Donner was going to direct The Lost Boys, but instead directed Lethal Weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Giant ring used for close-ups in ‘Lord of the Rings: The Fellowship of the Ring’ (2001).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Wolf of Wall Street features a brief shot filmed on an iPhone. Scorsese needed a shot of the fasten your seat belt sign for the aeroplane scene. Robert Legato, the effects supervisor, took a video of one during a flight on his iPhone and showed Scorsese who said Great. Lets just use that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Austin Powers The Spy Who Shagged Me (1999) re-used the rocket launch scene from Apollo 13 (1995)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In Fargo (1996), Carl says “30 minutes, Jerry we wrap this thing up” when there are exactly 30 minutes of the movie remaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133098.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">30 Tips That May Save Your Life One Day</a><br>
 
@@ -385,153 +405,117 @@ Last updated: 03/30/2022-00:11:31
 
 <span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Dude’s Instagram Page Dedicated to ‘90s Themed VHS Tapes</a><br>
+## <a href="#linky10" id="linky9">31 Fresh Memes From The Dank Side of the Moon</a><br>
 
-<span style="font-size:4em">1. Leo enshrined in glory forever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133342.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132875.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This Halloween 2018 edit brings so much heat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133343.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132876.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The old Disney logo, the black and white...chefs kiss.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133344.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132877.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Why do these look so real???</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133345.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132878.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Guardians of the Galaxy, Volume 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133346.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132879.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This epic horror movie lineup.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133347.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132881.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. The red, black, and yellow Tarantino aesthetic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133348.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Deadpool 2, because every Ryan Reynolds movie deserves a sequel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133349.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132883.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Adam Sandler when he hears about Will Smith and Chris Rock.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133350.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132884.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The entire You series box set.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133351.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132885.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. This is peak 90s right here.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133352.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132886.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Just a sensible night of horror.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133353.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132887.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The best Batman movie ever made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133354.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132888.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. This one just fits so well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133355.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132889.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Batman in the style of Batman Returns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133356.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132890.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The detail. All the way down to the FBI warning label.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133357.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132891.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. True Detective getting the recognition it deserves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133358.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132892.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Who remembers the plastic VHS covers!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133359.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132893.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Spider-man: No Way Home, now available to own on VHS.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87133360.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132894.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Three words. Lets blade bruh!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013858/87133410/blades.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132896.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Horror movies should only be released on VHS. Just look how gorgeous that is.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013909/87133411/follows.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132897.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. The Joker, an instant classic.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013921/87133412/joke.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132898.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. This is giving me Sandlot/Rookie of the Year vibes. I love it.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013928/87133413/eastbound.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132899.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Michael Scotts crowning achievement!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013933/87133414/office.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132900.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. The higher you go, the weirder it gets!</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013941/87133415/social.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132901.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. One of the most underrated comedies ever made.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/013946/87133416/tropic.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132902.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. This one goes way too hard.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014259/87133417/judah-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132903.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">28. The Seth Rogen box set.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/014310/87133418/rogen-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132904.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">15 Celebrities Who Found Fame In Strange Ways </a><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87132905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Before becoming a world-famous actress, Jennifer Aniston tried herself in many roles on projects that were not very successful. Once, the actress ran into the former president of NBC Entertainment, Warren Littlefield, at a gas station on Sunset Boulevard in Hollywood. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129947.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">24 Posts You Will Not See Coming</a><br>
 
-<span style="font-size:4em">
-
-When he finished gassing up his car, Aniston asked him, “Will it ever happen for me?” Littlefield thought for a while and answered, “I wanted it to.” Soon after, she was invited for the audition for the Friends series, where the actress got the cult role of Rachel Green.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129951.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In his student years, Brad Pitt was studying journalism but dropped out of college 2 weeks before graduation. World fame didn’t come to him all at once. Pitt had to agree to take any job to be able to pay the bills. He worked as a mascot at a cafe wearing a chicken costume and gave rides to female dancers to bachelor parties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129959.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-According to the actor, these jobs gave him a chance to find the right contacts and brought him to acting teacher, Roy London, who helped him unfold his talent and get his first roles in movies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129949.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Pamela Anderson worked as a fitness instructor until she was “found” at a football game in Canada. She came to the game in a tight-fitting t-shirt with a logo depicted on it and was broadcast on the stadium’s giant screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129950.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
- The unexpected advertisement pleased the representatives of the company, and Anderson was offered a contract. Soon afterward, she was doing photoshoots for magazines and then got her iconic role on Baywatch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129952.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. 17-year-old Chloë Sevigny was skateboarding with her friends in the East Village in New York when she accidentally met a photographer from a magazine about music and fashion, i-D. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129953.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-The latter offered her a photoshoot, and Chloë didn’t miss her chance. Now the world-famous model and actress considers this photoshoot the best one in her career.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129954.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. David Boreanaz had been trying to get on the big screen for years by taking part in many auditions but his dream came true thanks to an accidental meeting. In 1996, Marcia Shulman, the casting director of the cult series Buffy The Vampire Slayer, was looking for a handsome guy to fill the role of Angel — a tortured vampire with a soul. But all was in vain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129955.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-That’s when her friend, who noticed Boreanaz while walking her dog, came to the rescue. The actor was approved for the role and he remained the star of the TV series for the next 25 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129956.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lana Turner or Julia Jean Milfred Frances Turner (her name before the start of her career in Hollywood) owes her career to William R. Wilkerson, founder of the leading American magazine about the movie industry The Hollywood Reporter.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129948.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-The businessman first saw the future icon of the 1940s and 1950s in a cafe when she was drinking soda with her friends and instantly realized that he was looking at the future star. Wilkerson introduced 16-year-old Turner to talent agent, Zeppo Marx, who helped her get a small role in the movie They Won’t Forget. Soon afterward, her great career on the big screen started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129957.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Before becoming a superstar, John Wayne went by the name Marion Morrison and played as a forward for the University of Southern California. But after a serious injury, he lost his sports scholarship and was forced to look for work elsewhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129958.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Wayne started his career on the big screen playing football players in a couple of movies (including The Drop Kick). Afterward, he gradually switched to more iconic roles and even won an Oscar in 1970.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129960.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Justin Bieber has been into music from early childhood — he played drums, piano, guitar, and trumpet. At the age of 12, he took part in a singing contest in the Canadian city, Stratford, where he took second place. The mother of the young artist posted his video on YouTube to help other members of their family and their friends watch it who were not able to attend the performance. Afterward, she uploaded several videos where Justin was singing popular song covers in a rhythm and blues style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129961.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Some Funny Tweets Because That's Why You're Here</a><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Also students as soon as school is out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131809.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131812.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131807.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131808.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Be careful what you wish for, you might just get it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131819.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131811.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131806.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Let the comment wars begin on this</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131813.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Thats definitely not actually in the book, right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131814.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Priorities are definitely clear here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You better stop barking, or this is your fate!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I bet some of you wish you could be like Britney Spears</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Well thats one way to put it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. They just followed instructions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Maybe they were all gathering magic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Better keep a close eye on his search history when you get home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131823.gif" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. But does anyone remember the side kick?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131827.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">17 Crazy Dating App Demands</a><br>
+## <a href="#linky12" id="linky11">17 Crazy Dating App Demands</a><br>
 
 <span style="font-size:4em">1. Id love to see his gym attendance numbers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131567.jpg" style="width:100%"><br>
 
@@ -566,4 +550,20 @@ Wayne started his career on the big screen playing football players in a couple 
 <span style="font-size:4em">16. Honestly I see nothing wrong here. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131573.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. Like Glenn weighs under 165...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131574.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Man Blames Girlfriend for ‘Letting’ Their House Get Robbed</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87134226.jpg" style="width:100%"><br>
 
