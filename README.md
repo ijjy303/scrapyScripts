@@ -1,227 +1,93 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/31/2022-15:11:31
+Last updated: 03/31/2022-16:11:31
 <br>
-## <a href="#linky2" id="linky1">27 Fresh Memes From the Dank Side of the Tracks</a><br>
+## <a href="#linky2" id="linky1">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Dudes with spiky bleached hair.” - PlaystationPlus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Brown granite counters in a Tuscan style kitchen.” - Mark072690</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Shimmery/frosty lipstick. Makes you look like you don’t have lips.” - bunnies_and_birdies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Thin brows . I do brows for a living, and the thick brow look didn’t get popular until about 2014.” - Samoanaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Subprime mortgages.” - Molongoloid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Popped Collars apparently? A friend had a polo where underneath the collar it said POP THIS. It was the epitome of douchy clothing.” - nobody2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Ramen noodle hair.” - Jethseter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Chunky highlights.” - _smitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Mini skirts over jeans. Layered tops.” - ariseis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “the pants that said juicy on the back.” - Ineedtoaskthis000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Remember those girls with bleached hair, orange spray tans, white eye makeup, and glazed donut lips? There was a name for that look, it disappeared completely.” - Coupeonzs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Applebottom jeans, boots with the furr.” - woodyever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “If you want to experience any of these trends alive and well, visit a rural trailer park, where trends are stuck 10-30 years in the past. I grew up in the 90s in a trailer park and get nostalgic about the 70s and 80s because thats how it was.” - KingAgrian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “The “scene” look. Poofy straightened hair, tons of eyeliner, tight clothes etc. Teenage skater me thought girls like that were just the hottest. Also for guys, medium length hair that would kinda flip up to create “wings”. I remember i used to put a fitted hat on right after i got out of the shower to try and create the look. Feel like dudes like Ryan Sheckler really popularized it.” - yourmothersanicelady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Those hair bumpit things.” - ScientistFromSouth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “A shit load of hair gel.” - gtr011191</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Playboy bunny tan outline on your hipbone lol.” - seafoam22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Von Dutch caps. Oh, team it with a chunky belt over the top of 2 differently coloured long singlets.” - phattoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “A thong sticking out of low-rise jeans.” - coffeeblossom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135515.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135518.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">47 Awesome Images Meant to Please</a><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133928.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135520.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133929.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133930.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Weve all been there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133931.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135523.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133932.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135524.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133933.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Looking like a collection of WWII sniper paraphernalia. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133934.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133935.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133936.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133937.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When life hands you lemons. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133938.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133939.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133940.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Hes just being his authentic self. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133941.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133942.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133943.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133944.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133974.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
-
-<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">15 Awful People Giving Their Countries Bad Reputations  </a><br>
-
-<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">31 Dank Memes We Found Living Out of Their Car </a><br>
+## <a href="#linky4" id="linky3">31 Dank Memes We Found Living Out of Their Car </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133896.jpeg" style="width:100%"><br>
 
@@ -283,7 +149,7 @@ Last updated: 03/31/2022-15:11:31
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133926.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">33 People Who Know How to Funny</a><br>
+## <a href="#linky5" id="linky4">33 People Who Know How to Funny</a><br>
 
 <span style="font-size:4em">1. “Got my hair cut and ended up looking like Garth from Wayne’s World.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135087.jpg" style="width:100%"><br>
 
@@ -349,7 +215,7 @@ Last updated: 03/31/2022-15:11:31
 
 <span style="font-size:4em">32. “My dad asked me if I wanted an egg sandwich. I’m not even mad, this is genius!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135108.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">25 Unbelievable Facts About World War II</a><br>
+## <a href="#linky6" id="linky5">25 Unbelievable Facts About World War II</a><br>
 
 <span style="font-size:4em">1. The Soviet 13th Guards Rifle Division, one of the units in the Battle of Stalingrad, suffered 30% killed in the first day of fighting. Just 320 of the original 10,000 soldiers survived the entire battle.-u/409Narwhal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134609.jpg" style="width:100%"><br>
 
@@ -409,39 +275,71 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">21. FDR didnt really care who his Vice President was during his last term even though he was practically already dying. Party officials picked Harry Truman and FDR almost never included him in any decision-making even after they were elected. When FDR died a couple of months into their term, Truman wasnt really in the loop on what exactly was happening with the executive branch and ending WWII. A couple of months later he dropped the atomic bombs on Japan.-u/ProbablyaDrugDealer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134633.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
+## <a href="#linky7" id="linky6">15 People Whose Age Will Confuse You</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
+<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
+<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
+<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
+<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
+<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
+<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
+<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
+<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
+<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
+<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
+<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
+<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
+<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
+<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">16 Guides You Might Find Useful</a><br>
+## <a href="#linky8" id="linky7">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+
+<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">16 Guides You Might Find Useful</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134601.jpg" style="width:100%"><br>
 
@@ -475,101 +373,105 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134607.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">47 Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky10" id="linky9">27 Fresh Memes From the Dank Side of the Tracks</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135616.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135617.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135618.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135619.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135620.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135621.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135622.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135623.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135624.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135625.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135626.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135627.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135628.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135629.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135630.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135631.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135632.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135633.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135634.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135635.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135636.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135637.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135638.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135639.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135640.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">24 Depressing Memes For Depressed People</a><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135641.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135642.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135643.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135644.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135645.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135646.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135647.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135648.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135649.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135650.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135651.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135652.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135653.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135654.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135655.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135656.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135657.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135658.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135659.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135660.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135661.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135662.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134081.jpg" style="width:100%"><br>
 
 ## <a href="#linky12" id="linky11">25 Things That Were Designed By Jerks</a><br>
 
@@ -623,127 +525,77 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">25. “One dryer sheet has always been enough for me. Just seems like they want me to use more so I have to buy more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133628.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
+## <a href="#linky13" id="linky12">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
 
-<span style="font-size:4em">1. “Dudes with spiky bleached hair.” - PlaystationPlus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134469.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Brown granite counters in a Tuscan style kitchen.” - Mark072690</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134470.jpg" style="width:100%"><br>
+<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Shimmery/frosty lipstick. Makes you look like you don’t have lips.” - bunnies_and_birdies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134471.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Thin brows . I do brows for a living, and the thick brow look didn’t get popular until about 2014.” - Samoanaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134472.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Subprime mortgages.” - Molongoloid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134473.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Popped Collars apparently? A friend had a polo where underneath the collar it said POP THIS. It was the epitome of douchy clothing.” - nobody2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134474.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Ramen noodle hair.” - Jethseter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134475.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Chunky highlights.” - _smitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134476.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Mini skirts over jeans. Layered tops.” - ariseis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134477.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “the pants that said juicy on the back.” - Ineedtoaskthis000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134478.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Remember those girls with bleached hair, orange spray tans, white eye makeup, and glazed donut lips? There was a name for that look, it disappeared completely.” - Coupeonzs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134479.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Applebottom jeans, boots with the furr.” - woodyever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134480.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “If you want to experience any of these trends alive and well, visit a rural trailer park, where trends are stuck 10-30 years in the past. I grew up in the 90s in a trailer park and get nostalgic about the 70s and 80s because thats how it was.” - KingAgrian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134481.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “The “scene” look. Poofy straightened hair, tons of eyeliner, tight clothes etc. Teenage skater me thought girls like that were just the hottest. Also for guys, medium length hair that would kinda flip up to create “wings”. I remember i used to put a fitted hat on right after i got out of the shower to try and create the look. Feel like dudes like Ryan Sheckler really popularized it.” - yourmothersanicelady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134482.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Those hair bumpit things.” - ScientistFromSouth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134483.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “A shit load of hair gel.” - gtr011191</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134484.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Playboy bunny tan outline on your hipbone lol.” - seafoam22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134485.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Von Dutch caps. Oh, team it with a chunky belt over the top of 2 differently coloured long singlets.” - phattoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134486.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “A thong sticking out of low-rise jeans.” - coffeeblossom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134487.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">15 People Whose Age Will Confuse You</a><br>
+## <a href="#linky14" id="linky13">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
 
-<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">24 Depressing Memes For Depressed People</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134081.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
 
