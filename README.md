@@ -1,91 +1,144 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/31/2022-11:11:31
+Last updated: 03/31/2022-12:11:32
 <br>
-## <a href="#linky2" id="linky1">15 People Whose Age Will Confuse You</a><br>
+## <a href="#linky2" id="linky1">16 Guides You Might Find Useful</a><br>
 
-<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134593.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Different lumber flaws</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. How to operate Big Bird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134602.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134592.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Windsocks can also tell you the speed of the wind based on where they sag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134606.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">26 Things That Are Really Awesome</a><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Someone bought me Lego highlighters. You can stick them together and it’s remarkably satisfying.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123308/87134274/87133386.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">25 Subtle Signs That Someone Is Filthy Rich</a><br>
 
-<span style="font-size:4em">2. “Came across a typewriter for writing music.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132669.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
+
+-u/monkeyfeets
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Turned my TV into a Nintendo switch.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134270/87133363.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Not hesitating to eat in a restaurant with no prices on the menu.
+
+-u/baloneycologne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. ’’I can’t unsee the chihuahua’s face on this bread.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123220/87134268/87130932.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I cleaned huge houses for a living, and to me, it was the custom-built Lego rooms with cabinets -floor to ceiling -full of organized lego sets.
+
+-u/EddieLaneWrites</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “This Lego schematic at my doctor’s office.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123331/87134277/87133391.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Not knowing the price of everyday stuff, like groceries or electricity.
+
+-u/Myble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. ’’I opened my pill bottle and this is how the pills were lined up in the opening.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123222/87134269/87130933.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Friend of mine used to run a ridiculously exclusive cocktail bar. He always said The ones in the fancy clothes who look filthy rich are normally reasonably wealthy. The ones in jeans and t-shirts who look normal are normally filthy rich
+
+Basically, the truly rich people didnt see the place as anything out of the ordinary, so saw no reason to dress up.
+
+-u/DendroNate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. ’’My dog learned how to use the doorbell.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134271/87130944.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Paying for everyone’s food/ picking up the tab (when done in a passive and nonchalant way).
+
+-u/Everyday_a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Rainbow rose made from dried acrylic paint skins.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123245/87134272/87133374.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If you use money to get time instead of time to get money
+
+-u/spyplusplus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123256/87134273/87133367.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Suspicious amounts of free time to pursue their interests, travel, or just be out and about.
+
+-u/dildonic_aftermath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My wife told me to make a craft with our 6-year-old son. 40 hours later. Papier Mache.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123319/87134275/87133389.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Spontaneity. Just talking about something or some place and doing it or booking it there and then.
+
+-u/evilgiraffee57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Jellybean does not like the cone of shame. He tolerates the flower of protection.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123328/87134276/87133387.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Alan Clarke, a British politician born into a wealthy family, once disparaged someone by describing them as the sort of person who bought all his own furniture.
+
+-u/BobbyP27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “This chunk of bismuth I got today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132673.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I know its not a big thing, but people who use really nice plates and silver cutlery very casually. Ive seen poor people with mustangs. But Ive never seen poor people eating with polished silver.
+
+-u/garlicroastedpotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “This Glass Car I Found Buried in the Dirt in My Yard.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132668.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Going somewhere pricey and not looking at the total before you pay.
+
+-u/Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133216.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “A stop sign in my town is so old it’s become a death metal band logo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132670.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Owning a second house or a boat and not feeling obligated to use it heavily.
+
+-u/zMargeux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “This bird laid an egg on my window sill.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132671.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. A Steinway concert grand piano in the living room (worth about $195,000) that no one in the household plays.
+
+-u/Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My gardening tool kit came with a claw glove.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132672.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Retired with no debt before being in your 50s
+
+-u/Melodic_Machine_9818</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “This guy makes pizza using volcanic vents on the Volcán de Pacaya in Guatemala.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132675.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. A family member owns a lake house but always refers to it as “just a little weekend place” like it’s no big deal and everyone has one.
+
+-u/samiam871</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Food is allowed in the library at my college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132677.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. No logos on their clothes, but very well-fitted (tailored) and pressed/cleaned.
+
+-u/328944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “This bush that looks like Pikachu.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132679.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I used to know the price of a gallon of milk but now I don’t. I am not rich, but I used to be poor. I needed to know that price. Now we are blessed to have enough that if I need it, I just grab it without looking at the price tag I imagine that being rich would be similar but on a grander scale.
+
+-u/ilyatwttmab</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “I got three fortune cookies baked into one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132680.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. I work in the private jet world. Rich takes tons of photos getting on the plane. Real money just walks straight onto the plane.
+
+-u/Clumsymax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “These frog earrings i own.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132674.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Rocking socks and flops but sporting a 200k watch
+
+-u/pah23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Truck converted tesla I saw on the way home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132682.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Perfect teeth. It’s always the perfect teeth.
+
+-u/GreatXs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “My cat looks like a deer trophy here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132683.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Maybe not quietly, but being able to afford college without loans, financial aid, or having a job screams money. Bonus points if the parents are bankrolling the whole experience.
+
+-u/mcmcsample</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “This cute baby clementine inside a regular one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132686.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Using the word Summer as a verb
+
+-u/ikindalold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Parent’s dog on near identical rug.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132687.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Having a live-in housekeeper/nanny.
+
+-u/Obstetrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133228.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “My friends baby has a full head of hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132688.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
+Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Photoshop Fails by the People of Cringeville</a><br>
 
@@ -139,49 +192,7 @@ Last updated: 03/31/2022-11:11:31
 
 <span style="font-size:4em">25. Sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134168.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
-
-<span style="font-size:4em">1. “Dudes with spiky bleached hair.” - PlaystationPlus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Brown granite counters in a Tuscan style kitchen.” - Mark072690</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Shimmery/frosty lipstick. Makes you look like you don’t have lips.” - bunnies_and_birdies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Thin brows . I do brows for a living, and the thick brow look didn’t get popular until about 2014.” - Samoanaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Subprime mortgages.” - Molongoloid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Popped Collars apparently? A friend had a polo where underneath the collar it said POP THIS. It was the epitome of douchy clothing.” - nobody2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Ramen noodle hair.” - Jethseter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Chunky highlights.” - _smitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Mini skirts over jeans. Layered tops.” - ariseis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “the pants that said juicy on the back.” - Ineedtoaskthis000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Remember those girls with bleached hair, orange spray tans, white eye makeup, and glazed donut lips? There was a name for that look, it disappeared completely.” - Coupeonzs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Applebottom jeans, boots with the furr.” - woodyever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “If you want to experience any of these trends alive and well, visit a rural trailer park, where trends are stuck 10-30 years in the past. I grew up in the 90s in a trailer park and get nostalgic about the 70s and 80s because thats how it was.” - KingAgrian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “The “scene” look. Poofy straightened hair, tons of eyeliner, tight clothes etc. Teenage skater me thought girls like that were just the hottest. Also for guys, medium length hair that would kinda flip up to create “wings”. I remember i used to put a fitted hat on right after i got out of the shower to try and create the look. Feel like dudes like Ryan Sheckler really popularized it.” - yourmothersanicelady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Those hair bumpit things.” - ScientistFromSouth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “A shit load of hair gel.” - gtr011191</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Playboy bunny tan outline on your hipbone lol.” - seafoam22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Von Dutch caps. Oh, team it with a chunky belt over the top of 2 differently coloured long singlets.” - phattoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “A thong sticking out of low-rise jeans.” - coffeeblossom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">24 Depressing Memes For Depressed People</a><br>
+## <a href="#linky5" id="linky4">24 Depressing Memes For Depressed People</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134062.jpg" style="width:100%"><br>
 
@@ -231,49 +242,39 @@ Last updated: 03/31/2022-11:11:31
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134081.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
+## <a href="#linky6" id="linky5">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
 
-<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
 
-<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">25 Things That Were Designed By Jerks</a><br>
+## <a href="#linky7" id="linky6">25 Things That Were Designed By Jerks</a><br>
 
 <span style="font-size:4em">1. “The strawberry syrup is painted on the cup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133608.jpg" style="width:100%"><br>
 
@@ -325,7 +326,7 @@ Last updated: 03/31/2022-11:11:31
 
 <span style="font-size:4em">25. “One dryer sheet has always been enough for me. Just seems like they want me to use more so I have to buy more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133628.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+## <a href="#linky8" id="linky7">15 Awful People Giving Their Countries Bad Reputations  </a><br>
 
 <span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
 
@@ -356,6 +357,48 @@ Last updated: 03/31/2022-11:11:31
 <span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
+
+<span style="font-size:4em">1. “Dudes with spiky bleached hair.” - PlaystationPlus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Brown granite counters in a Tuscan style kitchen.” - Mark072690</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Shimmery/frosty lipstick. Makes you look like you don’t have lips.” - bunnies_and_birdies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Thin brows . I do brows for a living, and the thick brow look didn’t get popular until about 2014.” - Samoanaa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Subprime mortgages.” - Molongoloid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Popped Collars apparently? A friend had a polo where underneath the collar it said POP THIS. It was the epitome of douchy clothing.” - nobody2000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Ramen noodle hair.” - Jethseter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Chunky highlights.” - _smitten</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Mini skirts over jeans. Layered tops.” - ariseis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “the pants that said juicy on the back.” - Ineedtoaskthis000000</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Remember those girls with bleached hair, orange spray tans, white eye makeup, and glazed donut lips? There was a name for that look, it disappeared completely.” - Coupeonzs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Applebottom jeans, boots with the furr.” - woodyever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “If you want to experience any of these trends alive and well, visit a rural trailer park, where trends are stuck 10-30 years in the past. I grew up in the 90s in a trailer park and get nostalgic about the 70s and 80s because thats how it was.” - KingAgrian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “The “scene” look. Poofy straightened hair, tons of eyeliner, tight clothes etc. Teenage skater me thought girls like that were just the hottest. Also for guys, medium length hair that would kinda flip up to create “wings”. I remember i used to put a fitted hat on right after i got out of the shower to try and create the look. Feel like dudes like Ryan Sheckler really popularized it.” - yourmothersanicelady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Those hair bumpit things.” - ScientistFromSouth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “A shit load of hair gel.” - gtr011191</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Playboy bunny tan outline on your hipbone lol.” - seafoam22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Von Dutch caps. Oh, team it with a chunky belt over the top of 2 differently coloured long singlets.” - phattoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “A thong sticking out of low-rise jeans.” - coffeeblossom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">33 People Who Know How to Funny</a><br>
 
@@ -483,188 +526,229 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">21. FDR didnt really care who his Vice President was during his last term even though he was practically already dying. Party officials picked Harry Truman and FDR almost never included him in any decision-making even after they were elected. When FDR died a couple of months into their term, Truman wasnt really in the loop on what exactly was happening with the executive branch and ending WWII. A couple of months later he dropped the atomic bombs on Japan.-u/ProbablyaDrugDealer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134633.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
+## <a href="#linky12" id="linky11">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135515.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135520.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135523.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135524.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135530.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Subtle Signs That Someone Is Filthy Rich</a><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
-
--u/monkeyfeets
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133205.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Not hesitating to eat in a restaurant with no prices on the menu.
-
--u/baloneycologne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133206.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I cleaned huge houses for a living, and to me, it was the custom-built Lego rooms with cabinets -floor to ceiling -full of organized lego sets.
-
--u/EddieLaneWrites</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133207.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Not knowing the price of everyday stuff, like groceries or electricity.
-
--u/Myble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133208.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Friend of mine used to run a ridiculously exclusive cocktail bar. He always said The ones in the fancy clothes who look filthy rich are normally reasonably wealthy. The ones in jeans and t-shirts who look normal are normally filthy rich
-
-Basically, the truly rich people didnt see the place as anything out of the ordinary, so saw no reason to dress up.
-
--u/DendroNate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133209.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Paying for everyone’s food/ picking up the tab (when done in a passive and nonchalant way).
-
--u/Everyday_a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133210.jpg" style="width:100%"><br>
+## <a href="#linky13" id="linky12">Two-Line Horror Stories That Are Short but Not So Sweet</a><br>
 
-<span style="font-size:4em">7. If you use money to get time instead of time to get money
-
--u/spyplusplus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133211.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Suspicious amounts of free time to pursue their interests, travel, or just be out and about.
-
--u/dildonic_aftermath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133212.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Spontaneity. Just talking about something or some place and doing it or booking it there and then.
-
--u/evilgiraffee57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133213.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Alan Clarke, a British politician born into a wealthy family, once disparaged someone by describing them as the sort of person who bought all his own furniture.
-
--u/BobbyP27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133214.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I know its not a big thing, but people who use really nice plates and silver cutlery very casually. Ive seen poor people with mustangs. But Ive never seen poor people eating with polished silver.
-
--u/garlicroastedpotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133215.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Going somewhere pricey and not looking at the total before you pay.
-
--u/Bird_Brain4101112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133216.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Owning a second house or a boat and not feeling obligated to use it heavily.
-
--u/zMargeux</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133217.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A Steinway concert grand piano in the living room (worth about $195,000) that no one in the household plays.
-
--u/Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133218.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Retired with no debt before being in your 50s
-
--u/Melodic_Machine_9818</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133219.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A family member owns a lake house but always refers to it as “just a little weekend place” like it’s no big deal and everyone has one.
-
--u/samiam871</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133220.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. No logos on their clothes, but very well-fitted (tailored) and pressed/cleaned.
-
--u/328944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133221.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I used to know the price of a gallon of milk but now I don’t. I am not rich, but I used to be poor. I needed to know that price. Now we are blessed to have enough that if I need it, I just grab it without looking at the price tag I imagine that being rich would be similar but on a grander scale.
-
--u/ilyatwttmab</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133222.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. I work in the private jet world. Rich takes tons of photos getting on the plane. Real money just walks straight onto the plane.
-
--u/Clumsymax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133223.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Rocking socks and flops but sporting a 200k watch
-
--u/pah23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133224.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Perfect teeth. It’s always the perfect teeth.
-
--u/GreatXs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133225.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Maybe not quietly, but being able to afford college without loans, financial aid, or having a job screams money. Bonus points if the parents are bankrolling the whole experience.
-
--u/mcmcsample</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133226.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Using the word Summer as a verb
-
--u/ikindalold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133227.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Having a live-in housekeeper/nanny.
-
--u/Obstetrix</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87133228.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
-Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135976.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">The Top 20 Most Hated Celebrities According To Reddit</a><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Epstein, Ghislaine Maxwell and everyone who knew what they were doing.” - Ralphsnacks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134411.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">15 People Whose Age Will Confuse You</a><br>
 
-<span style="font-size:4em">2. “Bryan Singer. The X-Men movies are okay, but he has 15 allegations of predatory child abuse.” - Batmanlover1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134412.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Gary Glitter can burn in hell with Jimmy Savile. Lets also throw in Prince Andrew for good measure.” - BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134413.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “If being on TV qualifies, then Pat Robertson. What a disgusting human being.” - asdf072</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134414.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Wendy Williams” - razorh00f “ She dragged a murdered tiktoker and asked how he had more followers than her.” - Kpopboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134415.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “That R. Kelly prick.” - Doodle_Brush</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134416.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “O.J. Simpson, guy literally wrote a book about how he killed two people and got a away with it.” - jvsearcy08</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134417.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Danny Masterson.” - _maquillage_   “One of the people he raped was the wife of the lead singer of The Mars Volta/At the Drive In. After she accused Masterson of rape their dog was poisoned and died. They got a new dog. That dog was poisoned as well.” - Iamananomoly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134418.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Honestly, Dr. Phil. As entertained as I used to be with his show, I think hes a huge POS.” - sassy-batch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134419.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Chris Brown” - AvocadoDaze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134420.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Jared Leto. Fucking douche canoe. Had to deal with him several times working in a coffeshop, I think about three different years and never changed his attitude so deff his personality. If youre an asshole to people working in service youve got a special place reserved in hell just for you.” - GoodieLil2Shoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134421.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Pretty much any of the megachurch televangelist pastors. Go directly to hell. Do not pass begin. Do not collect $200” - 3VILtoast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134422.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Roman Polanski, Harvey Weinstein and Woody Allen” - Loulabee1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134423.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Steven Seagal. If you don’t know why, just google the man. He’s ridiculous and thinks he’s the most badass person to ever exist when in reality he’s just an oversized mouth breathing turnip.” - HallucinatesOtters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134424.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Jussie Not Suicidal Smollet can go to hell. He didnt just fake a hate crime for publicity, he continued to lie about it through the investigation and a very public trial where a jury found him guilty of faking a hate crime. Then, at his sentencing (where he was sentenced to a fraction of the time he was eligible for) he shouted IM NOT SUICIDAL! as if he expected to die in jail. And his whole family can fuck right off too as they continue to participate in the lie and have started sharing the hashtag Free Jussie as if hes some kind of political prisoner and not the victim of his own criminal narcissism. So Jussie Smollet and the entire Smollet clan can just go. to. Hell.” - Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134425.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Gwyneth Paltrow. She’s a boring actress with a huge ego who thinks that selling pseudo scientific “alternative treatments” is acceptable. She sells cardigans for thousands of dollars to chumps who don’t know any better, and claims that shoving porous rocks up your vag is healthy. Plus she barely donates to charity despite owning this incredibly profitable scam business, and from what I understand she never donates above what she can claim back on tax, clearly as a way to gain easy clout. She’s a leach and a great example of everything bad with modern consumerism” - chickensmoker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134426.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Jake Paul. Incredibly annoying” - AccomplishedFix5207</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134427.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">31 Dank Memes We Found Living Out of Their Car </a><br>
 
-<span style="font-size:4em">18. “Ellen DeGeneres. Shes a f***ing a**hole and treats people like sh*t on her show. When there was a rumor about Mariah Carey being pregnant, she forced her to confess on her show. She peer pressured her to drink alcohol on the show to prove she was not pregnant. Two weeks later she miscarries, Can you imagine how f**king guilty Mariah must have felt? She also put Dakota Johnson on blast by saying Ellen was not invited to her birthday, but Ellen was invited and Dakota called her out on her shit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134428.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133896.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134429.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133897.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Nick Cannon. He’s a spiteful, racist ass person and people really don’t call him out on it” - sovietsoaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134430.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133898.jpeg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">47 Awesome Images Meant to Please</a><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133899.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133900.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133901.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133902.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133903.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133904.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133905.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133907.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133908.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133909.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133910.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133911.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133913.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133914.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133915.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133916.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133917.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133918.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133919.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133920.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133921.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133922.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133923.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133924.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133926.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
+
+<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">47 Awesome Images Meant to Please</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133928.jpg" style="width:100%"><br>
 
@@ -760,65 +844,47 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133974.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">31 Dank Memes We Found Living Out of Their Car </a><br>
+## <a href="#linky18" id="linky17">The Top 20 Most Hated Celebrities According To Reddit</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133896.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. “Epstein, Ghislaine Maxwell and everyone who knew what they were doing.” - Ralphsnacks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133897.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. “Bryan Singer. The X-Men movies are okay, but he has 15 allegations of predatory child abuse.” - Batmanlover1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133898.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. “Gary Glitter can burn in hell with Jimmy Savile. Lets also throw in Prince Andrew for good measure.” - BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133899.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. “If being on TV qualifies, then Pat Robertson. What a disgusting human being.” - asdf072</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133900.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. “Wendy Williams” - razorh00f “ She dragged a murdered tiktoker and asked how he had more followers than her.” - Kpopboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133901.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. “That R. Kelly prick.” - Doodle_Brush</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133902.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. “O.J. Simpson, guy literally wrote a book about how he killed two people and got a away with it.” - jvsearcy08</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133903.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. “Danny Masterson.” - _maquillage_   “One of the people he raped was the wife of the lead singer of The Mars Volta/At the Drive In. After she accused Masterson of rape their dog was poisoned and died. They got a new dog. That dog was poisoned as well.” - Iamananomoly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133904.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. “Honestly, Dr. Phil. As entertained as I used to be with his show, I think hes a huge POS.” - sassy-batch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133905.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. “Chris Brown” - AvocadoDaze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133906.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Jared Leto. Fucking douche canoe. Had to deal with him several times working in a coffeshop, I think about three different years and never changed his attitude so deff his personality. If youre an asshole to people working in service youve got a special place reserved in hell just for you.” - GoodieLil2Shoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133907.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. “Pretty much any of the megachurch televangelist pastors. Go directly to hell. Do not pass begin. Do not collect $200” - 3VILtoast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133908.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. “Roman Polanski, Harvey Weinstein and Woody Allen” - Loulabee1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133909.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Steven Seagal. If you don’t know why, just google the man. He’s ridiculous and thinks he’s the most badass person to ever exist when in reality he’s just an oversized mouth breathing turnip.” - HallucinatesOtters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133910.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. “Jussie Not Suicidal Smollet can go to hell. He didnt just fake a hate crime for publicity, he continued to lie about it through the investigation and a very public trial where a jury found him guilty of faking a hate crime. Then, at his sentencing (where he was sentenced to a fraction of the time he was eligible for) he shouted IM NOT SUICIDAL! as if he expected to die in jail. And his whole family can fuck right off too as they continue to participate in the lie and have started sharing the hashtag Free Jussie as if hes some kind of political prisoner and not the victim of his own criminal narcissism. So Jussie Smollet and the entire Smollet clan can just go. to. Hell.” - Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133911.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. “Gwyneth Paltrow. She’s a boring actress with a huge ego who thinks that selling pseudo scientific “alternative treatments” is acceptable. She sells cardigans for thousands of dollars to chumps who don’t know any better, and claims that shoving porous rocks up your vag is healthy. Plus she barely donates to charity despite owning this incredibly profitable scam business, and from what I understand she never donates above what she can claim back on tax, clearly as a way to gain easy clout. She’s a leach and a great example of everything bad with modern consumerism” - chickensmoker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133912.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Jake Paul. Incredibly annoying” - AccomplishedFix5207</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133913.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. “Ellen DeGeneres. Shes a f***ing a**hole and treats people like sh*t on her show. When there was a rumor about Mariah Carey being pregnant, she forced her to confess on her show. She peer pressured her to drink alcohol on the show to prove she was not pregnant. Two weeks later she miscarries, Can you imagine how f**king guilty Mariah must have felt? She also put Dakota Johnson on blast by saying Ellen was not invited to her birthday, but Ellen was invited and Dakota called her out on her shit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133914.jpeg" style="width:100%"><br>
+<span style="font-size:4em">
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133915.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133916.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133917.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133918.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133919.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133920.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133921.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133922.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133923.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133924.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133926.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Nick Cannon. He’s a spiteful, racist ass person and people really don’t call him out on it” - sovietsoaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134430.jpg" style="width:100%"><br>
 
