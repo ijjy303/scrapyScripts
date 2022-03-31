@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 03/31/2022-06:11:31
+Last updated: 03/31/2022-07:11:31
 <br>
 ## <a href="#linky2" id="linky1">34 Funny Signs That Are Useless</a><br>
 
@@ -71,7 +71,73 @@ Last updated: 03/31/2022-06:11:31
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134205.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Subtle Signs That Someone Is Filthy Rich</a><br>
+## <a href="#linky3" id="linky2">33 People Who Know How to Funny</a><br>
+
+<span style="font-size:4em">1. “Got my hair cut and ended up looking like Garth from Wayne’s World.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Don’t melt yourself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135091.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The Mushroom music band”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Rockachu”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “When someone tells me I wear too much makeup”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Playing around with my 2-month-old beard and my 8-year-old son”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My daughter is selling chocolate for a fundraiser. I told her to leave me a note to remind me to grab a box to sell at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Today, I witnessed the miracle of birth on the way home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Our IT guy just sent us a picture of him in his youth. Some people are destined.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I just started a new job where I (Annie) sit between an Ann and an Anna. So I cross-stitched a direction sign.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “When I’m too cool to follow instructions”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My boyfriend wore a mustache and a vintage style swimsuit the ENTIRE time we were at a waterpark.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “They should’ve been more specific when they said to bring a mask.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Used my phone’s red-eye elimination feature and I think my freckles confused it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Decided to spoof my son’s Facebook profile photo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Florida man”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found this building in Ho Chi Minh City, Vietnam.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Bravo!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Canadian graffiti”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Dogs own the truck!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Walmart is getting real honest with inflation these days.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A tree fell against my house yesterday. Today this guy came to the rescue!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Renaissance gains!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “My friend grew a giant beard, shaved exactly half of it off and applied makeup to half of his face to take this driver’s license picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Done without a calculator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Someone putting stickers on dumpsters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This little bottle of coke”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Had this shower curtain custom made for our first wedding anniversary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “These Bounty rolls are fancy now!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “Local Mexican restaurant used to be a Chinese restaurant. They put sombreros on the pandas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “Someone got a few balls stuck in a tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “My dad asked me if I wanted an egg sandwich. I’m not even mad, this is genius!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135108.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Subtle Signs That Someone Is Filthy Rich</a><br>
 
 <span style="font-size:4em">1. Have a friend who is moving to the Bay area. To work for a non-profit. Part-time. She didnt know what her salary would be.
 
@@ -176,73 +242,57 @@ Basically, the truly rich people didnt see the place as anything out of the ordi
 <span style="font-size:4em">25. I was out with a few friends of friends last year, and I was talking about how I was going to be forced out of the area I live because rent prices have increased by 15-20% in the last 12 months. One of the group piped up with the sincere, but dumb as f*ck, suggestion, Why not just buy your own house?
 Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/28/023854/87133420/0.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">33 People Who Know How to Funny</a><br>
+## <a href="#linky5" id="linky4">24 Posts You Will Not See Coming</a><br>
 
-<span style="font-size:4em">1. “Got my hair cut and ended up looking like Garth from Wayne’s World.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135087.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Don’t melt yourself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135091.png" style="width:100%"><br>
+<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The Mushroom music band”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135092.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Rockachu”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135097.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “When someone tells me I wear too much makeup”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135077.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Playing around with my 2-month-old beard and my 8-year-old son”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135079.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My daughter is selling chocolate for a fundraiser. I told her to leave me a note to remind me to grab a box to sell at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135080.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Today, I witnessed the miracle of birth on the way home from work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135081.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Our IT guy just sent us a picture of him in his youth. Some people are destined.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135082.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I just started a new job where I (Annie) sit between an Ann and an Anna. So I cross-stitched a direction sign.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135083.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “When I’m too cool to follow instructions”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135084.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My boyfriend wore a mustache and a vintage style swimsuit the ENTIRE time we were at a waterpark.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135085.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “They should’ve been more specific when they said to bring a mask.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135086.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Used my phone’s red-eye elimination feature and I think my freckles confused it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135078.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Decided to spoof my son’s Facebook profile photo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135088.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Florida man”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135089.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Found this building in Ho Chi Minh City, Vietnam.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135090.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Bravo!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135093.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Canadian graffiti”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135094.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Dogs own the truck!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135095.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Walmart is getting real honest with inflation these days.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135096.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “A tree fell against my house yesterday. Today this guy came to the rescue!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135098.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Renaissance gains!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135099.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “My friend grew a giant beard, shaved exactly half of it off and applied makeup to half of his face to take this driver’s license picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135100.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Done without a calculator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Someone putting stickers on dumpsters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This little bottle of coke”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Had this shower curtain custom made for our first wedding anniversary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “These Bounty rolls are fancy now!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “Local Mexican restaurant used to be a Chinese restaurant. They put sombreros on the pandas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “Someone got a few balls stuck in a tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “My dad asked me if I wanted an egg sandwich. I’m not even mad, this is genius!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135108.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">47 Awesome Images Meant to Please</a><br>
+## <a href="#linky6" id="linky5">47 Awesome Images Meant to Please</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133928.jpg" style="width:100%"><br>
 
@@ -338,101 +388,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87133974.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
-
-<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">30 Photoshop Fails by the People of Cringeville</a><br>
-
-<span style="font-size:4em">1. When you try to look like an anime character. With two different-sized legs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. If this isnt photoshop then at least a few conspiracy theories are probably real. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. You cant edit out crazy-eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. More is less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. You might as well just yoink a photo off google at that point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. When Photoshop makes you look weird -- but only in a different way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When your body is simultaneously in three different lighting setups. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Why ruin a good thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. When she demands to speak to Earths leaders. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You cant Photoshop out visible unhappiness. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When even the time of days gotta go. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Honestly, this one is actually impressive. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134168.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">31 Dank Memes We Found Living Out of Their Car </a><br>
+## <a href="#linky7" id="linky6">31 Dank Memes We Found Living Out of Their Car </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133896.jpeg" style="width:100%"><br>
 
@@ -494,7 +450,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87133926.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
+## <a href="#linky8" id="linky7">20 Things That Were Hot in the Aughts but Aren’t Anymore</a><br>
 
 <span style="font-size:4em">1. “Dudes with spiky bleached hair.” - PlaystationPlus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134469.jpg" style="width:100%"><br>
 
@@ -536,7 +492,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">20. “Having the smallest cell phone. The Motorola Razr was one of the smallest at the time, but when smartphones started coming out, the need for screen real estate started the trend for larger phones.” - draiman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134488.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">24 Depressing Memes For Depressed People</a><br>
+## <a href="#linky9" id="linky8">24 Depressing Memes For Depressed People</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134062.jpg" style="width:100%"><br>
 
@@ -586,7 +542,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134081.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
+## <a href="#linky10" id="linky9">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
 
@@ -618,7 +574,7 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Things That Were Designed By Jerks</a><br>
+## <a href="#linky11" id="linky10">25 Things That Were Designed By Jerks</a><br>
 
 <span style="font-size:4em">1. “The strawberry syrup is painted on the cup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133608.jpg" style="width:100%"><br>
 
@@ -670,7 +626,83 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">25. “One dryer sheet has always been enough for me. Just seems like they want me to use more so I have to buy more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133628.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">27 Fresh Memes From the Dank Side of the Tracks</a><br>
+## <a href="#linky12" id="linky11">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+
+<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">The Top 20 Most Hated Celebrities According To Reddit</a><br>
+
+<span style="font-size:4em">1. “Epstein, Ghislaine Maxwell and everyone who knew what they were doing.” - Ralphsnacks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Bryan Singer. The X-Men movies are okay, but he has 15 allegations of predatory child abuse.” - Batmanlover1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Gary Glitter can burn in hell with Jimmy Savile. Lets also throw in Prince Andrew for good measure.” - BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “If being on TV qualifies, then Pat Robertson. What a disgusting human being.” - asdf072</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Wendy Williams” - razorh00f “ She dragged a murdered tiktoker and asked how he had more followers than her.” - Kpopboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “That R. Kelly prick.” - Doodle_Brush</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “O.J. Simpson, guy literally wrote a book about how he killed two people and got a away with it.” - jvsearcy08</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Danny Masterson.” - _maquillage_   “One of the people he raped was the wife of the lead singer of The Mars Volta/At the Drive In. After she accused Masterson of rape their dog was poisoned and died. They got a new dog. That dog was poisoned as well.” - Iamananomoly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Honestly, Dr. Phil. As entertained as I used to be with his show, I think hes a huge POS.” - sassy-batch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Chris Brown” - AvocadoDaze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Jared Leto. Fucking douche canoe. Had to deal with him several times working in a coffeshop, I think about three different years and never changed his attitude so deff his personality. If youre an asshole to people working in service youve got a special place reserved in hell just for you.” - GoodieLil2Shoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Pretty much any of the megachurch televangelist pastors. Go directly to hell. Do not pass begin. Do not collect $200” - 3VILtoast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Roman Polanski, Harvey Weinstein and Woody Allen” - Loulabee1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Steven Seagal. If you don’t know why, just google the man. He’s ridiculous and thinks he’s the most badass person to ever exist when in reality he’s just an oversized mouth breathing turnip.” - HallucinatesOtters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Jussie Not Suicidal Smollet can go to hell. He didnt just fake a hate crime for publicity, he continued to lie about it through the investigation and a very public trial where a jury found him guilty of faking a hate crime. Then, at his sentencing (where he was sentenced to a fraction of the time he was eligible for) he shouted IM NOT SUICIDAL! as if he expected to die in jail. And his whole family can fuck right off too as they continue to participate in the lie and have started sharing the hashtag Free Jussie as if hes some kind of political prisoner and not the victim of his own criminal narcissism. So Jussie Smollet and the entire Smollet clan can just go. to. Hell.” - Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Gwyneth Paltrow. She’s a boring actress with a huge ego who thinks that selling pseudo scientific “alternative treatments” is acceptable. She sells cardigans for thousands of dollars to chumps who don’t know any better, and claims that shoving porous rocks up your vag is healthy. Plus she barely donates to charity despite owning this incredibly profitable scam business, and from what I understand she never donates above what she can claim back on tax, clearly as a way to gain easy clout. She’s a leach and a great example of everything bad with modern consumerism” - chickensmoker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Jake Paul. Incredibly annoying” - AccomplishedFix5207</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Ellen DeGeneres. Shes a f***ing a**hole and treats people like sh*t on her show. When there was a rumor about Mariah Carey being pregnant, she forced her to confess on her show. She peer pressured her to drink alcohol on the show to prove she was not pregnant. Two weeks later she miscarries, Can you imagine how f**king guilty Mariah must have felt? She also put Dakota Johnson on blast by saying Ellen was not invited to her birthday, but Ellen was invited and Dakota called her out on her shit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Nick Cannon. He’s a spiteful, racist ass person and people really don’t call him out on it” - sovietsoaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134430.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">27 Fresh Memes From the Dank Side of the Tracks</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
 
@@ -720,187 +752,49 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+## <a href="#linky15" id="linky14">20 People Guess What They Think Is at the Center of a Blackhole</a><br>
 
-<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The center is probably just enormously dense layers of pure electrons or something (I think there was some physics video PBS SpaceTime put out on this). Eventually things get so dense that the ionized plasma is shot out and away. No dimensional door. No hole. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
+<span style="font-size:4em">Really black holes act like giant recycling machines in what is starting to look like a fundamentally eternal universe. Collecting matter and converting it back into energy, only for that to seed more matter creation elsewhere in the universe given the jetted material.” -cemomusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “One singular dense unit of gravity. Scientists call it the G-spot.” -TIFUstorytime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “There are also theoretical white holes: a hypothetical celestial object that expands outward from a space-time singularity and emits energy, in the manner of a time-reversed black hole.” -Back2Bach</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “The last nerf gun bullet, my left sock, the avatar...take your pick.” -not_jeff_sokol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My theory is that were inside a giant rectum and when you enter da black hole you come out the other side like a mini turd.” -MyDickFeelsLikeWood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Probably someone trying to reach you about your cars extended warranty.” -Gummywormlover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Nougat.” -shanvanvook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “A chewy chocolate center.” -gordonf23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Singularity that, if entered, will suck you into an event horizon and then deposit you into the fucked up hellscape that is the movie Event Horizon. Or deposits you into the world of Warhammer: 40K and makes your life a plaything for crazy chaos gods. So all in all, a pretty rad time.” -GlobtheGuyintheSky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Probably a Starbucks.” -TorchesLightTheWay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “The constants of the universe probably get compressed or something, and then a new universe is made.” -LiveClimbRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Yo mama.” -UltimaBahamut93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Putins heart.” -protection7766</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Matthew McConaughey.” -donaldtrumpshearts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134533.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">The Top 20 Most Hated Celebrities According To Reddit</a><br>
+<span style="font-size:4em">15. “Another universe with its own black holes, which have yet their own universes, and so on.” -ind3pend0nt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Epstein, Ghislaine Maxwell and everyone who knew what they were doing.” - Ralphsnacks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134411.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Obamas last name.” -PhantomSparx09</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Bryan Singer. The X-Men movies are okay, but he has 15 allegations of predatory child abuse.” - Batmanlover1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134412.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Source code for half life three?” -TXblindman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Gary Glitter can burn in hell with Jimmy Savile. Lets also throw in Prince Andrew for good measure.” - BlackLetterLies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134413.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A working McDonald’s ice cream machine.” -PoorLifeChoices811</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “If being on TV qualifies, then Pat Robertson. What a disgusting human being.” - asdf072</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134414.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “I think its a portal to a new place or a endless void.” -Silver_GhostPixelz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Wendy Williams” - razorh00f “ She dragged a murdered tiktoker and asked how he had more followers than her.” - Kpopboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “That R. Kelly prick.” - Doodle_Brush</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “O.J. Simpson, guy literally wrote a book about how he killed two people and got a away with it.” - jvsearcy08</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Danny Masterson.” - _maquillage_   “One of the people he raped was the wife of the lead singer of The Mars Volta/At the Drive In. After she accused Masterson of rape their dog was poisoned and died. They got a new dog. That dog was poisoned as well.” - Iamananomoly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Honestly, Dr. Phil. As entertained as I used to be with his show, I think hes a huge POS.” - sassy-batch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Chris Brown” - AvocadoDaze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Jared Leto. Fucking douche canoe. Had to deal with him several times working in a coffeshop, I think about three different years and never changed his attitude so deff his personality. If youre an asshole to people working in service youve got a special place reserved in hell just for you.” - GoodieLil2Shoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Pretty much any of the megachurch televangelist pastors. Go directly to hell. Do not pass begin. Do not collect $200” - 3VILtoast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Roman Polanski, Harvey Weinstein and Woody Allen” - Loulabee1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Steven Seagal. If you don’t know why, just google the man. He’s ridiculous and thinks he’s the most badass person to ever exist when in reality he’s just an oversized mouth breathing turnip.” - HallucinatesOtters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Jussie Not Suicidal Smollet can go to hell. He didnt just fake a hate crime for publicity, he continued to lie about it through the investigation and a very public trial where a jury found him guilty of faking a hate crime. Then, at his sentencing (where he was sentenced to a fraction of the time he was eligible for) he shouted IM NOT SUICIDAL! as if he expected to die in jail. And his whole family can fuck right off too as they continue to participate in the lie and have started sharing the hashtag Free Jussie as if hes some kind of political prisoner and not the victim of his own criminal narcissism. So Jussie Smollet and the entire Smollet clan can just go. to. Hell.” - Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Gwyneth Paltrow. She’s a boring actress with a huge ego who thinks that selling pseudo scientific “alternative treatments” is acceptable. She sells cardigans for thousands of dollars to chumps who don’t know any better, and claims that shoving porous rocks up your vag is healthy. Plus she barely donates to charity despite owning this incredibly profitable scam business, and from what I understand she never donates above what she can claim back on tax, clearly as a way to gain easy clout. She’s a leach and a great example of everything bad with modern consumerism” - chickensmoker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Jake Paul. Incredibly annoying” - AccomplishedFix5207</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Ellen DeGeneres. Shes a f***ing a**hole and treats people like sh*t on her show. When there was a rumor about Mariah Carey being pregnant, she forced her to confess on her show. She peer pressured her to drink alcohol on the show to prove she was not pregnant. Two weeks later she miscarries, Can you imagine how f**king guilty Mariah must have felt? She also put Dakota Johnson on blast by saying Ellen was not invited to her birthday, but Ellen was invited and Dakota called her out on her shit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Nick Cannon. He’s a spiteful, racist ass person and people really don’t call him out on it” - sovietsoaker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134430.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">26 Things That Are Really Awesome</a><br>
-
-<span style="font-size:4em">1. “Someone bought me Lego highlighters. You can stick them together and it’s remarkably satisfying.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123308/87134274/87133386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Came across a typewriter for writing music.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Turned my TV into a Nintendo switch.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134270/87133363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. ’’I can’t unsee the chihuahua’s face on this bread.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123220/87134268/87130932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “This Lego schematic at my doctor’s office.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123331/87134277/87133391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. ’’I opened my pill bottle and this is how the pills were lined up in the opening.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123222/87134269/87130933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. ’’My dog learned how to use the doorbell.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134271/87130944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Rainbow rose made from dried acrylic paint skins.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123245/87134272/87133374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123256/87134273/87133367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “My wife told me to make a craft with our 6-year-old son. 40 hours later. Papier Mache.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123319/87134275/87133389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Jellybean does not like the cone of shame. He tolerates the flower of protection.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123328/87134276/87133387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This chunk of bismuth I got today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “This Glass Car I Found Buried in the Dirt in My Yard.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A stop sign in my town is so old it’s become a death metal band logo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This bird laid an egg on my window sill.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My gardening tool kit came with a claw glove.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “This guy makes pizza using volcanic vents on the Volcán de Pacaya in Guatemala.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Food is allowed in the library at my college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This bush that looks like Pikachu.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “I got three fortune cookies baked into one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “These frog earrings i own.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Truck converted tesla I saw on the way home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My cat looks like a deer trophy here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This cute baby clementine inside a regular one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Parent’s dog on near identical rug.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “My friends baby has a full head of hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132688.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">24 Posts You Will Not See Coming</a><br>
-
-<span style="font-size:4em">1. When a happy birthday post takes on a hilarious dark yet accidental meaning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A savage burn that took this guy 30 years to figure out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Hopefully this wasnt at a church or community center!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Chris Hansen would like you to take a seat right over there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Probably not the answer they were expecting but hopefully they got a laugh about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Someone has got some splaining to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A funny wait a minute, hold up, moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Thats one way to tell your kid that youre not the father...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hindsight is 20/20.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A touching moment  but in a questionable situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132096.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132098.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132100.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132086.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">30 Tips That May Save Your Life One Day</a><br>
+## <a href="#linky16" id="linky15">30 Tips That May Save Your Life One Day</a><br>
 
 <span style="font-size:4em">1. If you are ever trapped in a car, the headrest pole is made of material that is designed to smash car windows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134026.jpg" style="width:100%"><br>
 
@@ -961,4 +855,110 @@ Cheers pal, never thought of that. </span><br><img src="https://cdn.ebaumsworld.
 <span style="font-size:4em">29. If you ever see square waves in the ocean get out immediately</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134054.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. If a power line falls next to you dont run or walk. Just put your feet together and bunny hop like this. That way the electricity cant go up one leg and down the other.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134055.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">26 Things That Are Really Awesome</a><br>
+
+<span style="font-size:4em">1. “Someone bought me Lego highlighters. You can stick them together and it’s remarkably satisfying.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123308/87134274/87133386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Came across a typewriter for writing music.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Turned my TV into a Nintendo switch.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134270/87133363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. ’’I can’t unsee the chihuahua’s face on this bread.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123220/87134268/87130932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “This Lego schematic at my doctor’s office.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123331/87134277/87133391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. ’’I opened my pill bottle and this is how the pills were lined up in the opening.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123222/87134269/87130933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. ’’My dog learned how to use the doorbell.’’</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123233/87134271/87130944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Rainbow rose made from dried acrylic paint skins.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123245/87134272/87133374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123256/87134273/87133367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My wife told me to make a craft with our 6-year-old son. 40 hours later. Papier Mache.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123319/87134275/87133389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Jellybean does not like the cone of shame. He tolerates the flower of protection.”</span><br><img src="https://cdn.ebaumsworld.com/2022/03/29/123328/87134276/87133387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “This chunk of bismuth I got today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “This Glass Car I Found Buried in the Dirt in My Yard.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A stop sign in my town is so old it’s become a death metal band logo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This bird laid an egg on my window sill.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My gardening tool kit came with a claw glove.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “This guy makes pizza using volcanic vents on the Volcán de Pacaya in Guatemala.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Food is allowed in the library at my college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This bush that looks like Pikachu.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “I got three fortune cookies baked into one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “These frog earrings i own.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Truck converted tesla I saw on the way home.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “My cat looks like a deer trophy here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This cute baby clementine inside a regular one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Parent’s dog on near identical rug.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “My friends baby has a full head of hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87132688.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">30 Photoshop Fails by the People of Cringeville</a><br>
+
+<span style="font-size:4em">1. When you try to look like an anime character. With two different-sized legs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. If this isnt photoshop then at least a few conspiracy theories are probably real. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. You cant edit out crazy-eyes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. More is less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You might as well just yoink a photo off google at that point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When Photoshop makes you look weird -- but only in a different way. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When your body is simultaneously in three different lighting setups. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Why ruin a good thing?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. When she demands to speak to Earths leaders. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You cant Photoshop out visible unhappiness. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. When even the time of days gotta go. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Honestly, this one is actually impressive. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134168.jpg" style="width:100%"><br>
 
