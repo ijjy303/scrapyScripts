@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/01/2022-07:11:31
+Last updated: 04/01/2022-08:11:32
 <br>
 ## <a href="#linky2" id="linky1">33 People Who Know How to Funny</a><br>
 
@@ -67,131 +67,59 @@ Last updated: 04/01/2022-07:11:31
 
 <span style="font-size:4em">32. “My dad asked me if I wanted an egg sandwich. I’m not even mad, this is genius!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135108.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Lois Gibson’s Forensic Sketches Are Insane, Criminals Don’t Stand a Chance</a><br>
+## <a href="#linky3" id="linky2">25 Surprising Examples That Prove Bigger Isn’t Always Better</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136244.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Classroom sizes-u/Catmom7654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136245.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Babies, vaginal birth…-u/Zebrinablue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sketch of a car that lead to an arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136246.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Poop. That sh*t hurt-u/Vegetable-Dealer3639</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136247.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Ego-u/HillariousEasterMAn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136248.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A battle tank. Nazis made such a mistake in WW2.-u/Embarrassed-Guest448</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Facial reconstruction based solely on a skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136249.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Zucchini (like the actual vegetable), they are tastier when smaller-u/Catmom7654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Photo of a 4-year-old boy aged to his late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136258.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. To say something that isnt necessarily obvious: cruise ships. These lumbering behemoths that cruise lines have been building dont really lead to a more enjoyable experience for passengers: theyre overcrowded, impersonal and the desperation to pack in more and more activities actually can make a vacation more stressful. Plus, they are environmental disasters.Small ships tend to offer a much better experience: better service, better food, better itineraries, and an overall more relaxed, more personal time.-u/Boris_Godunov</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136250.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Personal care products. Better quality products tend to be more concentrated or have less filler ingredients, so you need less product for the same results. I notice this with moisturizer especially.-u/smallmammalconcierge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136251.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Lip injections. Man, they look stupid.-u/TouchMint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Facial reconstruction.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136252.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Height. I can no longer right roller coaster due to my height and I need custom shoes and jackets everything because stores dont have them.-u/thefriendlychef1991</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136253.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Penis size, there is such thing as too big, believe me :(-u/pecansandy118</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136254.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Boobs We can’t sleep on our stomachs, even rolling over by accident can hurt (and wake you up in pain, yay!) depending on the time of the month.Also, jogging is an issue, finding button-downs that fit the boobs but also don’t drown the rest of our torsos is an issue, people staring when we attempt to stand up straight is an issue…Yeah, sometimes big boobs suck.-u/HangOnVoltaire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136255.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Mobile phone </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Photo of a 4-year-old aged to her late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136256.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Gap between the teeth-u/Icy_Distance4051</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136257.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A pimple on your forehead-u/Morandangel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136259.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Scalpel, Im pretty sure if my doctor was using a scalpel the size of a machete, thered be some issues.-u/thedialupgamer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. 4-year-old girl aged to her early twenties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136260.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Floppy disk-u/RudegarWithFunnyHat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136261.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Gas prices.-u/twotwo_twentytwo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092928/87136262/face.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Bills-u/crg711</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092939/87136263/stache.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Stars. The giant ones die quickly, the small ones can live for billions of years-u/vinocet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135883.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+<span style="font-size:4em">21. Pill sizes-u/YakCorrect1125</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. The length of silence after you ask someone to marry you-u/TheNewHobbes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Leak in your Roof-u/Sea-Horror-814</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135886.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Kidney stones-u/Unfair-soil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Meteorites.-u/TheHalfDeadCat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">27 Fresh Memes From the Dank Side of the Tracks</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">25 Unbelievable Facts About World War II</a><br>
+## <a href="#linky4" id="linky3">25 Unbelievable Facts About World War II</a><br>
 
 <span style="font-size:4em">1. The Soviet 13th Guards Rifle Division, one of the units in the Battle of Stalingrad, suffered 30% killed in the first day of fighting. Just 320 of the original 10,000 soldiers survived the entire battle.-u/409Narwhal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134609.jpg" style="width:100%"><br>
 
@@ -251,7 +179,7 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">21. FDR didnt really care who his Vice President was during his last term even though he was practically already dying. Party officials picked Harry Truman and FDR almost never included him in any decision-making even after they were elected. When FDR died a couple of months into their term, Truman wasnt really in the loop on what exactly was happening with the executive branch and ending WWII. A couple of months later he dropped the atomic bombs on Japan.-u/ProbablyaDrugDealer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134633.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
+## <a href="#linky5" id="linky4">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135515.png" style="width:100%"><br>
 
@@ -295,7 +223,343 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135537.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">26 Facts That Sound Fake But Are True</a><br>
+## <a href="#linky6" id="linky5">25 Things That Were Designed By Jerks</a><br>
+
+<span style="font-size:4em">1. “The strawberry syrup is painted on the cup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “No ask update 11:30pm Saturday night and it didn’t even pause the movie.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Firefox serving me a full tab ad when opening my browser”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Press dismiss to update this printer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I cancelled my Tinder Gold subscription today…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Last Page Before Filing My Taxes”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Thanks Google, just downloaded a virus because of your shitty ways of allowing scams onto your search engine through advertisements.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Because we can’t take your personal data, you can’t access the website”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Ola app sending fake notification. For peddling their services. 8 Missed Calls for MOM.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I’ve never unsubscribed faster”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Friend sent this to me and the jokes write themselves”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Experian use a graphic to scare you into buying their credit improvement services even if your score is excellent”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Stacked Delivery app fees are outrageous”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Why I never get drinks at Walgreens”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “instagram doesn’t let you disable notifications forever (max 8 hours)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “HP forcing me to make an account to use a standard feature of my printer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Delete my account if i dont want promotional emails? F*ck you”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “The amount of ads until the link I actually need.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Apple and its policy when you want to upgrade the storage in a $3,200 PC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “The button to end subscription literally does nothing and doesn’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I have a water delivery subscription service called Ready Refresh. If you try to cancel on their app and it says to call this number. You call the number and it says “due to high call volume our customer service team is unable to handle your call”.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Spotify’s Reasoning for giving Premium members ads on podcasts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Spam mail uses a font and color that makes the letter appear hand-written so you’re more likely to open it. It’s actually printed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Dr. Squatch lets you use coupon codes… Just kidding! as soon as you hit checkout, the code is “no longer available”, no matter what code it is. (I used honey and got 10% off but then it just got cancelled). It waits for you to put in your payment info and e-mail then deletes your deals every time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “One dryer sheet has always been enough for me. Just seems like they want me to use more so I have to buy more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133628.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">16 Guides You Might Find Useful</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Different lumber flaws</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. How to operate Big Bird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134602.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134592.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Windsocks can also tell you the speed of the wind based on where they sag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134606.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134607.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">15 People Whose Age Will Confuse You</a><br>
+
+<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">Lois Gibson’s Forensic Sketches Are Insane, Criminals Don’t Stand a Chance</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Sketch of a car that lead to an arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Facial reconstruction based solely on a skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Photo of a 4-year-old boy aged to his late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Facial reconstruction.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Photo of a 4-year-old aged to her late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. 4-year-old girl aged to her early twenties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092928/87136262/face.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092939/87136263/stache.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">Short Horror Stories That Stare at Us While We’re Sleeping</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135977.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">27 Fresh Memes From the Dank Side of the Tracks</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134806.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87134822.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">15 Awful People Giving Their Countries Bad Reputations  </a><br>
+
+<span style="font-size:4em">1. “All of Mohamed Ali’s children, as an Egyptian they just ruined everything their father did. Edit for clarification: Mohamed ali as in one of the rulers of Egypt, not the boxer” - hossam281</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Paul Bernardo and Karla Homolka” - essuxs “Two giant pieces of shit. And fuck the Canadian justice system for letting Karla out of jail. I love how she will ALWAYS be doxxed no matter where she goes.” - Spasay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Theres this guy called General Dyer. Hes probably the most hated guy in India. Heres the story: Britan has imposed rowlatt act in india. This act made protests and debates among indians illegal. And also gave the cops right to arrest poltical prisoners without trail for 2 years. Ofcourse people were angry. On 13 April 1919 people gathered up at Jallianwala Bagh. The people here consisted of protestors, residents and people who came to pray in a temple that exists in this area. When dyer was said about this he ordered to close all the gates of this place and shoot the people. And when he was asked why later he saidIn order to create a moral effect and fear in people.” - Junglecuk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “As a French, I think its going to Maréchal Petain. The guy responsible for the whole surrender joke. He surrendered and signed the annexion of France by Germany after a few weeks of war in 1940 because of bad strategy. His government was Germanys little dog and the French gestapo sure did a good job.” - Milhanou22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “For Croatia, that would be Ante Pavelić, the leader of the Axis puppet state called the Independent State of Croatia, which commited genocide against Serbs, Jews and Roma.” - PluralCohomology</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Leopold II king Of The Belgians” - Comfortable-Divide77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “As a German, I think I dont even need to spell out the answer.” - antifascist_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Our hero and our villain were the same person depending on who you talk to … Ned Kelly.” - ComprehensiveFlan638</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “In Sicily, its Salvatore Giuliano....people shudder when you say his name, at least when I was a kid.” - HeroOrHooligan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “For 4 years, I would tell my friends when visiting Turkey that the difference between them and me is I can say “my president is a corrupt, megalomaniac, piece of sh*t who has surrounded himself with sycophants and whose grave I will piss on” without worrying about getting arrested.” - davesoverhere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Jimmy Savile. The worlds most notorious paedophile over 500 offences most of them in hospitals of all places!” - joshygopro5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I would think Pablo Escobar” - Cake_Head_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “As an Aussie, it’s the stingray that got Steve Irwin.” - JRV88_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “As a Russian... Half of the national heroes?” - girta_heavenless</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Anders Behring Breivik” - Dreamingbastard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87134464.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">25 Honest Reasons People Refuse to Have Kids</a><br>
+
+<span style="font-size:4em">1. I think having children isnt something you do because you dont have a reason not to. I would have children if I had a really good reason to, and I dont. Its an important, life-changing decision that involves an innocent person being brought into the world. I dont think I should do that just because might as well.-u/DM_Rexy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Im selfish when it comes to my quiet time. I love being alone.-u/Worried_Jaguar_912</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I am physically disabled with a genetic circulation condition. I dont want to pass my condition onto others, and the physical aspects of raising children would be too much strain on me.-u/odysseyshot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Expensive, plus being a teacher, I have seen enough and dont want to come home to deal with more kids.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I like my own personal space.-u/NotYourAverage666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Because I genuinely would not be happy with kids. I strongly believe that all kids deserve to be wanted, but not all people deserve to be parents.-u/Express_Topic_4081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I have no desire to raise a child, or care for one, or be responsible for one. I am lazy, I can take care of myself just fine, but the extra work to raise a child for something I dont want isnt worth it. I want financial freedom, freedom to make spontaneous decisions, children wouldnt allow for that-u/haircatmoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. They grow up and tell you what you did wrong.-u/badbarn85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I refuse to f*ck up a child as badly as my parents f**ked me up, and I dont think I could cope with being responsible for an infant or a toddler. Also, my genes arent worth passing on.-u/darthfruitbasket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134643.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. gestures broadly-u/lasagnaromance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I dont want them to suffer-u/Responsible-Page-344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. They’re expensive, loud, time-consuming, and don’t smell good.Plus I don’t feel like putting my body through a year of physical hell just to follow it up with 18 years of putting my goals and career to the side to make sure it doesn’t stick a fork in a socket or swallow a bee.-u/thatbikerchick51</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I never understood why so many want children. Life is a huge adventure without children. With children, it’s a job for twenty years-u/Hotspur2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In order of justification;-I don’t want to.-I can’t afford to.-There’s already quite a lot of us already.-Global climate change, political instability, and a very uncertain future.-u/Hiding_behind_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Cause they wont wag their tail on seeing me-u/CryptoNoob2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Noisy, noisy, and noisy-u/Treeoflifetheory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I can tell my partner I love her more than anyone else in the world and actually mean it.-u/Chrisnolliedelves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Pregnancy is so gross to me-u/CompetitiveVanilla14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I like my time and hobbies. My dad was the same way. Rather than putting his hobbies on hold, he was an absent father. I dont want to have to make that choice in my life.-u/thunder2132</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134653.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I struggled with mental health for a long time. I dont want to bring someone into this world who might suffer the same way.And Im alone.-u/reflect-the-sun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. They sh*t themselves. They drink too much milk and puke cottage cheese. Annoying most of the time. Cant talk right for like 2-3 years, then they dont make sense for the next 15-20. Expensive as f*ck. There is a chance they hate you and kill you in your sleep.Id rather be an uncle and call it a day. -u/ASneakyKat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. They’re liabilities-u/Disastrous-Resort-45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My cat is demanding and adorable as it is. I’d also take cat scratches and the occasional peed blankets any day over a ruined body and life, lmao-u/stupidmacaroni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. My sister had a baby with her boyfriend while she was still living at home and I wanted to kill myself from the baby’s constant crying every hour of the day. No way in hell I would purposely put myself through that again. People with more than one kid are psychos.-u/zeroj20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. You could get a yacht, or send a kid to college and pay for at least 18 years worth of food, clothes, and toys… hard choice, right?-u/Extension-Fox2081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134659.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">26 Facts That Sound Fake But Are True</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135409.jpg" style="width:100%"><br>
 
@@ -348,248 +612,4 @@ Possibly the only two fighter pilots in the world to fly through the Eiffel Towe
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135417.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135418.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">25 Honest Reasons People Refuse to Have Kids</a><br>
-
-<span style="font-size:4em">1. I think having children isnt something you do because you dont have a reason not to. I would have children if I had a really good reason to, and I dont. Its an important, life-changing decision that involves an innocent person being brought into the world. I dont think I should do that just because might as well.-u/DM_Rexy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Im selfish when it comes to my quiet time. I love being alone.-u/Worried_Jaguar_912</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I am physically disabled with a genetic circulation condition. I dont want to pass my condition onto others, and the physical aspects of raising children would be too much strain on me.-u/odysseyshot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Expensive, plus being a teacher, I have seen enough and dont want to come home to deal with more kids.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I like my own personal space.-u/NotYourAverage666</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Because I genuinely would not be happy with kids. I strongly believe that all kids deserve to be wanted, but not all people deserve to be parents.-u/Express_Topic_4081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I have no desire to raise a child, or care for one, or be responsible for one. I am lazy, I can take care of myself just fine, but the extra work to raise a child for something I dont want isnt worth it. I want financial freedom, freedom to make spontaneous decisions, children wouldnt allow for that-u/haircatmoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. They grow up and tell you what you did wrong.-u/badbarn85</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I refuse to f*ck up a child as badly as my parents f**ked me up, and I dont think I could cope with being responsible for an infant or a toddler. Also, my genes arent worth passing on.-u/darthfruitbasket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134643.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. gestures broadly-u/lasagnaromance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I dont want them to suffer-u/Responsible-Page-344</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. They’re expensive, loud, time-consuming, and don’t smell good.Plus I don’t feel like putting my body through a year of physical hell just to follow it up with 18 years of putting my goals and career to the side to make sure it doesn’t stick a fork in a socket or swallow a bee.-u/thatbikerchick51</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I never understood why so many want children. Life is a huge adventure without children. With children, it’s a job for twenty years-u/Hotspur2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In order of justification;-I don’t want to.-I can’t afford to.-There’s already quite a lot of us already.-Global climate change, political instability, and a very uncertain future.-u/Hiding_behind_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Cause they wont wag their tail on seeing me-u/CryptoNoob2077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Noisy, noisy, and noisy-u/Treeoflifetheory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I can tell my partner I love her more than anyone else in the world and actually mean it.-u/Chrisnolliedelves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Pregnancy is so gross to me-u/CompetitiveVanilla14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I like my time and hobbies. My dad was the same way. Rather than putting his hobbies on hold, he was an absent father. I dont want to have to make that choice in my life.-u/thunder2132</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134653.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I struggled with mental health for a long time. I dont want to bring someone into this world who might suffer the same way.And Im alone.-u/reflect-the-sun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. They sh*t themselves. They drink too much milk and puke cottage cheese. Annoying most of the time. Cant talk right for like 2-3 years, then they dont make sense for the next 15-20. Expensive as f*ck. There is a chance they hate you and kill you in your sleep.Id rather be an uncle and call it a day. -u/ASneakyKat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. They’re liabilities-u/Disastrous-Resort-45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My cat is demanding and adorable as it is. I’d also take cat scratches and the occasional peed blankets any day over a ruined body and life, lmao-u/stupidmacaroni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. My sister had a baby with her boyfriend while she was still living at home and I wanted to kill myself from the baby’s constant crying every hour of the day. No way in hell I would purposely put myself through that again. People with more than one kid are psychos.-u/zeroj20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. You could get a yacht, or send a kid to college and pay for at least 18 years worth of food, clothes, and toys… hard choice, right?-u/Extension-Fox2081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134659.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">Short Horror Stories That Stare at Us While We’re Sleeping</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135977.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">16 Guides You Might Find Useful</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Different lumber flaws</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. How to operate Big Bird</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134602.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. .</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134592.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Windsocks can also tell you the speed of the wind based on where they sag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134606.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134607.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 Things That Were Designed By Jerks</a><br>
-
-<span style="font-size:4em">1. “The strawberry syrup is painted on the cup.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “No ask update 11:30pm Saturday night and it didn’t even pause the movie.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Firefox serving me a full tab ad when opening my browser”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Press dismiss to update this printer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I cancelled my Tinder Gold subscription today…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Last Page Before Filing My Taxes”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Thanks Google, just downloaded a virus because of your shitty ways of allowing scams onto your search engine through advertisements.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Because we can’t take your personal data, you can’t access the website”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Ola app sending fake notification. For peddling their services. 8 Missed Calls for MOM.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I’ve never unsubscribed faster”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Friend sent this to me and the jokes write themselves”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Experian use a graphic to scare you into buying their credit improvement services even if your score is excellent”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Stacked Delivery app fees are outrageous”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Why I never get drinks at Walgreens”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “instagram doesn’t let you disable notifications forever (max 8 hours)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “HP forcing me to make an account to use a standard feature of my printer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Delete my account if i dont want promotional emails? F*ck you”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “The amount of ads until the link I actually need.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Apple and its policy when you want to upgrade the storage in a $3,200 PC”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “The button to end subscription literally does nothing and doesn’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “I have a water delivery subscription service called Ready Refresh. If you try to cancel on their app and it says to call this number. You call the number and it says “due to high call volume our customer service team is unable to handle your call”.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Spotify’s Reasoning for giving Premium members ads on podcasts.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Spam mail uses a font and color that makes the letter appear hand-written so you’re more likely to open it. It’s actually printed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Dr. Squatch lets you use coupon codes… Just kidding! as soon as you hit checkout, the code is “no longer available”, no matter what code it is. (I used honey and got 10% off but then it just got cancelled). It waits for you to put in your payment info and e-mail then deletes your deals every time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “One dryer sheet has always been enough for me. Just seems like they want me to use more so I have to buy more.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87133628.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">15 People Whose Age Will Confuse You</a><br>
-
-<span style="font-size:4em">1. “I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “This photo was taken about a week before my fourteenth birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Me, age 17, letting my beard properly grow for the first time”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Me, looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Me at 16, completely bald on top by 18”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My dad got me a new bike — I’m 41 and over the moon about it!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Still get on the bus as a child (15 and under) and I’m 20.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I’ll be 30 this year and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “I’m almost 29.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I’m 26, it’s only recently I stopped getting ID’ed constantly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I’m 40!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My double-chin, terrible smile, and inability to grow facial hair present this monstrosity. I’m 30.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I was told I look 28. I’m 15.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Me at 12, looking like I’m 35”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135000.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">Retro Zillow Listing Is the Horror Home We’ve Always Dreamed Of</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135199.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135197.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135198.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135202.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135200.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135201.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135204.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135203.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135208.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135206.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135205.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135209.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135207.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135210.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135211.png" style="width:100%"><br>
 
