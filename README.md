@@ -1,7 +1,95 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/01/2022-22:11:31
+Last updated: 04/01/2022-23:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Honest Reasons People Refuse to Have Kids</a><br>
+## <a href="#linky2" id="linky1">21 Starter Packs to Confirm Those Stereotypes</a><br>
+
+<span style="font-size:4em">1. This one is way too accurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136633.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bro, why do you have to attack me like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136634.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Why do I have a crush on every mom who looks like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136635.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Its me. Im kid with divorced parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136636.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Usually the scariest part of the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136637.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tell me this isnt the best sleep ever though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136638.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Can a catholic person confirm that this is accurate?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136648.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Serving up the most amazing food youll ever eat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136639.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. You wont have cheeks left when shes done with you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136640.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The saddest cupboards youll ever open.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136641.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Shes always a police officer who doesnt get the respect she deserves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136642.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. This meme just took me back to 3rd grade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136643.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im friends with this guy. Im also partially this guy. Soooo yeah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136644.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Cringey clapbacks are not a personality trait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136645.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. You had me at the fedora.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136646.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Fish. Miles and miles of fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136647.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Its always so hard to tell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136649.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. The suck-ups on LinkedIn are way out of hand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136650.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Im a very cultured person now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136651.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Saturday nights were absolutely lit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136652.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Continental breakfasts are lawless lands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136653.png" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135515.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135520.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135523.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135524.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135537.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Honest Reasons People Refuse to Have Kids</a><br>
 
 <span style="font-size:4em">1. I think having children isnt something you do because you dont have a reason not to. I would have children if I had a really good reason to, and I dont. Its an important, life-changing decision that involves an innocent person being brought into the world. I dont think I should do that just because might as well.-u/DM_Rexy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134635.jpg" style="width:100%"><br>
 
@@ -52,92 +140,6 @@ Last updated: 04/01/2022-22:11:31
 <span style="font-size:4em">24. My sister had a baby with her boyfriend while she was still living at home and I wanted to kill myself from the baby’s constant crying every hour of the day. No way in hell I would purposely put myself through that again. People with more than one kid are psychos.-u/zeroj20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134658.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. You could get a yacht, or send a kid to college and pay for at least 18 years worth of food, clothes, and toys… hard choice, right?-u/Extension-Fox2081</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87134659.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">21 Starter Packs to Confirm Those Stereotypes</a><br>
-
-<span style="font-size:4em">1. This one is way too accurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136633.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bro, why do you have to attack me like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136634.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Why do I have a crush on every mom who looks like this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136635.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Its me. Im kid with divorced parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136636.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Usually the scariest part of the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136637.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tell me this isnt the best sleep ever though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136638.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Can a catholic person confirm that this is accurate?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136648.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Serving up the most amazing food youll ever eat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136639.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. You wont have cheeks left when shes done with you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136640.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The saddest cupboards youll ever open.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136641.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Shes always a police officer who doesnt get the respect she deserves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136642.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. This meme just took me back to 3rd grade.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136643.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im friends with this guy. Im also partially this guy. Soooo yeah.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136644.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Cringey clapbacks are not a personality trait!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136645.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. You had me at the fedora.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136646.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Fish. Miles and miles of fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136647.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Its always so hard to tell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136649.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. The suck-ups on LinkedIn are way out of hand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136650.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Im a very cultured person now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136651.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Saturday nights were absolutely lit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136652.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Continental breakfasts are lawless lands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136653.png" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">Lois Gibson’s Forensic Sketches Are Insane, Criminals Don’t Stand a Chance</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Sketch of a car that lead to an arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Facial reconstruction based solely on a skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Photo of a 4-year-old boy aged to his late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Facial reconstruction.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Photo of a 4-year-old aged to her late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. 4-year-old girl aged to her early twenties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092928/87136262/face.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092939/87136263/stache.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Insane and True Facts About History</a><br>
 
@@ -255,7 +257,49 @@ Journalists once asked him why continue the war in Vietnam? and he sent all the 
 
 -u/no-THC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136045.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">32 Police Officers Share Their Most WTF Moments</a><br>
+## <a href="#linky6" id="linky5">Short Horror Stories That Stare at Us While We’re Sleeping</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135977.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">32 Police Officers Share Their Most WTF Moments</a><br>
 
 <span style="font-size:4em">1. Not me, but my friend is a cop. He pulled up to an accident scene once involving a motorcycle. Gets out of his car, starts walking over, and sees the guys helmet. Figures he’ll be nice and bring it over to the guy. Well, as it turns out, the guy was still in the helmet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135802.jpg" style="width:100%"><br>
 
@@ -368,7 +412,7 @@ Ended up just being sealant for anyone interested in the outcome.</span><br><img
 
 <span style="font-size:4em">31. My husband got a call for a psychiatric emergency when working as an Emt. A kid on a 4 wheeler saw a pickup crash into a stone wall in a field and called the police, who called EMS. Apparently, the driver had driven into the wall intentionally and stabbed himself in the abdomen as well, and then [bled out] or [passed away] of head injuries until someone found him. As my so was leaning in to turn off the engine the truck ran out of gas. That was the weirdest one hes told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135832.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">47 Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky8" id="linky7">47 Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135616.jpg" style="width:100%"><br>
 
@@ -464,7 +508,77 @@ Ended up just being sealant for anyone interested in the outcome.</span><br><img
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135662.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 People Who Think They Are Better Than Everybody Else</a><br>
+## <a href="#linky9" id="linky8">13 Cool Things People Learned Today</a><br>
+
+<span style="font-size:4em">1. TIL when a city had replaced all their intersections with roundabouts, construction costs dropped $125,000, fuel savings reached 24k gallons/year per roundabout and injury accidents dropped 80%.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021049/87136119/637027742896270000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. TIL Paul McCartney was 14 years old when he wrote When Im Sixty Four. When later recorded, it was performed in a lower key and sped up so his voice would sound younger.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021143/87136128/When_I'm_sixty_four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. TIL that Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021108/87136121/125256_ms-dar-00185-000-00585_full_1220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. TIL that tennis shoes were originally made for the British Navy when on their slippery decks. When the shoes came into the market in 1892, they were known as plimsolls. The shoes were then given the name sneakers because they had no sound when walking.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021110/87136122/best-tennis-shoes-for-travel-cover.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. TIL that in the 4th century CE, Roman bishop Acacius of Amida sold all the churchs treasures to free 7000 Persian prisoners captured by the Romans during war. The Persian emperor was so impressed by the act that he ordered an end to Christian persecution throughout his empire.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021038/87136118/2e8cc6606c8f82b3aee900573b083053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. TIL those charities that collect Pop Tabs from soda/beer cans make money via the recycling value of the metal. 23 tabs are worth 1 cent. 1lb of tabs is worth 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023449/87136137/today-i-learned1.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. TIL the language of Madagascar is related to the languages of Malaysia, Hawaii, and Easter Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021100/87136120/600px-Malayo-Polynesian-en.svg.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. TIL Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021121/87136124/download.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. TIL about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021119/87136123/cynane001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. TIL From 1979 until 2007, residents of Naco, Mexico, and Naco, United States, played volleyball over the border fence, batting the ball back and forth between the two countries. A taller border fence meant volleyball could no longer unite the twin towns.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021130/87136125/picture.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. TIL that a single cough can travel at speeds of 50 mph, and emit about 3,000 droplets in just one go.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023437/87136136/today-i-learned2.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. TIL that gelatin is obtained by boiling cattle and pig carcasses.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021132/87136126/gelatin-dessert-1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. TIL that a California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021141/87136127/science.225.4669.1458.b.fp.png" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">Lois Gibson’s Forensic Sketches Are Insane, Criminals Don’t Stand a Chance</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Sketch of a car that lead to an arrest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Facial reconstruction based solely on a skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Photo of a 4-year-old boy aged to his late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Facial reconstruction.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Photo of a 4-year-old aged to her late teens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. 4-year-old girl aged to her early twenties.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092928/87136262/face.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/092939/87136263/stache.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">30 People Who Think They Are Better Than Everybody Else</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135780.jpg" style="width:100%"><br>
 
@@ -524,93 +638,7 @@ Ended up just being sealant for anyone interested in the outcome.</span><br><img
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135794.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">23 Dank Memes We Found in Our Dad's Sock Drawer </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135515.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135520.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135523.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135524.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87135537.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">Marvel Memes for When You Don’t Understand the Timeline</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136576.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136577.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136578.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136580.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136581.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136582.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136579.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136583.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136584.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136585.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136586.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136587.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136588.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136589.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136590.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136591.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103145/87136593/nick.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103157/87136594/drake.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103208/87136595/dc.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103219/87136596/strange.png" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">17 Hidden Things People Found In Their Homes</a><br>
+## <a href="#linky12" id="linky11">17 Hidden Things People Found In Their Homes</a><br>
 
 <span style="font-size:4em">1. Found this locked safe under the carpet of an estate home I recently purchased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135839.jpg" style="width:100%"><br>
 
@@ -650,77 +678,7 @@ I’m an electrician and was working on an old home built in 1935. I found a sec
 
 <span style="font-size:4em">17. Hidden room in my great aunt’s old house</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135855.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">19 Entitled People Who Are Actually The Worst</a><br>
-
-<span style="font-size:4em">1. Some Customers Are Worth Losing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Who does he think he is?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This Restaurant Is Really Sick Of Dealing With Karens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. But a free meal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Almost 15 Minutes After Last Slot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Found At My Local Walmart Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Sounds like he knows what hes doing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Found In The Wild Today In A Tag Group</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Just a neighbor, not even a roomate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Customer Karen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A Girl I Haven’t Spoken To Since Graduating High School Just Straight Up Asked For A Wedding Invite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Weird mother on my flight,I was returning back to Istanbul, watching my predownloaded stuff on Netflix. There was a mother next to me with a probably 4-5 year old kid. At first everything was fine; she was distracting her kid with her phone, I was watching the season 4 of rick and morty, then her battery ran out.She gave her kid some toy but after a while kid started crying. I had a powerbank with me and before my battery got to %20, I plugged mine in.After a while she asked me for my powerbank, but I needed it for my phone. She saidIm an adult and you MUST respect you adults, hand it to meShe suddenly turned into a b****.I kindly said I needed it for my phone and pointed a power outlet and said you can use this one.I re opened Netflix and watched the season I downloaded before being onboard. She called a personnel and said that my flight mode wasnt on and I was using Cellular.I showed the downloaded logo and my flight mode and this dumb mother gave up.Then the personnel showed the same outlet I showed to the ****** sitting next to me and her face was priceless.Good thing it wasnt a big problem, the flight went mostly peaceful and calm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Something That Happened To My Mother Yesterday At A Qt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Karen Want To Get Rid Of Her Fiancés 5 Years Old Kid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Karens Have Been Around Since At Least The 1900’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. So, A few decades ago, I went from 70 to 0 too fast one night and ended up in the hospital with a pen in my teeth signing a form on a clipboard held over my head that they could cut off both of my hands and my right leg because they were all so mangled that there was a less than 50% chance of them being saved.18 hours of surgery and I woke up with everything I went in there with (and a few extra metal parts to boot) but it took years and a couple of dedicated physical therapists (whom I lovingly refer to as Helga and Ursula the Bitch-Goddesses) for me to be able to walk and use my reconstructed hands.Ive had 4 follow up surgeries since then and I can now walk without a limp but its still difficult to walk very far without pain so I have a handicapped placard on my car. I found out real quick that theres an attitude among handicapped placard owners. They all seem to think that theyre more deserving than you of the spot that you just parked in. That plus FedEx drivers use them indiscriminately.My first experience with FedEx was when I went to get my name registered on the sewer and water utilities for the house we just moved to. There was only one handicapped spot and a FedEx delivery truck was parked in it. So I parked sideways and blocked him in then hobbled my way into the building with my cane. (I was still in physical therapy then)About 5 minutes later, I see the FedEx guy come up:FedEx Guy: Who owns the Silver Infinity outside?Me: That would be meFedEx guy: Youre blocking me inMe: You parked in the handicapped spotFedEx guy: I was only going to be there a few minutesMe: Well now youre going to be there until I finish my business here.FedEx guy: You cant do that!Me: We can call the sheriff and see which one of us gets a ticket.But the Entitled Bitch portion of the story happened a few years later. By then, I was able to walk without my cane and I had encountered more than one of these so I knew what was about to happen and I had prepared my response ahead of time.I had just parked and gotten out of my car and was walking into Wally World when I see the Cadillac moving slowly by with the window rolling down and the EB about to lay out her case on why she deserved my spot and I didnt.EB: Whats your problem?Me: Excuse me?EB: You dont look like youre handicapped.Me: Thank you! Ive worked really hard to be able to walk without a limpEB: I dont think youre really handicapped.Me: You could have stopped talking after the first three words of that last sentence and been entirely correct.EB: So whats wrong with you?Me: *sigh* If you must know, I lost my foot in an accident.EB: Really? How did that happen?Me: I broke it off in some nosey bitchs ass!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The story happened this week on an international flight. The layout of the plane was 3+3 seat rows, and sitting in front of me was a family of mom, dad and a 4-5 year old son on the middle. Our flight got delayed a good deal so the kid was probably already bored out of his mind. Right after boarding the boy takes out the seat table and starts bashing it repeatedly like hes tryna to smack the devil out of it. After 10+ hits the dad asks him to stop as the person in front of them was getting visibly frustrated.Dad: Stop now, youll break it and the angry man will come take youMom: I dont care what they say, its a child and if they have a problem with this they should get up and relocate!As soon as Ive heard it I was furious and low key spent the rest of the flight hating on her. There were no vacant seats on the plane, the consistent seating is important due to covid rules, and, most importantly, what traits is she trying to bring up in her son?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I posted a story about my ex sister-in-law and felt like this spoke more to the type of person she is on the inside.She and her cousin got two cats and brought them home, made sure they were fed, and that was the end of it. They never played with the cats and even changed their names after a couple months because they were just so fickle and indifferent about the pets they chose to adopt.One day, they got sick of the cats that were super antisocial because they never received any type of attention but negative because SIL and her cuz were so fed up with the situation. So they took the cats to the pound. They were warned that the animals would be euthanized if they weren’t adopted after 30 days and to come back and get them if they didn’t want that to happen.The date came and went, and these two grown adults (one in her 30’s) “forgot” and let their cats be put down. I learned of this after the fact because they were so ashamed they swore their family to secrecy, but the tea was spilled anyway. Pretty horrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This happens way too often. We usually turn off the automatic doors around a minute or two before we close, but it doesnt get locked until exactly 8 (or whenever we are closing), we have had numerous people push the doors open at 8 and look like a deer in the headlights when we say we are closed.Imagine being so entitled that you force one of the doors open and are surprised when you are kicked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134100.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">12 Common Myths People Falsely Believe Are True </a><br>
-
-<span style="font-size:4em">1. There is no gravity in space. Actually, gravity is everywhere. It shapes the orbits of the planets, the solar system, and even the galaxies. It is true that gravity decreases with distance. So the further you are away from a planet or star the less gravity you feel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Gravity is pulling us down, so every ship in the orbit around the Earth is slowly falling toward our planet. And since the ship and our astronauts are falling at the same speed and the latter have nothing to press against, they feel so weightless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lightning never strikes the same place twice. That’s a nice proverb, but a little bit far from reality. Of course, repeated lightning strikes have a very low probability, but they are not impossible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Take for instance the Empire State Building which is struck by lightning about 20-25 times each year. The building was once struck 8 times in 24 minutes, so being hit several times within a short time span isn’t that unusual after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. All dinosaurs went extinct after an asteroid hit the Earth. Sometimes it seems like we learned this in school. In reality, though, the asteroid killed about 75 percent of all plants and animal life on the planet, some small species of dinosaurs survived and evolved into birds. This fact is supported by fossils dated after the so-called K-T event. Yet the extinction also provided evolutionary opportunities. Before the event, mammals tended to become dinosaurs’ meals. After that mammals, at last, got a chance to evolve into larger and more complex species, like horses, whales, bats, and primates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Doing crunches will give you a flat stomach. Unfortunately, we cannot target fat loss in our bodies. We can only build more muscle. So doing crunches alone won’t give you a flat super-impressive stomach with that ever-elusive 6-pack. If you don’t eat healthily and don’t do cardiovascular or full-body training in addition to that, you’ll just build lots of muscle under your belly fat and it may seem even bigger than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The 5-second rule.  It is still believed that if you drop some food on the ground and pick it up within 5 seconds, it is safe to eat it without rewashing. Some people extend that to 10 seconds, some think it helps them to develop a robust immune system, others simply don’t care much about it. But either way, there are too many germs on the floor and if something lands on them they immediately stick to it, no matter whether it is food or not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There’s a dye in pool water that detects urine. This “scary” myth came right from our childhood. And really there’s no better “remedy” in this case than making kids believe they can be caught peeing by some super-cool ingredient that they add to pool water. While in reality there is no such thing as a urine-detecting dye even though there are many warning signs that the pool is monitored with a chemical “pee alert.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Touching a toad will give you warts. This myth probably originates from the fact that toads have many wart-like bumps on their skin. In reality, those are just glands and toads don’t secrete anything that can cause warts on our skin. As dermatologists say, actual warts are only caused by human viruses. Though the toads’ glands may contain poison that really irritates the skin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Penguins fall backward when they look up at airplanes. Legend says that British pilots were buzzing around the islands off the coast of South America and they saw penguins toppling over like dominoes when the birds looked skyward. Well, scientists tested this story and found out that these amazingly awkward creatures can maintain their footing perfectly, even while looking upward. Though low-flying aircraft can really cause them to panic and leave their nests.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Opossums hang by their tails. This myth has also appeared in some popular movies. And like many others, this myth is also totally illogical and absurd. Sure opossums can grasp branches with their tails while climbing trees and babies can hang by their tails for a little while. But adult opossums are too heavy to do that for more than just a few seconds. Besides, it is completely useless because would inhibit their survival. All in all, they simply have no reason to do this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. If you touch a baby bird with your bare hands, its mother will reject it. It is common among parents to not allow their children to touch any nests or the baby birds inside them. Also, it is believed that even if you pick up a lost baby bird and return it to its nest, its mother will reject it because of the human smell on its dear baby. In reality, most wild animals have a very strong bond with their babies and they won’t abandon them no matter what.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135690.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Memes You’ll Totally Get If You’re over 30</a><br>
+## <a href="#linky13" id="linky12">25 Memes You’ll Totally Get If You’re over 30</a><br>
 
 <span style="font-size:4em">1. Okay, but why did I have a crush on this woman and also hate her guts at the same time?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129075.jpg" style="width:100%"><br>
 
@@ -772,7 +730,119 @@ Take for instance the Empire State Building which is struck by lightning about 2
 
 <span style="font-size:4em">25. Our nightmares were fueled for 40 days and nights, just on McDonalds commercials alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129074.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">25 Surprising Examples That Prove Bigger Isn’t Always Better</a><br>
+## <a href="#linky14" id="linky13">19 Entitled People Who Are Actually The Worst</a><br>
+
+<span style="font-size:4em">1. Some Customers Are Worth Losing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Who does he think he is?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This Restaurant Is Really Sick Of Dealing With Karens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. But a free meal!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Almost 15 Minutes After Last Slot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Found At My Local Walmart Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Sounds like he knows what hes doing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Found In The Wild Today In A Tag Group</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Just a neighbor, not even a roomate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Customer Karen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A Girl I Haven’t Spoken To Since Graduating High School Just Straight Up Asked For A Wedding Invite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Weird mother on my flight,I was returning back to Istanbul, watching my predownloaded stuff on Netflix. There was a mother next to me with a probably 4-5 year old kid. At first everything was fine; she was distracting her kid with her phone, I was watching the season 4 of rick and morty, then her battery ran out.She gave her kid some toy but after a while kid started crying. I had a powerbank with me and before my battery got to %20, I plugged mine in.After a while she asked me for my powerbank, but I needed it for my phone. She saidIm an adult and you MUST respect you adults, hand it to meShe suddenly turned into a b****.I kindly said I needed it for my phone and pointed a power outlet and said you can use this one.I re opened Netflix and watched the season I downloaded before being onboard. She called a personnel and said that my flight mode wasnt on and I was using Cellular.I showed the downloaded logo and my flight mode and this dumb mother gave up.Then the personnel showed the same outlet I showed to the ****** sitting next to me and her face was priceless.Good thing it wasnt a big problem, the flight went mostly peaceful and calm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Something That Happened To My Mother Yesterday At A Qt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Karen Want To Get Rid Of Her Fiancés 5 Years Old Kid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Karens Have Been Around Since At Least The 1900’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. So, A few decades ago, I went from 70 to 0 too fast one night and ended up in the hospital with a pen in my teeth signing a form on a clipboard held over my head that they could cut off both of my hands and my right leg because they were all so mangled that there was a less than 50% chance of them being saved.18 hours of surgery and I woke up with everything I went in there with (and a few extra metal parts to boot) but it took years and a couple of dedicated physical therapists (whom I lovingly refer to as Helga and Ursula the Bitch-Goddesses) for me to be able to walk and use my reconstructed hands.Ive had 4 follow up surgeries since then and I can now walk without a limp but its still difficult to walk very far without pain so I have a handicapped placard on my car. I found out real quick that theres an attitude among handicapped placard owners. They all seem to think that theyre more deserving than you of the spot that you just parked in. That plus FedEx drivers use them indiscriminately.My first experience with FedEx was when I went to get my name registered on the sewer and water utilities for the house we just moved to. There was only one handicapped spot and a FedEx delivery truck was parked in it. So I parked sideways and blocked him in then hobbled my way into the building with my cane. (I was still in physical therapy then)About 5 minutes later, I see the FedEx guy come up:FedEx Guy: Who owns the Silver Infinity outside?Me: That would be meFedEx guy: Youre blocking me inMe: You parked in the handicapped spotFedEx guy: I was only going to be there a few minutesMe: Well now youre going to be there until I finish my business here.FedEx guy: You cant do that!Me: We can call the sheriff and see which one of us gets a ticket.But the Entitled Bitch portion of the story happened a few years later. By then, I was able to walk without my cane and I had encountered more than one of these so I knew what was about to happen and I had prepared my response ahead of time.I had just parked and gotten out of my car and was walking into Wally World when I see the Cadillac moving slowly by with the window rolling down and the EB about to lay out her case on why she deserved my spot and I didnt.EB: Whats your problem?Me: Excuse me?EB: You dont look like youre handicapped.Me: Thank you! Ive worked really hard to be able to walk without a limpEB: I dont think youre really handicapped.Me: You could have stopped talking after the first three words of that last sentence and been entirely correct.EB: So whats wrong with you?Me: *sigh* If you must know, I lost my foot in an accident.EB: Really? How did that happen?Me: I broke it off in some nosey bitchs ass!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The story happened this week on an international flight. The layout of the plane was 3+3 seat rows, and sitting in front of me was a family of mom, dad and a 4-5 year old son on the middle. Our flight got delayed a good deal so the kid was probably already bored out of his mind. Right after boarding the boy takes out the seat table and starts bashing it repeatedly like hes tryna to smack the devil out of it. After 10+ hits the dad asks him to stop as the person in front of them was getting visibly frustrated.Dad: Stop now, youll break it and the angry man will come take youMom: I dont care what they say, its a child and if they have a problem with this they should get up and relocate!As soon as Ive heard it I was furious and low key spent the rest of the flight hating on her. There were no vacant seats on the plane, the consistent seating is important due to covid rules, and, most importantly, what traits is she trying to bring up in her son?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I posted a story about my ex sister-in-law and felt like this spoke more to the type of person she is on the inside.She and her cousin got two cats and brought them home, made sure they were fed, and that was the end of it. They never played with the cats and even changed their names after a couple months because they were just so fickle and indifferent about the pets they chose to adopt.One day, they got sick of the cats that were super antisocial because they never received any type of attention but negative because SIL and her cuz were so fed up with the situation. So they took the cats to the pound. They were warned that the animals would be euthanized if they weren’t adopted after 30 days and to come back and get them if they didn’t want that to happen.The date came and went, and these two grown adults (one in her 30’s) “forgot” and let their cats be put down. I learned of this after the fact because they were so ashamed they swore their family to secrecy, but the tea was spilled anyway. Pretty horrifying.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This happens way too often. We usually turn off the automatic doors around a minute or two before we close, but it doesnt get locked until exactly 8 (or whenever we are closing), we have had numerous people push the doors open at 8 and look like a deer in the headlights when we say we are closed.Imagine being so entitled that you force one of the doors open and are surprised when you are kicked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134100.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Marvel Memes for When You Don’t Understand the Timeline</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136576.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136577.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136578.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136580.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136581.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136582.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136579.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136583.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136584.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136585.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136586.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136587.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136588.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136589.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136590.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136591.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103145/87136593/nick.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103157/87136594/drake.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103208/87136595/dc.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103219/87136596/strange.png" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">12 Common Myths People Falsely Believe Are True </a><br>
+
+<span style="font-size:4em">1. There is no gravity in space. Actually, gravity is everywhere. It shapes the orbits of the planets, the solar system, and even the galaxies. It is true that gravity decreases with distance. So the further you are away from a planet or star the less gravity you feel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Gravity is pulling us down, so every ship in the orbit around the Earth is slowly falling toward our planet. And since the ship and our astronauts are falling at the same speed and the latter have nothing to press against, they feel so weightless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Lightning never strikes the same place twice. That’s a nice proverb, but a little bit far from reality. Of course, repeated lightning strikes have a very low probability, but they are not impossible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> 
+
+Take for instance the Empire State Building which is struck by lightning about 20-25 times each year. The building was once struck 8 times in 24 minutes, so being hit several times within a short time span isn’t that unusual after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. All dinosaurs went extinct after an asteroid hit the Earth. Sometimes it seems like we learned this in school. In reality, though, the asteroid killed about 75 percent of all plants and animal life on the planet, some small species of dinosaurs survived and evolved into birds. This fact is supported by fossils dated after the so-called K-T event. Yet the extinction also provided evolutionary opportunities. Before the event, mammals tended to become dinosaurs’ meals. After that mammals, at last, got a chance to evolve into larger and more complex species, like horses, whales, bats, and primates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Doing crunches will give you a flat stomach. Unfortunately, we cannot target fat loss in our bodies. We can only build more muscle. So doing crunches alone won’t give you a flat super-impressive stomach with that ever-elusive 6-pack. If you don’t eat healthily and don’t do cardiovascular or full-body training in addition to that, you’ll just build lots of muscle under your belly fat and it may seem even bigger than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The 5-second rule.  It is still believed that if you drop some food on the ground and pick it up within 5 seconds, it is safe to eat it without rewashing. Some people extend that to 10 seconds, some think it helps them to develop a robust immune system, others simply don’t care much about it. But either way, there are too many germs on the floor and if something lands on them they immediately stick to it, no matter whether it is food or not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. There’s a dye in pool water that detects urine. This “scary” myth came right from our childhood. And really there’s no better “remedy” in this case than making kids believe they can be caught peeing by some super-cool ingredient that they add to pool water. While in reality there is no such thing as a urine-detecting dye even though there are many warning signs that the pool is monitored with a chemical “pee alert.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Touching a toad will give you warts. This myth probably originates from the fact that toads have many wart-like bumps on their skin. In reality, those are just glands and toads don’t secrete anything that can cause warts on our skin. As dermatologists say, actual warts are only caused by human viruses. Though the toads’ glands may contain poison that really irritates the skin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Penguins fall backward when they look up at airplanes. Legend says that British pilots were buzzing around the islands off the coast of South America and they saw penguins toppling over like dominoes when the birds looked skyward. Well, scientists tested this story and found out that these amazingly awkward creatures can maintain their footing perfectly, even while looking upward. Though low-flying aircraft can really cause them to panic and leave their nests.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Opossums hang by their tails. This myth has also appeared in some popular movies. And like many others, this myth is also totally illogical and absurd. Sure opossums can grasp branches with their tails while climbing trees and babies can hang by their tails for a little while. But adult opossums are too heavy to do that for more than just a few seconds. Besides, it is completely useless because would inhibit their survival. All in all, they simply have no reason to do this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. If you touch a baby bird with your bare hands, its mother will reject it. It is common among parents to not allow their children to touch any nests or the baby birds inside them. Also, it is believed that even if you pick up a lost baby bird and return it to its nest, its mother will reject it because of the human smell on its dear baby. In reality, most wild animals have a very strong bond with their babies and they won’t abandon them no matter what.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135690.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">25 Surprising Examples That Prove Bigger Isn’t Always Better</a><br>
 
 <span style="font-size:4em">1. Classroom sizes-u/Catmom7654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135865.jpg" style="width:100%"><br>
 
@@ -823,76 +893,6 @@ Take for instance the Empire State Building which is struck by lightning about 2
 <span style="font-size:4em">24. Kidney stones-u/Unfair-soil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135887.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Meteorites.-u/TheHalfDeadCat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87135888.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">13 Cool Things People Learned Today</a><br>
-
-<span style="font-size:4em">1. TIL when a city had replaced all their intersections with roundabouts, construction costs dropped $125,000, fuel savings reached 24k gallons/year per roundabout and injury accidents dropped 80%.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021049/87136119/637027742896270000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. TIL Paul McCartney was 14 years old when he wrote When Im Sixty Four. When later recorded, it was performed in a lower key and sped up so his voice would sound younger.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021143/87136128/When_I'm_sixty_four.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. TIL that Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021108/87136121/125256_ms-dar-00185-000-00585_full_1220.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. TIL that tennis shoes were originally made for the British Navy when on their slippery decks. When the shoes came into the market in 1892, they were known as plimsolls. The shoes were then given the name sneakers because they had no sound when walking.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021110/87136122/best-tennis-shoes-for-travel-cover.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. TIL that in the 4th century CE, Roman bishop Acacius of Amida sold all the churchs treasures to free 7000 Persian prisoners captured by the Romans during war. The Persian emperor was so impressed by the act that he ordered an end to Christian persecution throughout his empire.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021038/87136118/2e8cc6606c8f82b3aee900573b083053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. TIL those charities that collect Pop Tabs from soda/beer cans make money via the recycling value of the metal. 23 tabs are worth 1 cent. 1lb of tabs is worth 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023449/87136137/today-i-learned1.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. TIL the language of Madagascar is related to the languages of Malaysia, Hawaii, and Easter Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021100/87136120/600px-Malayo-Polynesian-en.svg.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. TIL Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021121/87136124/download.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. TIL about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021119/87136123/cynane001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. TIL From 1979 until 2007, residents of Naco, Mexico, and Naco, United States, played volleyball over the border fence, batting the ball back and forth between the two countries. A taller border fence meant volleyball could no longer unite the twin towns.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021130/87136125/picture.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. TIL that a single cough can travel at speeds of 50 mph, and emit about 3,000 droplets in just one go.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023437/87136136/today-i-learned2.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. TIL that gelatin is obtained by boiling cattle and pig carcasses.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021132/87136126/gelatin-dessert-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. TIL that a California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021141/87136127/science.225.4669.1458.b.fp.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">Short Horror Stories That Stare at Us While We’re Sleeping</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87135977.jpg" style="width:100%"><br>
 
 ## <a href="#linky18" id="linky17">26 Facts That Sound Fake But Are True</a><br>
 
