@@ -1,143 +1,37 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/02/2022-23:11:31
+Last updated: 04/03/2022-00:11:31
 <br>
-## <a href="#linky2" id="linky1">30 People Who Think They Are Better Than Everybody Else</a><br>
+## <a href="#linky2" id="linky1">12 Common Myths People Falsely Believe Are True </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135780.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There is no gravity in space. Actually, gravity is everywhere. It shapes the orbits of the planets, the solar system, and even the galaxies. It is true that gravity decreases with distance. So the further you are away from a planet or star the less gravity you feel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135795.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Gravity is pulling us down, so every ship in the orbit around the Earth is slowly falling toward our planet. And since the ship and our astronauts are falling at the same speed and the latter have nothing to press against, they feel so weightless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135793.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lightning never strikes the same place twice. That’s a nice proverb, but a little bit far from reality. Of course, repeated lightning strikes have a very low probability, but they are not impossible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135766.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+Take for instance the Empire State Building which is struck by lightning about 20-25 times each year. The building was once struck 8 times in 24 minutes, so being hit several times within a short time span isn’t that unusual after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135769.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. All dinosaurs went extinct after an asteroid hit the Earth. Sometimes it seems like we learned this in school. In reality, though, the asteroid killed about 75 percent of all plants and animal life on the planet, some small species of dinosaurs survived and evolved into birds. This fact is supported by fossils dated after the so-called K-T event. Yet the extinction also provided evolutionary opportunities. Before the event, mammals tended to become dinosaurs’ meals. After that mammals, at last, got a chance to evolve into larger and more complex species, like horses, whales, bats, and primates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135770.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Doing crunches will give you a flat stomach. Unfortunately, we cannot target fat loss in our bodies. We can only build more muscle. So doing crunches alone won’t give you a flat super-impressive stomach with that ever-elusive 6-pack. If you don’t eat healthily and don’t do cardiovascular or full-body training in addition to that, you’ll just build lots of muscle under your belly fat and it may seem even bigger than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135771.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The 5-second rule.  It is still believed that if you drop some food on the ground and pick it up within 5 seconds, it is safe to eat it without rewashing. Some people extend that to 10 seconds, some think it helps them to develop a robust immune system, others simply don’t care much about it. But either way, there are too many germs on the floor and if something lands on them they immediately stick to it, no matter whether it is food or not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135772.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. There’s a dye in pool water that detects urine. This “scary” myth came right from our childhood. And really there’s no better “remedy” in this case than making kids believe they can be caught peeing by some super-cool ingredient that they add to pool water. While in reality there is no such thing as a urine-detecting dye even though there are many warning signs that the pool is monitored with a chemical “pee alert.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135767.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Touching a toad will give you warts. This myth probably originates from the fact that toads have many wart-like bumps on their skin. In reality, those are just glands and toads don’t secrete anything that can cause warts on our skin. As dermatologists say, actual warts are only caused by human viruses. Though the toads’ glands may contain poison that really irritates the skin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135773.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Penguins fall backward when they look up at airplanes. Legend says that British pilots were buzzing around the islands off the coast of South America and they saw penguins toppling over like dominoes when the birds looked skyward. Well, scientists tested this story and found out that these amazingly awkward creatures can maintain their footing perfectly, even while looking upward. Though low-flying aircraft can really cause them to panic and leave their nests.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135774.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Opossums hang by their tails. This myth has also appeared in some popular movies. And like many others, this myth is also totally illogical and absurd. Sure opossums can grasp branches with their tails while climbing trees and babies can hang by their tails for a little while. But adult opossums are too heavy to do that for more than just a few seconds. Besides, it is completely useless because would inhibit their survival. All in all, they simply have no reason to do this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135775.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. If you touch a baby bird with your bare hands, its mother will reject it. It is common among parents to not allow their children to touch any nests or the baby birds inside them. Also, it is believed that even if you pick up a lost baby bird and return it to its nest, its mother will reject it because of the human smell on its dear baby. In reality, most wild animals have a very strong bond with their babies and they won’t abandon them no matter what.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135794.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">37 Curious Things People Weren't Expecting</a><br>
-
-<span style="font-size:4em">1. “A collection of keys I found while metal detecting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “I lost my passport two years ago and have been using the same PDF scan as a substitute ever since. This is where I found it today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My girlfriend found a multicolor orange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My wife and kids spotted this owl in a pipe in a ditch behind their school today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I found a tiny snail climbing a thread of spider silk outside my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “The result of a moose scratching its antlers against a tree during shedding season”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “I came across this little friend on my walk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I got given a measuring tape without measurements.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This colorful pigeon I saw today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “You can tell the era my thrifted computer bag was made in by the matching iPod case that came with it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “This earring we found on the ground”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My yard has a mole problem, but I never thought I’d find an albino!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Hoar frost I found this morning”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I was the first human to walk down this busy sidewalk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I was the first human to walk down this busy sidewalk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I found a snow imprint from a bird when it possibly caught its meal.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I bought my house 6 months ago and found this hidden safe when removing an old stove that was left here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My drain was blocked so I pulled it up and this came out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My coffee looks genuinely worried about me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136500.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Double-headed sheep”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “My dog’s ’Proton pack capturing a ghost’ birthmark”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “The back of my dog looks like an old man with a mustache.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My loaf of bread kinda looks like ET.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Inside the exhaust stack of my paint booth looks like a portal to another dimension.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Which animal or creature does this ginger resemble?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “This puddle froze with a weird pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This tree that looks like a man ready to start running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “This drink holder and AC vent look like the face of a cartoon bulldog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “A shadow in my room looks like a cat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “The first chip pulled out of the bag looks like a person ran through it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Angry corn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “This lobster butter that’s happy to be included with dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Just a monster bird crossing a street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “My puppy’s paw beans have spots and resemble a teddy bear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “My girlfriend got up from the couch, and the comforter resembles a gorilla head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “My buddy Koda’s hair on his ear resembles a dog’s face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “Whose head is whose?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136518.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">47 Fun Photos to Spice Up the Day</a><br>
+## <a href="#linky3" id="linky2">47 Fun Photos to Spice Up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135616.jpg" style="width:100%"><br>
 
@@ -233,7 +127,236 @@ Last updated: 04/02/2022-23:11:31
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87135662.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">19 Entitled People Who Are Actually The Worst</a><br>
+## <a href="#linky4" id="linky3">32 Police Officers Share Their Most WTF Moments</a><br>
+
+<span style="font-size:4em">1. Not me, but my friend is a cop. He pulled up to an accident scene once involving a motorcycle. Gets out of his car, starts walking over, and sees the guys helmet. Figures he’ll be nice and bring it over to the guy. Well, as it turns out, the guy was still in the helmet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The kid drowned at a local pool so I had to tag along with the ambulances for an investigation. I got there first and saw his father holding him crying and my heart sank. I ran over there and tried to perform CPR to the best of my ability for about 10 minutes before the ambulance arrived... he woke up right as it pulled onto our street. I preceded to visit him in the hospital and now he swears he wants to be a police officer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Not me but my grandpa was on the California Highway Patrol for 20 years.
+He always told the story of how he pulled over this guy for a busted taillight. My grandpa asks him for his license and registration, and the guy says, “how’d you catch me so fast?”
+
+Grandpa said the hair on the back of his neck never again stood up half so fast. Turned out the guy had robbed a bank not five minutes before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I pulled up on a teen sleeping in a vehicle at the end of a country road. When I ran the license plate, I found out that he was reported as a runaway. The doors on the vehicle were locked, so I knocked on the window to wake him up. Once he woke up and realized what was going on, he shot himself in the mouth with a rifle he had hidden under his blanket. Rough way to start my shift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im putting this story in just to lighten the mood. I observed this, Im not a cop. Two cop cars were rounding the corner of an intersection, in opposite directions. They crash but were going slowly enough that no one was hurt. They both got out of their cars, laughing, pulling out their ticket pads, and started writing each other tickets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. As a rookie, I was responding to an alarm at the restaurant that was supposed to be “haunted by a woman.” The first officer that arrived was an older officer that didn’t do much and didn’t even get excited on the radio. As soon as he arrived he asked for a second unit in a high-pitched tone. As I pulled in he had his shotgun out and he was leaned up over his hood. My first thought was “ oh s**t someone is breaking in “. When I ran up to him and asked what was up. All he said was as he pulled up and his lights hit the building a woman jumped off the roof and disappeared. He was clearly shaking. I and another officer checked the building and found no evidence that someone had been there. It made an impression on me and I never went back to the restaurant at night without another officer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A law prof in Australia spent 20 years as a cop before becoming a lawyer and eventually teaching. In explaining the battered wife syndrome defense to murder, he told a story of a call to a little old ladys house where she had said on the phone that she had [taken out] her husband. Before this incident, he didnt really understand why it existed. Why doesnt the woman just leave? Why doesnt she just go to someone elses house?
+
+Prof shows up at the door and is greeted by a little old lady saying come in, would you like some tea? He goes in and she starts putting some cakes on a tray and pouring tea. He wonders if shes all there.
+
+He asked, so you said that you [took out] your husband on the phone, would I be able to see him? She directs him to the living room where the old man was on a lazy boy chair, bottle in hand, and a tomahawk in his skull. Meanwhile, the old lady is asking if he takes sugar or milk in his tea.
+
+The prof said at this moment he realized why the defense of battered wife existed. The drunk old guy had been beating her for years, controlled all the money, and didnt let her have friends. She had nowhere to go even if she left him. So on this day, after saying he was going to beat her if his sports team lost, she took matters into her own hands.
+
+He said this was the moment he realized that sometimes there are situations where life doesnt make sense and people take the only way they can see.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Former paramedic here: I responded to a crash on the highway that required the extrication of the driver. I hop in the back seat and hold c-spine as the fire starts taking off the door, cutting posts, etc.
+
+The driver starts asking where Mollie and Fred are, and if they’re ok. I’m confused because she was the only occupant of the car. I ask her if she’s talking about the other car and she says “No, they’re my pet tarantula and snake.” I look in the floorboard and there are the remains of two terrariums, but no Mollie or Fred.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My husband has been a police officer for over 20 years. One night he was patrolling the downtown area when he noticed a purse someone had left behind. He opened the bag to check for id and found a turd. Some lady [pooped] in her handbag and left it behind. Hell talk about autopsies and burnt bodies, but that is the one story he would rather forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My older brother is a cop. He got a call about a [disturbed] teenager behind a school with a knife. He rolled up to the spot and when the kid noticed him he immediately started hacking at his own neck with the knife. My brother sprints over to him and tases him. Saved the kids life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ex-cop from NSW Australian here. A guy once passed away in a motorcycle accident. We went to deliver the message to his girlfriend. After reading the collision report the truck driver said he just pulled straight in front of him like he deliberately was trying to take his own life. She was not answering so we forced entry. The shelves of the fridge were on the kitchen floor. Opening the fridge we discovered multiple pillowcases with her cut-up body inside. That was certainly an ‘oh s**t’ moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Nothing makes you go oh s**t more than stopping an obvious drunk, feeling like you could be stopping a homicide in progress, to realizing you know the person...maybe you know them really well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Got a call for an emotionally disturbed person. Arrive on scene and a 350lb man built like an NFL lineman is passed out of on the floor face down. His wife says he suffers from PTSD from the first Iraq war and that he was an army ranger. He had been drinking heavily. His son is on scene and about 16 years old. The man begins to wake up and proceeds to smash his forehead into the ground, repeatedly. We call for an ambulance. A small pool of blood begins to form on the floor. The wife grabs a rag and goes to wipe it up when this guys head jerks up real quick, his face contorted in rage. He grabs the wife by the neck and throws her clear across the room onto the couch. We immediately jump on him but he is preternaturally strong. There are four of us and we are each fighting one limb. The kid jumps in and helps us get two sets of cuffs on him because one set was not wide enough to connect his wrists behind his back. I ride in the ambulance to the hospital with him while he glares at me angrily reciting his military registration number and telling me I wont get any information out of him and that Im a towel head (I dont remotely look like Im from the region). The entire ride I hope that he doesnt break out of the cuffs. If Im being honest, Im not sure we wouldve gained control of him if the kid hadnt helped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Former Paramedic.
+
+Known former gang member, and seriously bad dude who was suffering from epilepsy. It was known that when he was postictal (after the seizure) he would revert to his gangland days and anyone in uniform he wanted to fight. Hey look, ambulance drivers wear uniforms.
+
+Got a call to his known address, me and my partner are the first to arrive on the scene. I already had the Valium and Versed drawn up and was ready to hit him with a knock you out dose. As I got to the door his mother (a very sweet lady) was hollering hes coming to!!!
+
+I jumped on top of him and with all my might hold him down and rode him like I was on the Pro Bull Riding Rodeo Tour. My partner was able to get the meds into him IM which takes longer to work than IV so I had to do that for the next 5-7 min till Fire showed up. I was exhausted and not really wanting to get my a*s beat rode that bull till 5 more guys took over, I rolled off and was just done.
+
+3 hours later I ended up back at the hospital and he was in there. He apologized, always did, and said he never fought with anyone as tough as me. Thank god for being 40# heavier and a pocket full of mind-altering drugs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Not me personally (well, yes and no), but my mother is a police officer and she was pregnant (with me). She went to a call, on the last day before she starts her maternity leave, about a man who was locked in his house and threatening to [take his own life]. She entered the premises with other officers, and like an idiot (I love my mom but...) the pregnant lady takes point. She entered the bathroom where the guy was holed up, and he was sitting in a bathtub with a revolver pointed right at the door, so she yells GUN! and pushes the other officer with her back outside. When they finally claimed the guy and got the gun from him they checked it and said it looked like all the primers had been struck but since it was really old ammunition they didnt go off. She went on her maternity leave and had me and said she almost didnt go back because of that. Now shes a police chief.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Just checked onto my shift. As I turned my patrol car on, my radio was in a mid-broadcast about an accident just outside the city I work in. I voluntarily checked in route to help out the best I could. While heading there, I was informed that it was actually closer to the next city over but that I would still be the first one there. I was then told it was a head-on collision. I arrived on the scene about a minute later. It was in fact a head-on collision. 5 people from one vehicle were not wearing seatbelts. All 5 were fatally injured beyond any measure. There was nothing I could do. A doctor showed up on the scene shortly after me. Nothing he could do. I watched 2 adults and 3 children [pass away] in front of my eyes. The 6-year-old little girl just stared at me unblinking as she passed... I still get emotional.
+
+They were students at our elementary school. I knew them because I routinely go to that school just to see the little kids and give them junior police stickers, take pictures with them and let them play with my gadgets and police car. I went to the memorial service that the school put on for the girls to pay my respects. Their father was there and didnt know who I was or that I was the first one there or what I saw. He was talking to another father, clearly in between denial and anger phases, about how he wished he knew what officer it was on the scene so he could [take his life] for not doing anything and why didnt he do anything and blamed me for their [passing way]. That was really hard to hear. I wish I was a superhero and could have used magic powers to save those poor children. Im sorry little ones. You deserved to live your lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This happened in August of last year, was about 1-2 in the morning when a 911 hang-up call came in where all that was heard was screaming and swearing.
+
+I was the closest unit, riding alone as my partner had been voluntold for another assignment that set of days, so when I got out into the area, I was initially waiting for backup however as I was walking up to the house, I heard several voices screaming.
+
+Rushing up to the house, the first thing I noticed was blood.... everywhere. The floor, the walls, the door, are all covered to shoulder height. A distraught woman screamed and pointed me towards the living room.
+
+Once I get into the living room, I see a male and female on a couch, both covered in blood. The male had a massive laceration on his right forearm, and the female had taken a belt and snake wrapped it around his arm to try and stop the bleeding. Seeing how the belt was applied, I knew it wasn’t doing anything to stop the blood flow, so I pulled out my tourniquet and as I prepped it said to the guy “This is gonna hurt like hell, but it’ll stop the bleeding”
+
+I applied the tourniquet just above the top of his bicep and knew it was on properly when he told me his hand had started to go numb. It was at that point I noticed a second deep gash on his tricep that went down to the bone.
+
+It took EMS about 15 minutes to get to the house, and the paramedic made it abundantly clear that had I not applied the tourniquet, the male would have bled out long before they were able to get there.
+
+In the end, turns out the guy had come home drunk and forgot his keys... climbed up to a second-story window, and punched his way into the house, with near-deadly results.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My mate had an oh s**t moment on his first week of solo traffic patrols.
+
+Pulled a drunk guy over and the trunk literally had 2 people just chilling in it asleep</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Not me, but my brother.
+
+My brother was hit by a drunk driver on Interstate 30 in Fort Worth in July 2017. Went flying, laid there for a second, and then got up and arrested the guy who hit him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Was at a traffic stop. My Sergeant came and backed me up due to having to possibly tow the vehicle. My Sergeants vehicle was behind mine and we were both in the right lane. My Sergeant was sitting in his car and I exited my car to go talk to him. As I walked closer to his car I heard a vehicle’s engine rev all the way out but I couldn’t see it. For a split second, I knew what was going to happen and thought oh s**t but couldn’t react fast enough. The vehicle I heard smashed into the back of my Sergeant SUV which struck me, throwing me into the road. The driver was completely hammered and didn’t have a license. This happened last Sunday and I have surgery in a couple of weeks for my knee and my Sergeant has a broken back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. We happened to be right on top of the scene when a carjacking with a gun call went out. I saw the car fishtailing in the snow half a block away. We started to chase, and the driver bailed immediately in the driveway of an apartment. I chased him up a hill while my partner ran around the building to cut him off. Just as I crested the hill, a shot rang out - he fired blindly behind him, the old to whom it may concern shot. We chased him through a church parking lot where the bingo game was just letting out, so no return fire. Caught him in a backyard behind the church. The department gave us nice plaques. And cake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. We were looking for a guy who stole guns from his ex and found him under a pile of clothes in a closet at a different house. Unfortunately, there were like 7 kids sleeping in the same room so I start getting them out of there while my partner cuffed the guy who was pretending to sleep. We decided to drag him out and I go to move the mattress to get it out of the way and we found the stolen guns under where the kids were sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Back when I was an MP, I was assigned to write up abandoned vehicles on an area on a post and found a nasty one with busted out windows no plates while checking it out noticed a couple of wires running from the front to the back. Lifted something in the back and [found this]
+
+A lot of phone calls above my head determined that it was an unlabeled training tool that had been left just laying out in the public by some unit on the post. The next day it had “training” spray-painted on the side to keep anyone only from having the same oh-s**t moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Police paramedic- Went to a bad MVA. When I got home from work I noticed my boot was clicking on my kitchen floor. I thought it was a stone stuck in the tread but it was leftover bits of a fragmented skull. There was some brain in there too.
+
+I decided to trash the boots. I mean, they werent totally worn out, but then again Im not scrubbing brain matter out of my boots at 5 am in my kitchen sink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. When I was responding to a simple trespass after a warning call and upon me making contact with the trespassed individual, he charged me and my zone partner with a pair of scissors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I’m not an officer but my friends dad was. He got a call that someone took their own life at a residence and he didn’t find out until he drove over that it was the guys daughters 5th birthday. He got drunk with the other dads and they decided to play Russian roulette, with 1911.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My cousin is a cop in St. Louis. After graduating from the academy, his very first night on patrol was the night the Ferguson riots started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My BIL was a police officer in a beach town with a large military presence. On one of his first days as an officer, he responded to what sounded like a fairly routine car accident but when he arrived he found a car on fire and a person trapped inside. While he’s pulling the guy out he realized that the persons leg was severed, so once he got far enough away from the burning car he had to put a tourniquet on the dudes leg. A higher ranking officer responded after my BIL gave a better description of the scene and that guy ended up getting some kind of award for his “heroic actions”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Former MP here. Partner and I were riding around when we saw another unit dip into a Weapons Storage Area. Figured eh let’s see what they’re up to. Rolled up to the gate and the guard says “You guys here for the bomb leak?”
+
+I’m sorry, what? We are now. Hit the gas and went rolling in to find the fire department and all there investigating.
+
+Had to evacuate the entire weapons area, most of the supply area across the street as well as most of the flight line. Something like a 3000-meter cordon. That was a fun day.
+
+Ended up just being sealant for anyone interested in the outcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Was a police intern, maybe about my second month in. I got to ride around and help with traffic stops and basically just help the officer on duty. Fairly small town, nothing ever really happened there - mostly just drunks and domestic calls. One afternoon I was with a cop new to the force, fresh from working in the prison. Great guy, anyhow, we are running a speed check on the outskirts of town and find a guy on a motorcycle speeding with no helmet (illegal at the time). Hit the lights, pulls over with no incident. We get out, guy doesn’t even turn around, barely answers the questions through his teeth. Back to the cruiser and run his license. Comes back with several out-of-state warrants with a BOLA attached due to an armed assault against a police officer. We both looked at each other and back at the dude on the motorcycle. Officer immediately unlatches the shotgun from the center console and hands it to me - “If you know how to use this thing, use it”, was all he said. (OH S**T) Without notice, other officers from surrounding towns are already lining up behind us, thank god. The dude was thankfully tired of being on the run and was ready to turn himself in. He went in without incident.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. My husband got a call for a psychiatric emergency when working as an Emt. A kid on a 4 wheeler saw a pickup crash into a stone wall in a field and called the police, who called EMS. Apparently, the driver had driven into the wall intentionally and stabbed himself in the abdomen as well, and then [bled out] or [passed away] of head injuries until someone found him. As my so was leaning in to turn off the engine the truck ran out of gas. That was the weirdest one hes told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135832.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">25 Insane and True Facts About History</a><br>
+
+<span style="font-size:4em">1. Napoleons wife had a friend who was known as Government property because she had banged so many ministers of state.
+
+-u/justincredible667
+
+https://www.reddit.com/r/AskReddit/comments/thnmmc/whats_a_nsfw_history_fact_that_we_dont_often_hear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The British Academy of Science redacted massive amounts of the first published observations of penguins by biologists. Penguins are the worst. So much rape. So much necrophilia. The Academy decided the public wouldnt handle it well.
+
+-u/No-Statement-3019</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136022.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. In the Ottoman Empire, the sultans wife could only eat her cucumbers chopped, so that she doesnt masturbate.
+
+-u/JokerMain03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Julius Wagner-Jauregg won the 1927 Nobel prize for medicine by giving people malaria
+
+The fever from the malaria would go so high that it could kill off an otherwise untreatable syphilis infection. Left untreated syphilis could lead to insanity so it was pretty bad thing. In comparison, having malaria, which we had treatments for, was a blessing
+
+-u/ApteronotusAlbifrons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In July 1184, Henry VI, King of Germany (later Holy Roman Emperor), held court at a Hoftag in the Petersberg Citadel in Erfurt. On the morning of 26 July, the combined weight of the assembled nobles caused the wooden second-story floor of the Peterskirche to collapse and most of them fell through into the latrine cesspit below the ground floor, where about 60 of them drowned in liquid excrement.
+
+-u/KiakiHawk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. There is a man named Eben Byers who is entombed in Pittsburghs Allegheny National Cemetery. He was a golf pro and socialite who ended up being the victim of quack medicine. He consumed so much Radithor (Radium dissolved in water) that just prior to his death his jaw literally eroded off of his face. His mausoleum has him in a lead coffin because hes still radioactive.
+
+-u/Extrasherman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ammonia-rich fumes from a castles toilet system were used to delouse clothes inside special closets.
+
+-u/lazermaniac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. William C. Minor, one of the contributing writers of the Oxford English Dictionary, chopped off his penis using the pocket knife he used to cut the bound pages of his old first edition book.
+
+-u/quamazotz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. After Napoleon’s death, it’s been alleged (and told to me by a historian at Les Invalides) that his penis was cut off and sold and exhibited through the early 20th century. It was described in 1927 as resembling a “piece of leather” or a “shriveled eel”
+
+-u/unreadybean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. At the beginning of World War II, in Great Britain, over 750,000 domestic animals were euthanized out of fear that rations would be spread too thin and pet abandonment would lead to masses of strays. The National Air Raid Precautions Animal Committee (NARPAC) sent pamphlets out to homes suggesting that people should send their pets to the countryside or [kindly] have them destroyed. This later became known as the British Pet Massacre.
+
+-u/Asaella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Romans used to execute criminals in the Colosseum by recreating myths.
+
+A woman was raped to death by a specially trained bull (Pasiphae) A man was given wings and thrown across the Colosseum (Icarus) Another was made to play an instrument and then be torn apart by animals (Orpheus) and many, many more.
+
+-u/wugmuffin12</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. It used to be thought that blowing tobacco smoke up someones ass was a way to revive them. Some swimming pools actually had a kit, with a bellows-type device, to blow smoke up the ass of a drowning victim.
+
+-u/No-Process3677</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The CIA gave unsuspecting civilians LSD and then observed their interactions with hookers (paid informants) while under the influence, for experimental purposes. This operation was called Midnight Climax.
+
+-u/Snoo_69677</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. James Joyce had a fart fetish. He often wrote about it in letters to his lover.
+
+You had an arse full of farts that night, darling, and I f**ked them out of you, big fat fellows, long windy ones, quick little merry cracks, and a lot of tiny little naughty farties ending in a long gush from your hole. It is wonderful to f**k a farting woman when every f*ck drives one out of her.
+
+-u/ghigufa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Didnt the author of Frankenstein, Mary Shelley, lose her virginity on her mothers grave?
+
+-u/Air2799</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Anton Leeuwenhoek, the father of microscopy, used his invention (the microscope) on his own sperm after one night with his wife. Sperm was unknown at the time and he thought they were little people
+
+-u/onboarding972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Thomas H. Boston Corbett, the guy who killed John Wilkes Booth (Lincolns assassin) was a raging lunatic who cut his own balls off with a pair of scissors after passing a couple of prostitutes on the street. He did not seek medical attention after he did that until after he had gone to a prayer meeting and had dinner. He also escaped from an insane asylum on horseback and was never seen again.
+
+-u/Thunda792</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Felix Fauré, French president from 1895 to 1899, died while getting head.
+
+-u/PioneerDingus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In ancient Egypt, the Pharaoh would periodically masturbate into the Nile as a ritual of sorts to guarantee good harvests.
+
+-u/Jon__Snuh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Brazilian Emperor built a huge personal library just so he could freely shag his mistresses without being bothered.
+
+-u/Much_Committee_9355</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136040.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Mongols had a rule: Youre not allowed to kill the leader of a country (or city-state) by piercing their skin.
+
+So they came up with ingenious ways of killing people. There were stories of a potential Khan that boiled a man alive; other stories include pouring molten gold down a mans throat.
+
+Though not necessarily NSFW, Genghis Khan gave cities the option of surrendering, or face the option of killing every man, woman, and child in that city. He would literally genocide everyone in that city because the ruler wanted to fight back. And thats how Genghis Khan killed 10% of the worlds population at that time; 20-40 million people.
+
+-u/TheSaltyPineapple1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hawaiian kings commonly had “harems” of both male and female lovers. The first European to make a Hawaiian to English dictionary didn’t want to scandalize his Victorian readers so translated the term for the male lovers to something like “intimate friend.” This caused some degree of confusion when missionaries arrived asking to become the intimate friends of the Hawaiian nobility.
+
+-u/Groen_Fischer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. When the future Edward VII balked at his mistresss accounts saying, “Madam I have spent enough on you to build a battleship,” she replied, “and you have spent enough in me to float one.”
+
+-u/Groen_Fischer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. President Lyndon B Johnson was obsessed with his penis and used it to control those around him. He gave it the nickname Jumbo. Hed threaten Senators by saying he was gonna sleep with their wives and if he went to the bathroom in the middle of a conversation, he expected the other person to follow him into the bathroom to continue the conversation and would get upset if they tried to just wait outside. Sometimes he would swing around while standing at a urinal and talking to someone, leaving his genitals exposed. He also drove himself around on his ranch and stopped to pee on the side of the road so the Secret Service Agents had to cover him and there was a gust of wind that blew the pee onto one of the agents legs and Johnson said that it was his prerogative to pee on the agents leg.
+
+Journalists once asked him why continue the war in Vietnam? and he sent all the women out of the room, took his penis out, flopped it on the table and said, this is why!
+
+-u/SneezyMcBeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Mozart composed a song which literally translates to Lick me in the arse.
+
+-u/no-THC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136045.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">19 Entitled People Who Are Actually The Worst</a><br>
 
 <span style="font-size:4em">1. Some Customers Are Worth Losing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134084.jpg" style="width:100%"><br>
 
@@ -273,7 +396,7 @@ Last updated: 04/02/2022-23:11:31
 
 <span style="font-size:4em">19. This happens way too often. We usually turn off the automatic doors around a minute or two before we close, but it doesnt get locked until exactly 8 (or whenever we are closing), we have had numerous people push the doors open at 8 and look like a deer in the headlights when we say we are closed.Imagine being so entitled that you force one of the doors open and are surprised when you are kicked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87134100.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Memes You’ll Totally Get If You’re over 30</a><br>
+## <a href="#linky7" id="linky6">25 Memes You’ll Totally Get If You’re over 30</a><br>
 
 <span style="font-size:4em">1. Okay, but why did I have a crush on this woman and also hate her guts at the same time?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129075.jpg" style="width:100%"><br>
 
@@ -325,35 +448,49 @@ Last updated: 04/02/2022-23:11:31
 
 <span style="font-size:4em">25. Our nightmares were fueled for 40 days and nights, just on McDonalds commercials alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87129074.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">13 Cool Things People Learned Today</a><br>
+## <a href="#linky8" id="linky7">Marvel Memes for When You Don’t Understand the Timeline</a><br>
 
-<span style="font-size:4em">1. TIL when a city had replaced all their intersections with roundabouts, construction costs dropped $125,000, fuel savings reached 24k gallons/year per roundabout and injury accidents dropped 80%.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021049/87136119/637027742896270000.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136576.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. TIL Paul McCartney was 14 years old when he wrote When Im Sixty Four. When later recorded, it was performed in a lower key and sped up so his voice would sound younger.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021143/87136128/When_I'm_sixty_four.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136577.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. TIL that Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021108/87136121/125256_ms-dar-00185-000-00585_full_1220.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136578.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. TIL that tennis shoes were originally made for the British Navy when on their slippery decks. When the shoes came into the market in 1892, they were known as plimsolls. The shoes were then given the name sneakers because they had no sound when walking.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021110/87136122/best-tennis-shoes-for-travel-cover.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136580.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. TIL that in the 4th century CE, Roman bishop Acacius of Amida sold all the churchs treasures to free 7000 Persian prisoners captured by the Romans during war. The Persian emperor was so impressed by the act that he ordered an end to Christian persecution throughout his empire.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021038/87136118/2e8cc6606c8f82b3aee900573b083053.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136581.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. TIL those charities that collect Pop Tabs from soda/beer cans make money via the recycling value of the metal. 23 tabs are worth 1 cent. 1lb of tabs is worth 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023449/87136137/today-i-learned1.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136582.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. TIL the language of Madagascar is related to the languages of Malaysia, Hawaii, and Easter Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021100/87136120/600px-Malayo-Polynesian-en.svg.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136579.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. TIL Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021121/87136124/download.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136583.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. TIL about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021119/87136123/cynane001.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136584.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. TIL From 1979 until 2007, residents of Naco, Mexico, and Naco, United States, played volleyball over the border fence, batting the ball back and forth between the two countries. A taller border fence meant volleyball could no longer unite the twin towns.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021130/87136125/picture.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136585.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. TIL that a single cough can travel at speeds of 50 mph, and emit about 3,000 droplets in just one go.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023437/87136136/today-i-learned2.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136586.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. TIL that gelatin is obtained by boiling cattle and pig carcasses.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021132/87136126/gelatin-dessert-1.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136587.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. TIL that a California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021141/87136127/science.225.4669.1458.b.fp.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136588.png" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">21 Starter Packs to Confirm Those Stereotypes</a><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136589.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136590.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136591.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103145/87136593/nick.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103157/87136594/drake.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103208/87136595/dc.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103219/87136596/strange.png" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">21 Starter Packs to Confirm Those Stereotypes</a><br>
 
 <span style="font-size:4em">1. This one is way too accurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136633.png" style="width:100%"><br>
 
@@ -396,48 +533,6 @@ Last updated: 04/02/2022-23:11:31
 <span style="font-size:4em">20. Saturday nights were absolutely lit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136652.png" style="width:100%"><br>
 
 <span style="font-size:4em">21. Continental breakfasts are lawless lands.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136653.png" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">Marvel Memes for When You Don’t Understand the Timeline</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136576.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136577.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136578.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136580.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136581.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136582.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136579.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136583.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136584.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136585.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136586.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136587.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136588.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136589.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136590.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136591.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103145/87136593/nick.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103157/87136594/drake.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103208/87136595/dc.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/01/103219/87136596/strange.png" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">13 Secrets Companies Don’t Want You To Know</a><br>
 
@@ -563,7 +658,35 @@ And we all steal, all the employees.</span><br><img src="https://cdn.ebaumsworld
 
 <span style="font-size:4em">32. ’’He wanted to give his best wishes to the bride and groom.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136079.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">21 Fails For People Who Had It Coming</a><br>
+## <a href="#linky12" id="linky11">13 Cool Things People Learned Today</a><br>
+
+<span style="font-size:4em">1. TIL when a city had replaced all their intersections with roundabouts, construction costs dropped $125,000, fuel savings reached 24k gallons/year per roundabout and injury accidents dropped 80%.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021049/87136119/637027742896270000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. TIL Paul McCartney was 14 years old when he wrote When Im Sixty Four. When later recorded, it was performed in a lower key and sped up so his voice would sound younger.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021143/87136128/When_I'm_sixty_four.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. TIL that Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021108/87136121/125256_ms-dar-00185-000-00585_full_1220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. TIL that tennis shoes were originally made for the British Navy when on their slippery decks. When the shoes came into the market in 1892, they were known as plimsolls. The shoes were then given the name sneakers because they had no sound when walking.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021110/87136122/best-tennis-shoes-for-travel-cover.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. TIL that in the 4th century CE, Roman bishop Acacius of Amida sold all the churchs treasures to free 7000 Persian prisoners captured by the Romans during war. The Persian emperor was so impressed by the act that he ordered an end to Christian persecution throughout his empire.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021038/87136118/2e8cc6606c8f82b3aee900573b083053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. TIL those charities that collect Pop Tabs from soda/beer cans make money via the recycling value of the metal. 23 tabs are worth 1 cent. 1lb of tabs is worth 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023449/87136137/today-i-learned1.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. TIL the language of Madagascar is related to the languages of Malaysia, Hawaii, and Easter Island.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021100/87136120/600px-Malayo-Polynesian-en.svg.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. TIL Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021121/87136124/download.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. TIL about Cynane, Alexander the Greats warrior half-sister. Unlike most women of the time, she was given a martial education, and led her own troops into battle. She slew an Illyrian queen in battle, defeated the army of one of Alexanders generals, and after she was killed by Alcetas, his troops rioted.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021119/87136123/cynane001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. TIL From 1979 until 2007, residents of Naco, Mexico, and Naco, United States, played volleyball over the border fence, batting the ball back and forth between the two countries. A taller border fence meant volleyball could no longer unite the twin towns.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021130/87136125/picture.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. TIL that a single cough can travel at speeds of 50 mph, and emit about 3,000 droplets in just one go.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/023437/87136136/today-i-learned2.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. TIL that gelatin is obtained by boiling cattle and pig carcasses.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021132/87136126/gelatin-dessert-1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. TIL that a California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/2022/03/31/021141/87136127/science.225.4669.1458.b.fp.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">21 Fails For People Who Had It Coming</a><br>
 
 <span style="font-size:4em">1. Pretty impressive save</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87133274.gif" style="width:100%"><br>
 
@@ -607,7 +730,7 @@ And we all steal, all the employees.</span><br><img src="https://cdn.ebaumsworld
 
 <span style="font-size:4em">21. Those beans are re-re fried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87133296.gif" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">24 Dank Memes That Escaped From the Containment Zone and Wreaked Havoc Across the Nevada Desert</a><br>
+## <a href="#linky14" id="linky13">24 Dank Memes That Escaped From the Containment Zone and Wreaked Havoc Across the Nevada Desert</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87136312.jpg" style="width:100%"><br>
 
@@ -651,7 +774,267 @@ And we all steal, all the employees.</span><br><img src="https://cdn.ebaumsworld
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87136334.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">43 Choice Randoms For Your Weekly Pleasure</a><br>
+## <a href="#linky15" id="linky14">37 Curious Things People Weren't Expecting</a><br>
+
+<span style="font-size:4em">1. “A collection of keys I found while metal detecting”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I lost my passport two years ago and have been using the same PDF scan as a substitute ever since. This is where I found it today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My girlfriend found a multicolor orange.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My wife and kids spotted this owl in a pipe in a ditch behind their school today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I found a tiny snail climbing a thread of spider silk outside my house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “The result of a moose scratching its antlers against a tree during shedding season”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “I came across this little friend on my walk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I got given a measuring tape without measurements.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This colorful pigeon I saw today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “You can tell the era my thrifted computer bag was made in by the matching iPod case that came with it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “This earring we found on the ground”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My yard has a mole problem, but I never thought I’d find an albino!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Hoar frost I found this morning”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I was the first human to walk down this busy sidewalk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I was the first human to walk down this busy sidewalk today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I found a snow imprint from a bird when it possibly caught its meal.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I bought my house 6 months ago and found this hidden safe when removing an old stove that was left here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “My drain was blocked so I pulled it up and this came out.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My coffee looks genuinely worried about me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136500.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Double-headed sheep”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “My dog’s ’Proton pack capturing a ghost’ birthmark”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The back of my dog looks like an old man with a mustache.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “My loaf of bread kinda looks like ET.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Inside the exhaust stack of my paint booth looks like a portal to another dimension.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Which animal or creature does this ginger resemble?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “This puddle froze with a weird pattern.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This tree that looks like a man ready to start running.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “This drink holder and AC vent look like the face of a cartoon bulldog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “A shadow in my room looks like a cat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “The first chip pulled out of the bag looks like a person ran through it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Angry corn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “This lobster butter that’s happy to be included with dinner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Just a monster bird crossing a street.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “My puppy’s paw beans have spots and resemble a teddy bear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “My girlfriend got up from the couch, and the comforter resembles a gorilla head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “My buddy Koda’s hair on his ear resembles a dog’s face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “Whose head is whose?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136518.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Unlucky People the Moment The Universe Shafted Them</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135600.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">16 Shower Thoughts To Help Keep Your Brain Clean</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130966.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">17 Hidden Things People Found In Their Homes</a><br>
+
+<span style="font-size:4em">1. Found this locked safe under the carpet of an estate home I recently purchased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Our new to us house has a secret panic room that wasn’t included in the listing! Built in 1978 and i love this place!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A wall was removed in a Victorian house we are working at which revealed an old cast iron fireplace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I found a secret tunnel under my stairs in the house I’m renting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Found the original wainscoting in our 1895 Victorian hiding behind the drywall
+
+895 house in Massachusetts. Demo of an ugly closet in this room has revealed the original wainscoting! We were planning to replicate the original we found in the closet and apply it all around the room, but I guess now we don’t have to!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A carving found under old sheetrock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My dorm’s lobby has a secret door</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I previously posted about uncovering Victorian tile under a faux (and poorly built) fireplace in my 1880 home. Here’s what we found after completely removing the bottom portion – hoping to find the same along the wall when the rest is removed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Old brass doorbell hiding under layers and layers of paint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Removed the carpet in one of the bedrooms to do up the hardwood flooring, found these ink prints from old newspaper underlay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This old outlet we found under our carpets when redid them!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A bookcase in my new house opens up to a secret room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. We removed some decades old linoleum flooring and found a linoleum “rug” underneath.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Our old Soviet built home has a bookshelf that can be opened into a tiny secret room :,)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Secret Room (panic room)?
+
+I’m an electrician and was working on an old home built in 1935. I found a secret door there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Clearing the garden on a house I bought a year ago and found a hidden key from the previous owners</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hidden room in my great aunt’s old house</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135855.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">30 People Who Think They Are Better Than Everybody Else</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135794.jpg" style="width:100%"><br>
+
+## <a href="#linky20" id="linky19">43 Choice Randoms For Your Weekly Pleasure</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87136424.jpg" style="width:100%"><br>
 
@@ -738,387 +1121,4 @@ And we all steal, all the employees.</span><br><img src="https://cdn.ebaumsworld
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87136465.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87136466.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">24 Unlucky People the Moment The Universe Shafted Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87135600.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">17 Hidden Things People Found In Their Homes</a><br>
-
-<span style="font-size:4em">1. Found this locked safe under the carpet of an estate home I recently purchased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Our new to us house has a secret panic room that wasn’t included in the listing! Built in 1978 and i love this place!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A wall was removed in a Victorian house we are working at which revealed an old cast iron fireplace</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I found a secret tunnel under my stairs in the house I’m renting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Found the original wainscoting in our 1895 Victorian hiding behind the drywall
-
-895 house in Massachusetts. Demo of an ugly closet in this room has revealed the original wainscoting! We were planning to replicate the original we found in the closet and apply it all around the room, but I guess now we don’t have to!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A carving found under old sheetrock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My dorm’s lobby has a secret door</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I previously posted about uncovering Victorian tile under a faux (and poorly built) fireplace in my 1880 home. Here’s what we found after completely removing the bottom portion – hoping to find the same along the wall when the rest is removed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Old brass doorbell hiding under layers and layers of paint</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Removed the carpet in one of the bedrooms to do up the hardwood flooring, found these ink prints from old newspaper underlay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This old outlet we found under our carpets when redid them!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A bookcase in my new house opens up to a secret room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. We removed some decades old linoleum flooring and found a linoleum “rug” underneath.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Our old Soviet built home has a bookshelf that can be opened into a tiny secret room :,)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Secret Room (panic room)?
-
-I’m an electrician and was working on an old home built in 1935. I found a secret door there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Clearing the garden on a house I bought a year ago and found a hidden key from the previous owners</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hidden room in my great aunt’s old house</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135855.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">16 Shower Thoughts To Help Keep Your Brain Clean</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87130966.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">12 Common Myths People Falsely Believe Are True </a><br>
-
-<span style="font-size:4em">1. There is no gravity in space. Actually, gravity is everywhere. It shapes the orbits of the planets, the solar system, and even the galaxies. It is true that gravity decreases with distance. So the further you are away from a planet or star the less gravity you feel. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-Gravity is pulling us down, so every ship in the orbit around the Earth is slowly falling toward our planet. And since the ship and our astronauts are falling at the same speed and the latter have nothing to press against, they feel so weightless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lightning never strikes the same place twice. That’s a nice proverb, but a little bit far from reality. Of course, repeated lightning strikes have a very low probability, but they are not impossible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Take for instance the Empire State Building which is struck by lightning about 20-25 times each year. The building was once struck 8 times in 24 minutes, so being hit several times within a short time span isn’t that unusual after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. All dinosaurs went extinct after an asteroid hit the Earth. Sometimes it seems like we learned this in school. In reality, though, the asteroid killed about 75 percent of all plants and animal life on the planet, some small species of dinosaurs survived and evolved into birds. This fact is supported by fossils dated after the so-called K-T event. Yet the extinction also provided evolutionary opportunities. Before the event, mammals tended to become dinosaurs’ meals. After that mammals, at last, got a chance to evolve into larger and more complex species, like horses, whales, bats, and primates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Doing crunches will give you a flat stomach. Unfortunately, we cannot target fat loss in our bodies. We can only build more muscle. So doing crunches alone won’t give you a flat super-impressive stomach with that ever-elusive 6-pack. If you don’t eat healthily and don’t do cardiovascular or full-body training in addition to that, you’ll just build lots of muscle under your belly fat and it may seem even bigger than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The 5-second rule.  It is still believed that if you drop some food on the ground and pick it up within 5 seconds, it is safe to eat it without rewashing. Some people extend that to 10 seconds, some think it helps them to develop a robust immune system, others simply don’t care much about it. But either way, there are too many germs on the floor and if something lands on them they immediately stick to it, no matter whether it is food or not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There’s a dye in pool water that detects urine. This “scary” myth came right from our childhood. And really there’s no better “remedy” in this case than making kids believe they can be caught peeing by some super-cool ingredient that they add to pool water. While in reality there is no such thing as a urine-detecting dye even though there are many warning signs that the pool is monitored with a chemical “pee alert.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Touching a toad will give you warts. This myth probably originates from the fact that toads have many wart-like bumps on their skin. In reality, those are just glands and toads don’t secrete anything that can cause warts on our skin. As dermatologists say, actual warts are only caused by human viruses. Though the toads’ glands may contain poison that really irritates the skin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Penguins fall backward when they look up at airplanes. Legend says that British pilots were buzzing around the islands off the coast of South America and they saw penguins toppling over like dominoes when the birds looked skyward. Well, scientists tested this story and found out that these amazingly awkward creatures can maintain their footing perfectly, even while looking upward. Though low-flying aircraft can really cause them to panic and leave their nests.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Opossums hang by their tails. This myth has also appeared in some popular movies. And like many others, this myth is also totally illogical and absurd. Sure opossums can grasp branches with their tails while climbing trees and babies can hang by their tails for a little while. But adult opossums are too heavy to do that for more than just a few seconds. Besides, it is completely useless because would inhibit their survival. All in all, they simply have no reason to do this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. If you touch a baby bird with your bare hands, its mother will reject it. It is common among parents to not allow their children to touch any nests or the baby birds inside them. Also, it is believed that even if you pick up a lost baby bird and return it to its nest, its mother will reject it because of the human smell on its dear baby. In reality, most wild animals have a very strong bond with their babies and they won’t abandon them no matter what.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135690.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">32 Police Officers Share Their Most WTF Moments</a><br>
-
-<span style="font-size:4em">1. Not me, but my friend is a cop. He pulled up to an accident scene once involving a motorcycle. Gets out of his car, starts walking over, and sees the guys helmet. Figures he’ll be nice and bring it over to the guy. Well, as it turns out, the guy was still in the helmet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The kid drowned at a local pool so I had to tag along with the ambulances for an investigation. I got there first and saw his father holding him crying and my heart sank. I ran over there and tried to perform CPR to the best of my ability for about 10 minutes before the ambulance arrived... he woke up right as it pulled onto our street. I preceded to visit him in the hospital and now he swears he wants to be a police officer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not me but my grandpa was on the California Highway Patrol for 20 years.
-He always told the story of how he pulled over this guy for a busted taillight. My grandpa asks him for his license and registration, and the guy says, “how’d you catch me so fast?”
-
-Grandpa said the hair on the back of his neck never again stood up half so fast. Turned out the guy had robbed a bank not five minutes before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I pulled up on a teen sleeping in a vehicle at the end of a country road. When I ran the license plate, I found out that he was reported as a runaway. The doors on the vehicle were locked, so I knocked on the window to wake him up. Once he woke up and realized what was going on, he shot himself in the mouth with a rifle he had hidden under his blanket. Rough way to start my shift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im putting this story in just to lighten the mood. I observed this, Im not a cop. Two cop cars were rounding the corner of an intersection, in opposite directions. They crash but were going slowly enough that no one was hurt. They both got out of their cars, laughing, pulling out their ticket pads, and started writing each other tickets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. As a rookie, I was responding to an alarm at the restaurant that was supposed to be “haunted by a woman.” The first officer that arrived was an older officer that didn’t do much and didn’t even get excited on the radio. As soon as he arrived he asked for a second unit in a high-pitched tone. As I pulled in he had his shotgun out and he was leaned up over his hood. My first thought was “ oh s**t someone is breaking in “. When I ran up to him and asked what was up. All he said was as he pulled up and his lights hit the building a woman jumped off the roof and disappeared. He was clearly shaking. I and another officer checked the building and found no evidence that someone had been there. It made an impression on me and I never went back to the restaurant at night without another officer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A law prof in Australia spent 20 years as a cop before becoming a lawyer and eventually teaching. In explaining the battered wife syndrome defense to murder, he told a story of a call to a little old ladys house where she had said on the phone that she had [taken out] her husband. Before this incident, he didnt really understand why it existed. Why doesnt the woman just leave? Why doesnt she just go to someone elses house?
-
-Prof shows up at the door and is greeted by a little old lady saying come in, would you like some tea? He goes in and she starts putting some cakes on a tray and pouring tea. He wonders if shes all there.
-
-He asked, so you said that you [took out] your husband on the phone, would I be able to see him? She directs him to the living room where the old man was on a lazy boy chair, bottle in hand, and a tomahawk in his skull. Meanwhile, the old lady is asking if he takes sugar or milk in his tea.
-
-The prof said at this moment he realized why the defense of battered wife existed. The drunk old guy had been beating her for years, controlled all the money, and didnt let her have friends. She had nowhere to go even if she left him. So on this day, after saying he was going to beat her if his sports team lost, she took matters into her own hands.
-
-He said this was the moment he realized that sometimes there are situations where life doesnt make sense and people take the only way they can see.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Former paramedic here: I responded to a crash on the highway that required the extrication of the driver. I hop in the back seat and hold c-spine as the fire starts taking off the door, cutting posts, etc.
-
-The driver starts asking where Mollie and Fred are, and if they’re ok. I’m confused because she was the only occupant of the car. I ask her if she’s talking about the other car and she says “No, they’re my pet tarantula and snake.” I look in the floorboard and there are the remains of two terrariums, but no Mollie or Fred.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My husband has been a police officer for over 20 years. One night he was patrolling the downtown area when he noticed a purse someone had left behind. He opened the bag to check for id and found a turd. Some lady [pooped] in her handbag and left it behind. Hell talk about autopsies and burnt bodies, but that is the one story he would rather forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My older brother is a cop. He got a call about a [disturbed] teenager behind a school with a knife. He rolled up to the spot and when the kid noticed him he immediately started hacking at his own neck with the knife. My brother sprints over to him and tases him. Saved the kids life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ex-cop from NSW Australian here. A guy once passed away in a motorcycle accident. We went to deliver the message to his girlfriend. After reading the collision report the truck driver said he just pulled straight in front of him like he deliberately was trying to take his own life. She was not answering so we forced entry. The shelves of the fridge were on the kitchen floor. Opening the fridge we discovered multiple pillowcases with her cut-up body inside. That was certainly an ‘oh s**t’ moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Nothing makes you go oh s**t more than stopping an obvious drunk, feeling like you could be stopping a homicide in progress, to realizing you know the person...maybe you know them really well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Got a call for an emotionally disturbed person. Arrive on scene and a 350lb man built like an NFL lineman is passed out of on the floor face down. His wife says he suffers from PTSD from the first Iraq war and that he was an army ranger. He had been drinking heavily. His son is on scene and about 16 years old. The man begins to wake up and proceeds to smash his forehead into the ground, repeatedly. We call for an ambulance. A small pool of blood begins to form on the floor. The wife grabs a rag and goes to wipe it up when this guys head jerks up real quick, his face contorted in rage. He grabs the wife by the neck and throws her clear across the room onto the couch. We immediately jump on him but he is preternaturally strong. There are four of us and we are each fighting one limb. The kid jumps in and helps us get two sets of cuffs on him because one set was not wide enough to connect his wrists behind his back. I ride in the ambulance to the hospital with him while he glares at me angrily reciting his military registration number and telling me I wont get any information out of him and that Im a towel head (I dont remotely look like Im from the region). The entire ride I hope that he doesnt break out of the cuffs. If Im being honest, Im not sure we wouldve gained control of him if the kid hadnt helped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Former Paramedic.
-
-Known former gang member, and seriously bad dude who was suffering from epilepsy. It was known that when he was postictal (after the seizure) he would revert to his gangland days and anyone in uniform he wanted to fight. Hey look, ambulance drivers wear uniforms.
-
-Got a call to his known address, me and my partner are the first to arrive on the scene. I already had the Valium and Versed drawn up and was ready to hit him with a knock you out dose. As I got to the door his mother (a very sweet lady) was hollering hes coming to!!!
-
-I jumped on top of him and with all my might hold him down and rode him like I was on the Pro Bull Riding Rodeo Tour. My partner was able to get the meds into him IM which takes longer to work than IV so I had to do that for the next 5-7 min till Fire showed up. I was exhausted and not really wanting to get my a*s beat rode that bull till 5 more guys took over, I rolled off and was just done.
-
-3 hours later I ended up back at the hospital and he was in there. He apologized, always did, and said he never fought with anyone as tough as me. Thank god for being 40# heavier and a pocket full of mind-altering drugs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Not me personally (well, yes and no), but my mother is a police officer and she was pregnant (with me). She went to a call, on the last day before she starts her maternity leave, about a man who was locked in his house and threatening to [take his own life]. She entered the premises with other officers, and like an idiot (I love my mom but...) the pregnant lady takes point. She entered the bathroom where the guy was holed up, and he was sitting in a bathtub with a revolver pointed right at the door, so she yells GUN! and pushes the other officer with her back outside. When they finally claimed the guy and got the gun from him they checked it and said it looked like all the primers had been struck but since it was really old ammunition they didnt go off. She went on her maternity leave and had me and said she almost didnt go back because of that. Now shes a police chief.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Just checked onto my shift. As I turned my patrol car on, my radio was in a mid-broadcast about an accident just outside the city I work in. I voluntarily checked in route to help out the best I could. While heading there, I was informed that it was actually closer to the next city over but that I would still be the first one there. I was then told it was a head-on collision. I arrived on the scene about a minute later. It was in fact a head-on collision. 5 people from one vehicle were not wearing seatbelts. All 5 were fatally injured beyond any measure. There was nothing I could do. A doctor showed up on the scene shortly after me. Nothing he could do. I watched 2 adults and 3 children [pass away] in front of my eyes. The 6-year-old little girl just stared at me unblinking as she passed... I still get emotional.
-
-They were students at our elementary school. I knew them because I routinely go to that school just to see the little kids and give them junior police stickers, take pictures with them and let them play with my gadgets and police car. I went to the memorial service that the school put on for the girls to pay my respects. Their father was there and didnt know who I was or that I was the first one there or what I saw. He was talking to another father, clearly in between denial and anger phases, about how he wished he knew what officer it was on the scene so he could [take his life] for not doing anything and why didnt he do anything and blamed me for their [passing way]. That was really hard to hear. I wish I was a superhero and could have used magic powers to save those poor children. Im sorry little ones. You deserved to live your lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This happened in August of last year, was about 1-2 in the morning when a 911 hang-up call came in where all that was heard was screaming and swearing.
-
-I was the closest unit, riding alone as my partner had been voluntold for another assignment that set of days, so when I got out into the area, I was initially waiting for backup however as I was walking up to the house, I heard several voices screaming.
-
-Rushing up to the house, the first thing I noticed was blood.... everywhere. The floor, the walls, the door, are all covered to shoulder height. A distraught woman screamed and pointed me towards the living room.
-
-Once I get into the living room, I see a male and female on a couch, both covered in blood. The male had a massive laceration on his right forearm, and the female had taken a belt and snake wrapped it around his arm to try and stop the bleeding. Seeing how the belt was applied, I knew it wasn’t doing anything to stop the blood flow, so I pulled out my tourniquet and as I prepped it said to the guy “This is gonna hurt like hell, but it’ll stop the bleeding”
-
-I applied the tourniquet just above the top of his bicep and knew it was on properly when he told me his hand had started to go numb. It was at that point I noticed a second deep gash on his tricep that went down to the bone.
-
-It took EMS about 15 minutes to get to the house, and the paramedic made it abundantly clear that had I not applied the tourniquet, the male would have bled out long before they were able to get there.
-
-In the end, turns out the guy had come home drunk and forgot his keys... climbed up to a second-story window, and punched his way into the house, with near-deadly results.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My mate had an oh s**t moment on his first week of solo traffic patrols.
-
-Pulled a drunk guy over and the trunk literally had 2 people just chilling in it asleep</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Not me, but my brother.
-
-My brother was hit by a drunk driver on Interstate 30 in Fort Worth in July 2017. Went flying, laid there for a second, and then got up and arrested the guy who hit him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Was at a traffic stop. My Sergeant came and backed me up due to having to possibly tow the vehicle. My Sergeants vehicle was behind mine and we were both in the right lane. My Sergeant was sitting in his car and I exited my car to go talk to him. As I walked closer to his car I heard a vehicle’s engine rev all the way out but I couldn’t see it. For a split second, I knew what was going to happen and thought oh s**t but couldn’t react fast enough. The vehicle I heard smashed into the back of my Sergeant SUV which struck me, throwing me into the road. The driver was completely hammered and didn’t have a license. This happened last Sunday and I have surgery in a couple of weeks for my knee and my Sergeant has a broken back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. We happened to be right on top of the scene when a carjacking with a gun call went out. I saw the car fishtailing in the snow half a block away. We started to chase, and the driver bailed immediately in the driveway of an apartment. I chased him up a hill while my partner ran around the building to cut him off. Just as I crested the hill, a shot rang out - he fired blindly behind him, the old to whom it may concern shot. We chased him through a church parking lot where the bingo game was just letting out, so no return fire. Caught him in a backyard behind the church. The department gave us nice plaques. And cake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. We were looking for a guy who stole guns from his ex and found him under a pile of clothes in a closet at a different house. Unfortunately, there were like 7 kids sleeping in the same room so I start getting them out of there while my partner cuffed the guy who was pretending to sleep. We decided to drag him out and I go to move the mattress to get it out of the way and we found the stolen guns under where the kids were sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Back when I was an MP, I was assigned to write up abandoned vehicles on an area on a post and found a nasty one with busted out windows no plates while checking it out noticed a couple of wires running from the front to the back. Lifted something in the back and [found this]
-
-A lot of phone calls above my head determined that it was an unlabeled training tool that had been left just laying out in the public by some unit on the post. The next day it had “training” spray-painted on the side to keep anyone only from having the same oh-s**t moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Police paramedic- Went to a bad MVA. When I got home from work I noticed my boot was clicking on my kitchen floor. I thought it was a stone stuck in the tread but it was leftover bits of a fragmented skull. There was some brain in there too.
-
-I decided to trash the boots. I mean, they werent totally worn out, but then again Im not scrubbing brain matter out of my boots at 5 am in my kitchen sink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. When I was responding to a simple trespass after a warning call and upon me making contact with the trespassed individual, he charged me and my zone partner with a pair of scissors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I’m not an officer but my friends dad was. He got a call that someone took their own life at a residence and he didn’t find out until he drove over that it was the guys daughters 5th birthday. He got drunk with the other dads and they decided to play Russian roulette, with 1911.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My cousin is a cop in St. Louis. After graduating from the academy, his very first night on patrol was the night the Ferguson riots started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My BIL was a police officer in a beach town with a large military presence. On one of his first days as an officer, he responded to what sounded like a fairly routine car accident but when he arrived he found a car on fire and a person trapped inside. While he’s pulling the guy out he realized that the persons leg was severed, so once he got far enough away from the burning car he had to put a tourniquet on the dudes leg. A higher ranking officer responded after my BIL gave a better description of the scene and that guy ended up getting some kind of award for his “heroic actions”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Former MP here. Partner and I were riding around when we saw another unit dip into a Weapons Storage Area. Figured eh let’s see what they’re up to. Rolled up to the gate and the guard says “You guys here for the bomb leak?”
-
-I’m sorry, what? We are now. Hit the gas and went rolling in to find the fire department and all there investigating.
-
-Had to evacuate the entire weapons area, most of the supply area across the street as well as most of the flight line. Something like a 3000-meter cordon. That was a fun day.
-
-Ended up just being sealant for anyone interested in the outcome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Was a police intern, maybe about my second month in. I got to ride around and help with traffic stops and basically just help the officer on duty. Fairly small town, nothing ever really happened there - mostly just drunks and domestic calls. One afternoon I was with a cop new to the force, fresh from working in the prison. Great guy, anyhow, we are running a speed check on the outskirts of town and find a guy on a motorcycle speeding with no helmet (illegal at the time). Hit the lights, pulls over with no incident. We get out, guy doesn’t even turn around, barely answers the questions through his teeth. Back to the cruiser and run his license. Comes back with several out-of-state warrants with a BOLA attached due to an armed assault against a police officer. We both looked at each other and back at the dude on the motorcycle. Officer immediately unlatches the shotgun from the center console and hands it to me - “If you know how to use this thing, use it”, was all he said. (OH S**T) Without notice, other officers from surrounding towns are already lining up behind us, thank god. The dude was thankfully tired of being on the run and was ready to turn himself in. He went in without incident.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. My husband got a call for a psychiatric emergency when working as an Emt. A kid on a 4 wheeler saw a pickup crash into a stone wall in a field and called the police, who called EMS. Apparently, the driver had driven into the wall intentionally and stabbed himself in the abdomen as well, and then [bled out] or [passed away] of head injuries until someone found him. As my so was leaning in to turn off the engine the truck ran out of gas. That was the weirdest one hes told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87135832.jpg" style="width:100%"><br>
-
-## <a href="#linky20" id="linky19">25 Insane and True Facts About History</a><br>
-
-<span style="font-size:4em">1. Napoleons wife had a friend who was known as Government property because she had banged so many ministers of state.
-
--u/justincredible667
-
-https://www.reddit.com/r/AskReddit/comments/thnmmc/whats_a_nsfw_history_fact_that_we_dont_often_hear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The British Academy of Science redacted massive amounts of the first published observations of penguins by biologists. Penguins are the worst. So much rape. So much necrophilia. The Academy decided the public wouldnt handle it well.
-
--u/No-Statement-3019</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136022.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. In the Ottoman Empire, the sultans wife could only eat her cucumbers chopped, so that she doesnt masturbate.
-
--u/JokerMain03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Julius Wagner-Jauregg won the 1927 Nobel prize for medicine by giving people malaria
-
-The fever from the malaria would go so high that it could kill off an otherwise untreatable syphilis infection. Left untreated syphilis could lead to insanity so it was pretty bad thing. In comparison, having malaria, which we had treatments for, was a blessing
-
--u/ApteronotusAlbifrons</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In July 1184, Henry VI, King of Germany (later Holy Roman Emperor), held court at a Hoftag in the Petersberg Citadel in Erfurt. On the morning of 26 July, the combined weight of the assembled nobles caused the wooden second-story floor of the Peterskirche to collapse and most of them fell through into the latrine cesspit below the ground floor, where about 60 of them drowned in liquid excrement.
-
--u/KiakiHawk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There is a man named Eben Byers who is entombed in Pittsburghs Allegheny National Cemetery. He was a golf pro and socialite who ended up being the victim of quack medicine. He consumed so much Radithor (Radium dissolved in water) that just prior to his death his jaw literally eroded off of his face. His mausoleum has him in a lead coffin because hes still radioactive.
-
--u/Extrasherman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ammonia-rich fumes from a castles toilet system were used to delouse clothes inside special closets.
-
--u/lazermaniac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. William C. Minor, one of the contributing writers of the Oxford English Dictionary, chopped off his penis using the pocket knife he used to cut the bound pages of his old first edition book.
-
--u/quamazotz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. After Napoleon’s death, it’s been alleged (and told to me by a historian at Les Invalides) that his penis was cut off and sold and exhibited through the early 20th century. It was described in 1927 as resembling a “piece of leather” or a “shriveled eel”
-
--u/unreadybean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. At the beginning of World War II, in Great Britain, over 750,000 domestic animals were euthanized out of fear that rations would be spread too thin and pet abandonment would lead to masses of strays. The National Air Raid Precautions Animal Committee (NARPAC) sent pamphlets out to homes suggesting that people should send their pets to the countryside or [kindly] have them destroyed. This later became known as the British Pet Massacre.
-
--u/Asaella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Romans used to execute criminals in the Colosseum by recreating myths.
-
-A woman was raped to death by a specially trained bull (Pasiphae) A man was given wings and thrown across the Colosseum (Icarus) Another was made to play an instrument and then be torn apart by animals (Orpheus) and many, many more.
-
--u/wugmuffin12</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. It used to be thought that blowing tobacco smoke up someones ass was a way to revive them. Some swimming pools actually had a kit, with a bellows-type device, to blow smoke up the ass of a drowning victim.
-
--u/No-Process3677</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The CIA gave unsuspecting civilians LSD and then observed their interactions with hookers (paid informants) while under the influence, for experimental purposes. This operation was called Midnight Climax.
-
--u/Snoo_69677</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. James Joyce had a fart fetish. He often wrote about it in letters to his lover.
-
-You had an arse full of farts that night, darling, and I f**ked them out of you, big fat fellows, long windy ones, quick little merry cracks, and a lot of tiny little naughty farties ending in a long gush from your hole. It is wonderful to f**k a farting woman when every f*ck drives one out of her.
-
--u/ghigufa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Didnt the author of Frankenstein, Mary Shelley, lose her virginity on her mothers grave?
-
--u/Air2799</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Anton Leeuwenhoek, the father of microscopy, used his invention (the microscope) on his own sperm after one night with his wife. Sperm was unknown at the time and he thought they were little people
-
--u/onboarding972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Thomas H. Boston Corbett, the guy who killed John Wilkes Booth (Lincolns assassin) was a raging lunatic who cut his own balls off with a pair of scissors after passing a couple of prostitutes on the street. He did not seek medical attention after he did that until after he had gone to a prayer meeting and had dinner. He also escaped from an insane asylum on horseback and was never seen again.
-
--u/Thunda792</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Felix Fauré, French president from 1895 to 1899, died while getting head.
-
--u/PioneerDingus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In ancient Egypt, the Pharaoh would periodically masturbate into the Nile as a ritual of sorts to guarantee good harvests.
-
--u/Jon__Snuh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Brazilian Emperor built a huge personal library just so he could freely shag his mistresses without being bothered.
-
--u/Much_Committee_9355</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136040.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Mongols had a rule: Youre not allowed to kill the leader of a country (or city-state) by piercing their skin.
-
-So they came up with ingenious ways of killing people. There were stories of a potential Khan that boiled a man alive; other stories include pouring molten gold down a mans throat.
-
-Though not necessarily NSFW, Genghis Khan gave cities the option of surrendering, or face the option of killing every man, woman, and child in that city. He would literally genocide everyone in that city because the ruler wanted to fight back. And thats how Genghis Khan killed 10% of the worlds population at that time; 20-40 million people.
-
--u/TheSaltyPineapple1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hawaiian kings commonly had “harems” of both male and female lovers. The first European to make a Hawaiian to English dictionary didn’t want to scandalize his Victorian readers so translated the term for the male lovers to something like “intimate friend.” This caused some degree of confusion when missionaries arrived asking to become the intimate friends of the Hawaiian nobility.
-
--u/Groen_Fischer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. When the future Edward VII balked at his mistresss accounts saying, “Madam I have spent enough on you to build a battleship,” she replied, “and you have spent enough in me to float one.”
-
--u/Groen_Fischer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. President Lyndon B Johnson was obsessed with his penis and used it to control those around him. He gave it the nickname Jumbo. Hed threaten Senators by saying he was gonna sleep with their wives and if he went to the bathroom in the middle of a conversation, he expected the other person to follow him into the bathroom to continue the conversation and would get upset if they tried to just wait outside. Sometimes he would swing around while standing at a urinal and talking to someone, leaving his genitals exposed. He also drove himself around on his ranch and stopped to pee on the side of the road so the Secret Service Agents had to cover him and there was a gust of wind that blew the pee onto one of the agents legs and Johnson said that it was his prerogative to pee on the agents leg.
-
-Journalists once asked him why continue the war in Vietnam? and he sent all the women out of the room, took his penis out, flopped it on the table and said, this is why!
-
--u/SneezyMcBeezy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Mozart composed a song which literally translates to Lick me in the arse.
-
--u/no-THC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87136045.jpg" style="width:100%"><br>
 
