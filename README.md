@@ -1,67 +1,75 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/05/2022-17:11:32
+Last updated: 04/05/2022-18:11:31
 <br>
-## <a href="#linky2" id="linky1">30 Unusual Things People Weren't Expecting to See</a><br>
+## <a href="#linky2" id="linky1">34 Insanely WTF Haircuts to Baffle You</a><br>
 
-<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
 
@@ -159,41 +167,123 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">17 Comparisons Showing the Power of Time</a><br>
+## <a href="#linky4" id="linky3">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
-<span style="font-size:4em">1. “Cancer took away my hair when I was 18, the side effects of chemotherapy, unfortunately, made sure it didn’t grow back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137424.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “The way my wedding ring has changed my finger over nearly 7 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137430.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “This smaller rock drilled a perfect hole through this bigger rock over time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137431.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Day and night in Nuuk, Greenland”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137439.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My mama and me — best friends then, best friends now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137425.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Then and now, nothing has changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137426.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “First time I saw my son, Zeus, was 4 years today. Crazy how much we’ve changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137427.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “My 78-year-old grandmother, then and now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137428.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138340.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Then and now: my grandmother, her sister, and her maternal cousins. Top photo was taken in 1938, the second one in 2018.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137429.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “This impressive tea staining in my mate’s mug — you don’t even need a teabag to make a mug of tea!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137432.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Then and now, same stoop. 71 years ago, my grandmother dated this guy. They reacquainted 2 years ago and recently got married!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137423.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “4 years ago, I took a photo of my son. Over the years, his behavior in the morning has not changed. Typical owl...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137433.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Before and after the rescue — our foster kitty, Hamilton, cleans up nicely!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137434.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “It’s amazing how so much and so little can change over the course of 5 years. I love these guys (I’m the one in the middle).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137435.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Only a couple of things have changed over 15 years...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137436.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Then vs now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137437.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Like father, like son! His picture was taken over 30 years ago. Mine was from today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137438.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138391.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">56 of the Most Awesome Randoms You'll See all Day</a><br>
 
@@ -309,39 +399,7 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013508/87137574/87137258.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">15 Coincidences People Weren't Expecting</a><br>
-
-<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
+## <a href="#linky6" id="linky5">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
 
 <span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
 
@@ -393,75 +451,99 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">34 Insanely WTF Haircuts to Baffle You</a><br>
+## <a href="#linky7" id="linky6">15 Coincidences People Weren't Expecting</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
+## <a href="#linky8" id="linky7">30 Unusual Things People Weren't Expecting to See</a><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">41 Weird And Cool Things People Saw</a><br>
 
