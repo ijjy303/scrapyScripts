@@ -1,93 +1,43 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/05/2022-13:11:31
+Last updated: 04/05/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">15 Coincidences People Weren't Expecting</a><br>
+## <a href="#linky2" id="linky1">17 Comparisons Showing the Power of Time</a><br>
 
-<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Cancer took away my hair when I was 18, the side effects of chemotherapy, unfortunately, made sure it didn’t grow back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “The way my wedding ring has changed my finger over nearly 7 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “This smaller rock drilled a perfect hole through this bigger rock over time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Day and night in Nuuk, Greenland”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My mama and me — best friends then, best friends now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Then and now, nothing has changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “First time I saw my son, Zeus, was 4 years today. Crazy how much we’ve changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “My 78-year-old grandmother, then and now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Then and now: my grandmother, her sister, and her maternal cousins. Top photo was taken in 1938, the second one in 2018.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “This impressive tea staining in my mate’s mug — you don’t even need a teabag to make a mug of tea!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Then and now, same stoop. 71 years ago, my grandmother dated this guy. They reacquainted 2 years ago and recently got married!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “4 years ago, I took a photo of my son. Over the years, his behavior in the morning has not changed. Typical owl...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
+<span style="font-size:4em">13. “Before and after the rescue — our foster kitty, Hamilton, cleans up nicely!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “It’s amazing how so much and so little can change over the course of 5 years. I love these guys (I’m the one in the middle).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Only a couple of things have changed over 15 years...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137436.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">26 Times Things Aged Like Milk</a><br>
+<span style="font-size:4em">16. “Then vs now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669831.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Like father, like son! His picture was taken over 30 years ago. Mine was from today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Microsoft employees holding a funeral for the iPhone following the “success” of their Windows phone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A StarCraft gaming tournament took place 10 years ago and these were the prizes teams could win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669842.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">56 of the Most Awesome Randoms You'll See all Day</a><br>
+## <a href="#linky3" id="linky2">56 of the Most Awesome Randoms You'll See all Day</a><br>
 
 <span style="font-size:4em">1. Im not sure how this happened, or why she hasnt gotten the kid out and cleaned him off already cause it is only going to get worse / be harder the longer she waits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132626.jpg" style="width:100%"><br>
 
@@ -201,7 +151,175 @@ Last updated: 04/05/2022-13:11:31
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013508/87137574/87137258.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">34 Insanely WTF Haircuts to Baffle You</a><br>
+## <a href="#linky4" id="linky3">25 Movies Both Disturbing and Beautiful</a><br>
+
+<span style="font-size:4em">1. Empire of the Sun. This movie wrecked me as a kid (I was about the same age as the protagonist). Went back and watched it as a father, wrecked me again. That ending is an absolute gut shot.-u/Spodson </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Das Boot. It does not hold back or make war look glamorous.-u/12inch_Juicy_Burrito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The original Let the Right One In. Something about it was so eerie and creepy yet peaceful.-u/happy_happosai2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Watership Down. Beautiful artwork. Graphic imagery. My childhood was never the same.-u/ACalcifiedHeart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I will say City of God. A beautiful film, but really disturbing at points with how matter of fact the violence is.-u/eldest_gruff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Perfect BlueI watched it because I heard that it was Aronofskys inspiration for Black Swan (also beautiful yet disturbing). Black Swan doesnt hold a candle to this mindf*ck.-u/mossadspydolphin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. We Need To Talk About Kevin. You know if you’ve seen it.-u/MinionBanana37</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Pans Labyrinth is beautiful, gruesome, and heartbreaking.-u/mattad0rk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137686.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Fargo. Incredibly violent, but very intriguingly wholesome in a way that captures everyday humanity at its best and worst. And the show is even better for all the same reasons.-u/Mindmender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Grave of Fireflies My husband lends this to everyone who will take it because it hit him so hard. He wants everyone to get dragged over a mile of glass by the heart, too, I guess.-u/kahiau26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Requiem for a Dream. I was just at the beginning of my decade-long heroin addiction when I watched it. F*cked me up. But apparently not enough. I have never been able to watch it a second time. I literally felt like I was losing my mind at one point.-u/Queen-of-Elves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Schindlers List This movie is very disturbing, violent, and tragic.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Blue Velvet Disturbing for obvious reasons and beautiful for the absolute mastery that Lynch displays in the writing and directing. The pace and tone are so tightly controlled that the movie has left me stunned with every viewing. Absolute masterwork.-u/so_sads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Dancer in the Dark. Amazing movie, but will never watch again-u/_shes_a_jar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. What Dreams May Come. Yes! This movie is stunningly beautiful visually. The story is very hard and sad but very well done. Thanks for reminding me of it.-u/wubbalubbadubx2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Saving Private Ryan and not just the first 10 minutes - the whole thing is framed and filmed beautifully, particularly the death scenes.-u/Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Eternal Sunshine of the Spotless Mind Itll leave a hole in the heart so big that you cant watch it againAlso showcased how much of an actor Jim Carrey is, apart from being a comedian. -u/Headshot03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137695.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Upstream Color. A mind-bending movie about brain parasites, telepathy, and becoming one with nature.-u/Rexcadere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Road. Incredibly bleak, depressing, and morbid but so beautifully made and resembles the book SO well. Easily one of my favorite movies. The way it captures the desperation and horrible things humans can do to one another but also highlights our innate instinct to push forward and survive (for better or worse). I love that movie. Definitely not a casual watch though-u/justalittlesadIguess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The Truman Show The moment where everything starts to click and he confronts his wife is golden. WHO ARE YOU TALKING TO?!-u/RGX323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Swiss Army Man. It opens with Paul Dano riding Daniel Radcliffe like a jet ski propelled by his farts. Which is absurd. But it also ends with Daniel Radcliffe riding off into the sunset like a jet ski propelled by his farts. And it is beautiful.-u/These-Square8340</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Jacobs Ladder I saw this in the theater, on a day pass from a mental hospital where I was being treated for BPD and PTSD. I sat and cried like a child for ten minutes while the credits rolled. F*cked. Me. Up.Still one of my all-time favorites.-u/MetaJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. American Beauty. Ignoring all of the terrible things that Kevin Spacey did, it was an equally disturbing and good experience.-u/ruchik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Annihilation had a good mix of stunning visuals and horror elements, so I’d say that-u/calvinyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Midsommar A film that creeped me out more after Id finished watching it then when it was on. Great film.-u/count_crow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137702.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">30 Unusual Things People Weren't Expecting to See</a><br>
+
+<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">26 Times Things Aged Like Milk</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Microsoft employees holding a funeral for the iPhone following the “success” of their Windows phone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A StarCraft gaming tournament took place 10 years ago and these were the prizes teams could win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669842.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">34 Insanely WTF Haircuts to Baffle You</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
 
@@ -271,200 +389,57 @@ Last updated: 04/05/2022-13:11:31
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Movies Both Disturbing and Beautiful</a><br>
+## <a href="#linky8" id="linky7">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
 
-<span style="font-size:4em">1. Empire of the Sun. This movie wrecked me as a kid (I was about the same age as the protagonist). Went back and watched it as a father, wrecked me again. That ending is an absolute gut shot.-u/Spodson </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137679.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Das Boot. It does not hold back or make war look glamorous.-u/12inch_Juicy_Burrito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137680.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The original Let the Right One In. Something about it was so eerie and creepy yet peaceful.-u/happy_happosai2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137681.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Watership Down. Beautiful artwork. Graphic imagery. My childhood was never the same.-u/ACalcifiedHeart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137682.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I will say City of God. A beautiful film, but really disturbing at points with how matter of fact the violence is.-u/eldest_gruff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137683.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Perfect BlueI watched it because I heard that it was Aronofskys inspiration for Black Swan (also beautiful yet disturbing). Black Swan doesnt hold a candle to this mindf*ck.-u/mossadspydolphin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137684.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. We Need To Talk About Kevin. You know if you’ve seen it.-u/MinionBanana37</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137685.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Pans Labyrinth is beautiful, gruesome, and heartbreaking.-u/mattad0rk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137686.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Fargo. Incredibly violent, but very intriguingly wholesome in a way that captures everyday humanity at its best and worst. And the show is even better for all the same reasons.-u/Mindmender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137687.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Grave of Fireflies My husband lends this to everyone who will take it because it hit him so hard. He wants everyone to get dragged over a mile of glass by the heart, too, I guess.-u/kahiau26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137688.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Requiem for a Dream. I was just at the beginning of my decade-long heroin addiction when I watched it. F*cked me up. But apparently not enough. I have never been able to watch it a second time. I literally felt like I was losing my mind at one point.-u/Queen-of-Elves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137689.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Schindlers List This movie is very disturbing, violent, and tragic.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137690.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Blue Velvet Disturbing for obvious reasons and beautiful for the absolute mastery that Lynch displays in the writing and directing. The pace and tone are so tightly controlled that the movie has left me stunned with every viewing. Absolute masterwork.-u/so_sads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137691.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Dancer in the Dark. Amazing movie, but will never watch again-u/_shes_a_jar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137692.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. What Dreams May Come. Yes! This movie is stunningly beautiful visually. The story is very hard and sad but very well done. Thanks for reminding me of it.-u/wubbalubbadubx2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137693.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Saving Private Ryan and not just the first 10 minutes - the whole thing is framed and filmed beautifully, particularly the death scenes.-u/Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137694.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Eternal Sunshine of the Spotless Mind Itll leave a hole in the heart so big that you cant watch it againAlso showcased how much of an actor Jim Carrey is, apart from being a comedian. -u/Headshot03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137695.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Upstream Color. A mind-bending movie about brain parasites, telepathy, and becoming one with nature.-u/Rexcadere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137696.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Road. Incredibly bleak, depressing, and morbid but so beautifully made and resembles the book SO well. Easily one of my favorite movies. The way it captures the desperation and horrible things humans can do to one another but also highlights our innate instinct to push forward and survive (for better or worse). I love that movie. Definitely not a casual watch though-u/justalittlesadIguess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137697.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The Truman Show The moment where everything starts to click and he confronts his wife is golden. WHO ARE YOU TALKING TO?!-u/RGX323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137698.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Swiss Army Man. It opens with Paul Dano riding Daniel Radcliffe like a jet ski propelled by his farts. Which is absurd. But it also ends with Daniel Radcliffe riding off into the sunset like a jet ski propelled by his farts. And it is beautiful.-u/These-Square8340</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137699.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Jacobs Ladder I saw this in the theater, on a day pass from a mental hospital where I was being treated for BPD and PTSD. I sat and cried like a child for ten minutes while the credits rolled. F*cked. Me. Up.Still one of my all-time favorites.-u/MetaJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137700.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. American Beauty. Ignoring all of the terrible things that Kevin Spacey did, it was an equally disturbing and good experience.-u/ruchik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137678.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Annihilation had a good mix of stunning visuals and horror elements, so I’d say that-u/calvinyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137701.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Midsommar A film that creeped me out more after Id finished watching it then when it was on. Great film.-u/count_crow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137702.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">29 Odd Items With Simple Explanations</a><br>
-
-<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
-
-Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
-
-Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
-
-Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
-
-Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
-
-Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
-
-Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
-
-Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
-
-Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
-
-Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Spiky plastic thing”
-
-Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
-
-Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
-
-Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
-
-Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
-
-Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
-
-Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
-
-Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
-
-Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
-
-Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
-Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
-Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
-Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
-Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
-Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
-Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
-Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
-Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
-Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
-Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
-Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">17 Comparisons Showing the Power of Time</a><br>
-
-<span style="font-size:4em">1. “Cancer took away my hair when I was 18, the side effects of chemotherapy, unfortunately, made sure it didn’t grow back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The way my wedding ring has changed my finger over nearly 7 years”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This smaller rock drilled a perfect hole through this bigger rock over time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Day and night in Nuuk, Greenland”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My mama and me — best friends then, best friends now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Then and now, nothing has changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “First time I saw my son, Zeus, was 4 years today. Crazy how much we’ve changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “My 78-year-old grandmother, then and now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Then and now: my grandmother, her sister, and her maternal cousins. Top photo was taken in 1938, the second one in 2018.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “This impressive tea staining in my mate’s mug — you don’t even need a teabag to make a mug of tea!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “Then and now, same stoop. 71 years ago, my grandmother dated this guy. They reacquainted 2 years ago and recently got married!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “4 years ago, I took a photo of my son. Over the years, his behavior in the morning has not changed. Typical owl...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Before and after the rescue — our foster kitty, Hamilton, cleans up nicely!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “It’s amazing how so much and so little can change over the course of 5 years. I love these guys (I’m the one in the middle).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Only a couple of things have changed over 15 years...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Then vs now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Like father, like son! His picture was taken over 30 years ago. Mine was from today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137438.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">41 Weird And Cool Things People Saw</a><br>
 
@@ -548,77 +523,7 @@ Answer: It’s a magic square. It’s a popular sort of decoration to put outsid
 
 <span style="font-size:4em">40. “My scar didn’t get dirty at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137743.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
-
-<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">Dude Completely Annihilates Wife’s Pet Goldfish</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138937.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
+## <a href="#linky10" id="linky9">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
 
 <span style="font-size:4em">1. Read a personal finance book that recommended calling your providers once a year (credit card companies, TV/internet providers, cell phone company, etc) and demand a lower rate or price. I’ve been following that advice for two years and have not been denied once.
 
@@ -714,89 +619,35 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">Monday Morning Randomness User Edition - Kenku</a><br>
+## <a href="#linky11" id="linky10">15 Coincidences People Weren't Expecting</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137359.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137360.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137361.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137362.png" style="width:100%"><br>
+<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137363.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137364.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137365.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137366.png" style="width:100%"><br>
+<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137367.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137368.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137369.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137370.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137371.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137372.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137373.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137375.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137376.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137377.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137378.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137380.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137381.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137383.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137384.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137385.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137386.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137387.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137388.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137389.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137390.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137391.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137392.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137393.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137394.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137395.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137396.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137397.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137398.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137399.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137400.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
