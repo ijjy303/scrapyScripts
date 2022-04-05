@@ -1,47 +1,75 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/05/2022-03:11:31
+Last updated: 04/05/2022-04:11:31
 <br>
-## <a href="#linky2" id="linky1">Random Sh*t People Found While Strolling through the Woods</a><br>
+## <a href="#linky2" id="linky1">34 Insanely WTF Haircuts to Baffle You</a><br>
 
-<span style="font-size:4em">1. What once was a perfectly good ski lift, is no more.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136754.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Whats left of an old couch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136755.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A foresters lodge, in fairly decent condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136756.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. An old mill house beside a creek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136757.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This abandoned conveyor, possibly from a mine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136758.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Imagine just stumbling upon a creepy old circus train.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136759.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This gorgeous church which now sits in ruins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136760.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. A legitimate 11-story hospital, just abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136761.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An overgrown bridge over what looks like a river or creek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136762.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This never-ending graveyard of cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136763.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Train tracks that have long since been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136764.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. An entire fighter jet. Dont see that every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136766.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. A Volkswagen Beetle, in not-so-great condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136767.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. You know, just your every day terrifying cemetery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136768.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Stumbling upon an abandoned castle sounds awesome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136769.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. An overgrown abandoned roller coaster in Japan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136770.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. These abandoned train tracks complete with tunnels still intact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136765.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. A cabin abandoned in the wilderness for who knows how long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136771.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. These full size locomotive trains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136772.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. A World War II era swimming pool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136773.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">43 Choice Randoms For Your Weekly Pleasure</a><br>
 
@@ -131,75 +159,63 @@ Last updated: 04/05/2022-03:11:31
 
 <span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87135389.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">34 Insanely WTF Haircuts to Baffle You</a><br>
+## <a href="#linky4" id="linky3">31 Fresh Memes We Found Loitering in the Parking Lot</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136392.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136393.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136394.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136396.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136397.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136398.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136399.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136400.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136401.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136402.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136404.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136405.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136406.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136407.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136409.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136410.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136411.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136412.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136414.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136415.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136416.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136417.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136418.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136419.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136420.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136421.jpeg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">Monday Morning Randomness User Edition - Kenku</a><br>
 
@@ -287,7 +303,97 @@ Last updated: 04/05/2022-03:11:31
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137400.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 Dank Science Memes That Escaped the Lab</a><br>
+## <a href="#linky6" id="linky5">26 Times Things Aged Like Milk</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Microsoft employees holding a funeral for the iPhone following the “success” of their Windows phone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A StarCraft gaming tournament took place 10 years ago and these were the prizes teams could win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669842.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">17 Ruthless Comments and Comebacks </a><br>
+
+<span style="font-size:4em">1. What is the point in even putting this out there?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Gross misuse of government resources </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. She has now been proven wrong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136660.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The comments might be interesting for this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136658.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136657.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Looks like she did</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Caught Red Handed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Maybe he shouldnt be out after 9-5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Roasted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Thats fatherly love right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Come to think of, there are so many things not mentioned in the bible. Were all doomed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. They should say sorry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136672.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Whos the child now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136673.png" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">30 Dank Science Memes That Escaped the Lab</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136546.jpg" style="width:100%"><br>
 
@@ -348,94 +454,6 @@ Last updated: 04/05/2022-03:11:31
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136573.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136574.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 Movies Both Disturbing and Beautiful</a><br>
-
-<span style="font-size:4em">1. Empire of the Sun. This movie wrecked me as a kid (I was about the same age as the protagonist). Went back and watched it as a father, wrecked me again. That ending is an absolute gut shot.-u/Spodson </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Das Boot. It does not hold back or make war look glamorous.-u/12inch_Juicy_Burrito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The original Let the Right One In. Something about it was so eerie and creepy yet peaceful.-u/happy_happosai2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Watership Down. Beautiful artwork. Graphic imagery. My childhood was never the same.-u/ACalcifiedHeart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I will say City of God. A beautiful film, but really disturbing at points with how matter of fact the violence is.-u/eldest_gruff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Perfect BlueI watched it because I heard that it was Aronofskys inspiration for Black Swan (also beautiful yet disturbing). Black Swan doesnt hold a candle to this mindf*ck.-u/mossadspydolphin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We Need To Talk About Kevin. You know if you’ve seen it.-u/MinionBanana37</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Pans Labyrinth is beautiful, gruesome, and heartbreaking.-u/mattad0rk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137686.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Fargo. Incredibly violent, but very intriguingly wholesome in a way that captures everyday humanity at its best and worst. And the show is even better for all the same reasons.-u/Mindmender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Grave of Fireflies My husband lends this to everyone who will take it because it hit him so hard. He wants everyone to get dragged over a mile of glass by the heart, too, I guess.-u/kahiau26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Requiem for a Dream. I was just at the beginning of my decade-long heroin addiction when I watched it. F*cked me up. But apparently not enough. I have never been able to watch it a second time. I literally felt like I was losing my mind at one point.-u/Queen-of-Elves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Schindlers List This movie is very disturbing, violent, and tragic.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Blue Velvet Disturbing for obvious reasons and beautiful for the absolute mastery that Lynch displays in the writing and directing. The pace and tone are so tightly controlled that the movie has left me stunned with every viewing. Absolute masterwork.-u/so_sads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Dancer in the Dark. Amazing movie, but will never watch again-u/_shes_a_jar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. What Dreams May Come. Yes! This movie is stunningly beautiful visually. The story is very hard and sad but very well done. Thanks for reminding me of it.-u/wubbalubbadubx2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Saving Private Ryan and not just the first 10 minutes - the whole thing is framed and filmed beautifully, particularly the death scenes.-u/Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Eternal Sunshine of the Spotless Mind Itll leave a hole in the heart so big that you cant watch it againAlso showcased how much of an actor Jim Carrey is, apart from being a comedian. -u/Headshot03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137695.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Upstream Color. A mind-bending movie about brain parasites, telepathy, and becoming one with nature.-u/Rexcadere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Road. Incredibly bleak, depressing, and morbid but so beautifully made and resembles the book SO well. Easily one of my favorite movies. The way it captures the desperation and horrible things humans can do to one another but also highlights our innate instinct to push forward and survive (for better or worse). I love that movie. Definitely not a casual watch though-u/justalittlesadIguess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Truman Show The moment where everything starts to click and he confronts his wife is golden. WHO ARE YOU TALKING TO?!-u/RGX323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Swiss Army Man. It opens with Paul Dano riding Daniel Radcliffe like a jet ski propelled by his farts. Which is absurd. But it also ends with Daniel Radcliffe riding off into the sunset like a jet ski propelled by his farts. And it is beautiful.-u/These-Square8340</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Jacobs Ladder I saw this in the theater, on a day pass from a mental hospital where I was being treated for BPD and PTSD. I sat and cried like a child for ten minutes while the credits rolled. F*cked. Me. Up.Still one of my all-time favorites.-u/MetaJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. American Beauty. Ignoring all of the terrible things that Kevin Spacey did, it was an equally disturbing and good experience.-u/ruchik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Annihilation had a good mix of stunning visuals and horror elements, so I’d say that-u/calvinyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Midsommar A film that creeped me out more after Id finished watching it then when it was on. Great film.-u/count_crow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137702.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">17 Ruthless Comments and Comebacks </a><br>
-
-<span style="font-size:4em">1. What is the point in even putting this out there?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gross misuse of government resources </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. She has now been proven wrong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136660.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The comments might be interesting for this one</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136658.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136657.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Looks like she did</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Caught Red Handed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Maybe he shouldnt be out after 9-5</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Roasted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Thats fatherly love right there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Come to think of, there are so many things not mentioned in the bible. Were all doomed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. They should say sorry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136672.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Whos the child now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136673.png" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">17 Comparisons Showing the Power of Time</a><br>
 
@@ -669,249 +687,59 @@ Last updated: 04/05/2022-03:11:31
 
 <span style="font-size:4em">40. “My scar didn’t get dirty at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137743.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">19 People Who Shared Things Nobody Asked for Online</a><br>
+## <a href="#linky12" id="linky11">25 Movies Both Disturbing and Beautiful</a><br>
 
-<span style="font-size:4em">1. Now this would freak me the hell out. Also, seems kind of unsanitary while this thing is rubbing up against you while youre taking a duece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136778.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Empire of the Sun. This movie wrecked me as a kid (I was about the same age as the protagonist). Went back and watched it as a father, wrecked me again. That ending is an absolute gut shot.-u/Spodson </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136781.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Das Boot. It does not hold back or make war look glamorous.-u/12inch_Juicy_Burrito</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Well that looks pretty damn disgusting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136788.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The original Let the Right One In. Something about it was so eerie and creepy yet peaceful.-u/happy_happosai2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Never thought of this pun before, kinda funny kinda cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136785.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Watership Down. Beautiful artwork. Graphic imagery. My childhood was never the same.-u/ACalcifiedHeart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The stuff of nightmares.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136783.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I will say City of God. A beautiful film, but really disturbing at points with how matter of fact the violence is.-u/eldest_gruff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Never seen it, but I guess it makes sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136776.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Perfect BlueI watched it because I heard that it was Aronofskys inspiration for Black Swan (also beautiful yet disturbing). Black Swan doesnt hold a candle to this mindf*ck.-u/mossadspydolphin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This show was so wild.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136779.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. We Need To Talk About Kevin. You know if you’ve seen it.-u/MinionBanana37</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136780.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Pans Labyrinth is beautiful, gruesome, and heartbreaking.-u/mattad0rk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137686.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136782.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Fargo. Incredibly violent, but very intriguingly wholesome in a way that captures everyday humanity at its best and worst. And the show is even better for all the same reasons.-u/Mindmender</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136784.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Grave of Fireflies My husband lends this to everyone who will take it because it hit him so hard. He wants everyone to get dragged over a mile of glass by the heart, too, I guess.-u/kahiau26</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136786.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Requiem for a Dream. I was just at the beginning of my decade-long heroin addiction when I watched it. F*cked me up. But apparently not enough. I have never been able to watch it a second time. I literally felt like I was losing my mind at one point.-u/Queen-of-Elves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136787.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Schindlers List This movie is very disturbing, violent, and tragic.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136775.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Blue Velvet Disturbing for obvious reasons and beautiful for the absolute mastery that Lynch displays in the writing and directing. The pace and tone are so tightly controlled that the movie has left me stunned with every viewing. Absolute masterwork.-u/so_sads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136777.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Dancer in the Dark. Amazing movie, but will never watch again-u/_shes_a_jar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136789.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. What Dreams May Come. Yes! This movie is stunningly beautiful visually. The story is very hard and sad but very well done. Thanks for reminding me of it.-u/wubbalubbadubx2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136790.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Saving Private Ryan and not just the first 10 minutes - the whole thing is framed and filmed beautifully, particularly the death scenes.-u/Maxwyfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136791.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Eternal Sunshine of the Spotless Mind Itll leave a hole in the heart so big that you cant watch it againAlso showcased how much of an actor Jim Carrey is, apart from being a comedian. -u/Headshot03</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137695.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136792.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Upstream Color. A mind-bending movie about brain parasites, telepathy, and becoming one with nature.-u/Rexcadere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136793.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Road. Incredibly bleak, depressing, and morbid but so beautifully made and resembles the book SO well. Easily one of my favorite movies. The way it captures the desperation and horrible things humans can do to one another but also highlights our innate instinct to push forward and survive (for better or worse). I love that movie. Definitely not a casual watch though-u/justalittlesadIguess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137697.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">31 Fresh Memes We Found Loitering in the Parking Lot</a><br>
+<span style="font-size:4em">20. The Truman Show The moment where everything starts to click and he confronts his wife is golden. WHO ARE YOU TALKING TO?!-u/RGX323</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136392.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Swiss Army Man. It opens with Paul Dano riding Daniel Radcliffe like a jet ski propelled by his farts. Which is absurd. But it also ends with Daniel Radcliffe riding off into the sunset like a jet ski propelled by his farts. And it is beautiful.-u/These-Square8340</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137699.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136393.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Jacobs Ladder I saw this in the theater, on a day pass from a mental hospital where I was being treated for BPD and PTSD. I sat and cried like a child for ten minutes while the credits rolled. F*cked. Me. Up.Still one of my all-time favorites.-u/MetaJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136394.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. American Beauty. Ignoring all of the terrible things that Kevin Spacey did, it was an equally disturbing and good experience.-u/ruchik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136396.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Annihilation had a good mix of stunning visuals and horror elements, so I’d say that-u/calvinyl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137701.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136397.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. Midsommar A film that creeped me out more after Id finished watching it then when it was on. Great film.-u/count_crow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87137702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136398.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136399.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136400.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136401.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136402.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136404.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136405.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136406.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136407.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136409.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136410.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136411.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136412.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136414.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136415.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136416.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136417.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136418.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136419.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136420.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136421.jpeg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">44 Fun Killer Pics To Slay Your Doldrums</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136188.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">26 Times Things Aged Like Milk</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Microsoft employees holding a funeral for the iPhone following the “success” of their Windows phone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A StarCraft gaming tournament took place 10 years ago and these were the prizes teams could win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/86669842.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
+## <a href="#linky13" id="linky12">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
 
 <span style="font-size:4em">1. Read a personal finance book that recommended calling your providers once a year (credit card companies, TV/internet providers, cell phone company, etc) and demand a lower rate or price. I’ve been following that advice for two years and have not been denied once.
 
@@ -1006,4 +834,176 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 <span style="font-size:4em">34. How to make Thermite. I dont know why, Thermite itself itsnt actually all that useful or destructive. It burns hot sure, but its not going to melt anything very well without a proper vessel to contain and direct the heat into the thing you want to melt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138089.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">Random Sh*t People Found While Strolling through the Woods</a><br>
+
+<span style="font-size:4em">1. What once was a perfectly good ski lift, is no more.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136754.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Whats left of an old couch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136755.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. A foresters lodge, in fairly decent condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136756.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. An old mill house beside a creek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136757.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. This abandoned conveyor, possibly from a mine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136758.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Imagine just stumbling upon a creepy old circus train.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136759.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This gorgeous church which now sits in ruins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136760.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. A legitimate 11-story hospital, just abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136761.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. An overgrown bridge over what looks like a river or creek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136762.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. This never-ending graveyard of cars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136763.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Train tracks that have long since been abandoned.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136764.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. An entire fighter jet. Dont see that every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136766.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. A Volkswagen Beetle, in not-so-great condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136767.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. You know, just your every day terrifying cemetery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136768.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Stumbling upon an abandoned castle sounds awesome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136769.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. An overgrown abandoned roller coaster in Japan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136770.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. These abandoned train tracks complete with tunnels still intact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136765.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. A cabin abandoned in the wilderness for who knows how long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136771.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. These full size locomotive trains.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136772.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. A World War II era swimming pool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87136773.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">19 People Who Shared Things Nobody Asked for Online</a><br>
+
+<span style="font-size:4em">1. Now this would freak me the hell out. Also, seems kind of unsanitary while this thing is rubbing up against you while youre taking a duece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Well that looks pretty damn disgusting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Never thought of this pun before, kinda funny kinda cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The stuff of nightmares.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Never seen it, but I guess it makes sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This show was so wild.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87136793.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">44 Fun Killer Pics To Slay Your Doldrums</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87136188.jpg" style="width:100%"><br>
 
