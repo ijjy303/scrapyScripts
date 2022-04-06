@@ -1,39 +1,7 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/06/2022-09:11:32
+Last updated: 04/06/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">15 Coincidences People Weren't Expecting</a><br>
-
-<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">21 Morbius Memes Sweeping the Nation </a><br>
+## <a href="#linky2" id="linky1">21 Morbius Memes Sweeping the Nation </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011734/87138837/Morbius-Memes4.jpg" style="width:100%"><br>
 
@@ -77,57 +45,99 @@ Last updated: 04/06/2022-09:11:32
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011931/87138858/Morbius-Memes2.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
+## <a href="#linky3" id="linky2">30 Unusual Things People Weren't Expecting to See</a><br>
 
-<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
+<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">15 Coincidences People Weren't Expecting</a><br>
+
+<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
@@ -414,65 +424,55 @@ Answer: It’s a magic square. It’s a popular sort of decoration to put outsid
 
 <span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 Unusual Things People Weren't Expecting to See</a><br>
+## <a href="#linky8" id="linky7">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
 
-<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
+<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
+<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
+<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
+<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
+<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
+<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
+<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
+<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
+<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
+<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
+<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
 
