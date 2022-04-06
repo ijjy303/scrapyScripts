@@ -1,87 +1,112 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/05/2022-21:11:31
+Last updated: 04/05/2022-22:11:31
 <br>
-## <a href="#linky2" id="linky1">41 Weird And Cool Things People Saw</a><br>
+## <a href="#linky2" id="linky1">29 Odd Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. “The tiny flower pattern inside this egg”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137741.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
+
+Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “My brother found a .50 bullet encased in coral at the beach today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137704.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
+
+Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “My phone vibrated when I was taking this photo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137705.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
+
+Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My cat has 26 toes (18 is normal)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137706.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
+
+Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “$320 pesos ( $16 dollars) of vegetables and fruits here in México.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137707.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
+
+Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137708.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
+
+Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “This kitchen counter along with an empty drinking glass sort of looks like a death star in space.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137709.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
+
+Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This ice patch I found that looks like a feather.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137710.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
+
+Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Notification that there may be a child with autism in the vehicle, in case of emergency.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137711.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
+
+Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “My job has a room for taking a nap. The room also has a gigantic roll of paper towels in case you have a cold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137712.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Spiky plastic thing”
+
+Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I have a stream running directly under my entire house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137713.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
+
+Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Loads of fingernail marks the chair at my dentists.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137714.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
+
+Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “The “American” section in an English supermarket.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137715.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
+
+Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “A sculpture made from discarded wood crates.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137716.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
+
+Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My husbands uncles have used the same birthday card since 1974.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137717.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
+
+Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “There was one heart shaped treat in my dog’s bone shaped treats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137718.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
+
+Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “I found a footprint that looks like Edgar Allen Poe.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137719.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
+
+Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I installed a climbing system for my cats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137720.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
+
+Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “This add-on camera for my cell phone back in the day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137721.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
+Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “This chair is made of wood.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137722.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
+Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “I just found out my copy of Hitchhiker’s Guide glows in the dark.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137723.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
+Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “The store in my new town has a specific aisle where you can meet up with your spouse if you get separated.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137724.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
+Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Actual cashews with the nut on top in a Brazilian supermarket.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137725.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
+Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “I noticed something strange about my cousin’s kneecaps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137726.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
+Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Homer Simpson hiding in my rug”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137727.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
+Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “My kid’s snap band is a recycled tape measure.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137728.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
+Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “This weirdly mutated strawberry I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137729.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
+Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “An old bottle of shoe cleaning liquid has some strange growth on the top”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137730.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
+Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. “This penny came out of its lining.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “I noticed this curious leaf.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “This spider changed his skin several times in the same spot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “This mandarin with little baby mandarin inside it”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “The strange reflection of our room’s mirror”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “This paw print my daughter found hiding inside a crayon when she broke it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “There’s a strange-looking lemon growing in my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “This frog that lives in my fence”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “I noticed while grating some cheddar cheese that the spirals started to look a lot like popcorn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “The way this rubber band wedged itself in the grooves of my shoe.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “My apples are red on the inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “My scar didn’t get dirty at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137743.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
+Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">34 Insanely WTF Haircuts to Baffle You</a><br>
 
@@ -205,7 +230,67 @@ Last updated: 04/05/2022-21:11:31
 
 <span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky5" id="linky4">29 Stories Of Celebrities Being Jerks</a><br>
+
+<span style="font-size:4em">1. Ellen Degeneres is a bona fide b*tch. Incredibly rude. My Uncle worked with her, (hes an architect), on some projects and she treated him help like total crap. I couldnt believe it at the time, but Ive heard similar accounts of her bad behavior over the years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Oprah didn’t tip me on a $200 lunch — instead, she signed a napkin for me and acted like she was doing me a huge favor. The kicker was when she walked in, they gave away all of my other tables so she didn’t have to wait for anything. So I made $4/hour for two hours for the privilege of serving Oprah, and she went on and on about signing a napkin that I never asked for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I haven’t met many but Lenny Kravitz stayed at the hotel I worked at. He had the hotel sign an agreement that the staff were not to look at him or talk to him. Snoop dog was cool. He left a bunch of booze and weed behind in his suite. The house keepers got a bunch of top shelf hootch and weed after he left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Eminem. I was in Denver once and I was waiting for an autograph with my little brother. It was really cold and we waited for like 3 or 4 hours. He just said no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My wife worked at a hotel for many years and met literally every major celebrity you can think of. She said Snoop was the coolest person she ever met and Bill Clinton was the biggest douche even though I find it hilarious. My wife was walking outside back into the hotel, saw Bill and stared until she smashed herself in the face with a tree branch. Bill started laughing so hard he was having a hard time standing. The secret service ran over to help her and Bill, laughing so hard he could barely talk, told them to leave her because they had to keep walking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My dad is a pilot and he frequently deals with celebrities. His company has all the staff sign NDAs, but my dad usually doesnt even know who the celebrities are unless theyve been in the news. He said that Nicole Kidman and Keith Urban are incredibly rude to their own staff. Personal assistants were terrified of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Tyra Banks. This takes place when UPN and WB were merging into “The CW”. She comes into town for an ANTM cattle call. Demands we repaint the office she was going to use, (for three days), makes our pregnant programming director cry, flips her shot and tries to get me fired when I wouldn’t get her a bottled water. My response was “have one of your people get it, I have to get back to the board, commercial break is up in 40 seconds.” Opposite side, Ashton Kutcher and Mila Kunis are two of the nicest celebrities I’ve ever had the pleasure of meeting. We had just gotten “that 70’s show” in syndication and they came out for promo shoots. Super friendly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. William Shatner said he would give me an autograph in Hawaii when I was about 10 . He said ‘lemme get a pen’, got in his limo and drove off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Randy Jackson. He was invited to a telethon hosted by a hospital for children with severe disabilities, where my little sister lived until she passed away. Whenever the cameras were off, he would hide in his hotel room and seemed disgusted with the kids. Didn’t want anything to do with them. When the cameras were on though, he was all smiles and hugs. It was so disheartening and disappointed. Almost 10 years ago and I still remember it so clearly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I met Ed Westwick from Gossip Girl at Coachella. I never watched the show, but I recognized him — he grabbed my slice of pizza, took a bite out of it, and then spit it out and gave it back to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I was an extra on X men: Days of Future Past. They were all nice. Jennifer Lawrence was the one that was the more meh with other people. I dont blame her too much... Peak hunger game popularity at the time I get it. She was probably afraid people would try to always give her too much attention...However the other actors didnt care about that. The NICEST ones by FAR were Hugh Jackman and James McAvoy for what I saw. For McAvoy, one of my friend was one of the extras right behind him in a scene and we were shooting 14 hours a day in cooking 40 degrees enclosed green screen bordered set in bright sunlight. We were running in high heels and wearing winter jackets... Basically a hellish day. And we couldnt sit anywhere! Well McAvoy saw my friend wasnt doing right and he let her sit in Professor Xs chair and have a bit of his water bottle. And with that said, the dude would just talk and chit chat with everybody, despite the very strict non-conversation with actors contract we signed. Hes just so chill.Hugh Jackman literally signed autographs in between shots and high fived a bunch of people all the time. Michael Fassbender told all set workers passing by him after a very long day of work battling in water to have a nice day. I was a huge fan of his at the time and it made my whole year at that point.F*ckin Peter Dinklage was dancing disco during the heatwave day to cheer people up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I’ve worked as a maintenance worker at a concert venue for a few summers and have bumped into several celebrities, but Carrie Underwood is the one who sticks out because of how demanding she always was. She refused to use a toilet if someone else had sat on the seat before her — cleaning them was never good enough, so we had to buy new toilet seats every time she came. Considering how much we already had to fix, the last thing we wanted to do was pointlessly replace perfectly good toilet seats. In contrast, Reba McEntire would always eat lunch with the staff and was always super chill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I worked with Gwyneth Paltrows children for eight weeks at a camp, and we got paid $5 an hour. Parents usually tip $100 or more at the end, but she didnt tip at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Madonna! She comes to my job few times a year. And every time she comes shes comes with 5-7 other people wearing a big hat, sunglasses and tries to blend within her friends or whoever they are. The people she travels with are so needy and always have some sort of special request to ask for. No thanks no nothing when they leave no tip and also leave a big mess. Cant stand them. No hi and no bye. Im like bye b*tch. Besides that a lot of the other celebrities are nice!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My daughter was at a store in orlando and ran into LeBron James when he was with the Heat. 13 yo girl asked for a pic and he got pissy, told her she wasnt worthy of a picture with him, did she even know who he was, he didnt have time for this. Walked away leaving her crying so bought her an ice cream.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I met a lot of celebrities while working for an airline, one of them being Hugh Grant. One time, he sat in First Class 1A on a 747 (which is right in the nose of the plane), so there was nothing but a wall in front of the seat. Its standard procedure for the cabin manager to go around to every first-class passenger and personally introduce themselves. When my manager got to Hugh, the conversation went something like this: Manager: Hello, Mr. Grant, my name is... Hugh: Oh, F*CK OFF. My manager proceeded to swiftly move on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Im from Vancouver, Canada (big film industry town), and a close family member of mine has worked in film here for 20 years, so I have too many stories to list. How about some rude ones, and some nice ones. Gerard Butler. Around nine years ago he insistently pursued a friend of mine at a club/lounge. She wasnt interested and told him so. Instead of respecting her wishes, he approached us, her friends, and attempted to get her number from us without her knowing. He would not respect her boundaries, or respect that no means no. Dedee Pfeiffer (Michelle Pfeiffers sister) attempted to have my female family member (crew member) fired from the movie of the week they were working on because Dedee was threatened by my family members appearance. This is not hyperbole. A producer told my family member Shes threatened by you because youre a petite blonde, like her, and youre outgoing and popular with the other crew members. My family member wasnt fired; Dedee was presumably told to cool her jets and focus on her job. Dedee Pfeiffers ego really is, apparently, that delicate that she cant handle another woman around her having any kind of positive attention. Later on in the shoot Dedee was purging in a set toilet (she is bulimic) and her gag reflex wouldnt stop gagging, so she passed out and an ambulance was called. David Duchovny circa X-Files. Frequent hissy fits on set, flipping garbage cans over, etc. Probably contributed 90% of Vancouvers stripper and escort income during the shows run. John Travolta. Kind, professional man on set. Arrested while here filming Look Whos Talking in Stanley Park for soliciting sex from an undercover male VPD officer and discretely bailed out of jail at 2am by a producer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Okay, so a quick disclaimer first - this wasnt me, but my friend Dolly who was a flight attendant for a well known British airline until she died. Shed been with them since year dot, and as a result of her seniority would work in the First Class cabin. In her own words, she preferred it at the front of the plane, the nylon carpets at the back played havoc with her bunions.. ANYWAY, One day she had a British celebrity called Katie Price onboard. Ms Price is famous for... umm.. having boobs and falling out of various bars, I think. So, Ms Price comes on board, spots Dolly, and proceeds to spend five minutes listing her demands for the flight - namely that she should have total privacy, that anyone coming near her should be escorted away, that no crew approach her unless she calls them, and that Dolly herself would be held responsible if she was bothered at all, heads would roll, etc..Dolly waited for her to finish her demands, and then said Certainly madam. And you are.......?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I’ve worked with Nicki Minaj before and while on a set with her, I was told not to look at her face. She also had people move out of the room before she would come in the room. It was a whole ordeal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When I was about 7 years old in the 70s, I was at the airport with my mom and her boyfriend and a friend of mine — my moms boyfriend told us that Evel Knievel was in one of the lounges. He was sitting in a back corner, drinking a glass of some kind of booze, and engulfed in a cloud of cigarette smoke. My friend and I approached him excitedly, and after he autographed some napkins, he looked at us and said, Before I give you these, Im going to teach you something. My friend and I looked at each other totally starstruck, and grinned like idiots. Evel proceeded to tap both of us on the arm and asked, Does that hurt? and we both shook our heads no — then he poked us lightly on the chest and asked, Does that hurt? and again, we both said no. Then he made fists out of both of his hands with the middle knuckles sticking out, and brought them down sharply and simultaneously onto both of our heads. Does that hurt? he asked, and neither of us could answer — I was holding back tears from the pain. He waited a few seconds and said, Thats why you wear a safety helmet, and then handed us the napkins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. EASILY John Mayer and its not even close. If youve ever thought John Mayer was cool, know this; John Mayer is a whiney man-child that just wants to smoke weed and watch South Park and play Call of Duty all day. Met him at an awards show thing about 10 years ago. WOULD NOT STOP quoting some sexist joke from South Park. Everybody around was just laughing awkwardly because it was weird. Also every word out of his mouth was a sarcastic joke, but like a MEAN sarcastic joke about somebody that I was supposed to find funny. But they werent funny. They were just weird. And mean. Got mad at me and called me a butthead when I didnt laugh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Peter Mayhew aka Chewbacca. I accompanied my friend to a comic-con, who’s hobbies include getting autographs and photos of celebrities.He was very short with us and didn’t care we were fans at all. He interrupts my friend in the middle of complimenting him for his work, stating the costs of a photo and an autograph. Fine. We ask if we can take a photo instead of one his photos he selling and he tells us we’ll still pay the full price of one of his photos. Also fine. As my friend goes to walk around the table to stand side by side, he shouts at us to stay on the other side of the table. So we try our best to not look insulted, and take a super awkward picture of an annoyed Mayhew and my friend trying to lean back to make it look like they are posing for a fan pic.We try to thank him right after but he brushes us off as soon as we hand him the cash. D*ck. In contrast, we met Margot Kidder aka Lois Lane. She was super nice and even let us take pictures pretending to be flying with her like in the movie! And it was her suggestion, too!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Tim Duncan - Former Basketball player for the San Antonio Spurs. I met him at a Walgreens Pharmacy in San Antonio. I was trying to get batteries but he was getting batteries too. He was in my way. So I said “excuse me, could I just get through really quick- ”He stopped me mind-sentence and said “Nah, I don’t take pictures. Just let me do what I gotta do.” “My bad. I’m just trying to-“. “Hey, look. I don’t want to take pictures right now so just stop. ”He left. I got my batteries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Neil deGrasse Tyson. I worked at the bookstore in college, and would pick up extra shifts working late night events when I had time. NDT was giving a speech, and holding a little meet and greet afterwards. I signed up to run a table selling his books. After his speech, he comes in to the hall where Ive got my table set up. He comes over, introduces himself, and asks which of the 2 books I liked better of his. 20 year old me has no idea who is he and didnt read either book, so I replied I actually havent read either. Im just picking up an extra shift for the store. Well then he starts a 2 minutes rant, berating people my age for not being interested in science, didnt know who he was, blah blah blah. He finishes, I gave him a dumb blank stare, and he walked away. Talked down to me in a way that just made me feel like sh*t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Busta Rhymes came into the jersey shop I managed in Atlanta and got pissed off that I didn’t have a hat in his size. He called me a dumb f*ck - which hurt because I was a huge fan of his going way back to Leaders of the New School. Same store - Tyler Perry said he would “buy me and sell me” after I told him that the OnField 5950 Yankee hat was dark navy blue and not black - even though he demanded a “black Yankees hat like they wear on the field”. Snoop Dogg, Michael Vick, Terrell Owens (esp Terrell Owens, and Birdman were cool as f*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Pierce Brosnan. Saw him loading his car up at a farmers market in Santa Monica. Walked up to him and told him I was a big fan. I didnt ask for a picture or anything. He got into his car and as he was backing up he told me to f*ck right off. Maybe I was in the wrong for walking up to him, I was just excited.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I was in Las Vegas airport on a layover. I was reading Give Me the Damn Ball by Keyshawn Johnson. I was 14 or 15 at the time. Behind me at the airport convince store? Keyshawn Johnson. 14 year old me is super excited. He just signed with the Cowboys and I was a huge Dallas fan. I quietly said Im a big fan, and Im reading your book from behind big sunglasses he looks at me and says leave me the f*ck alone. I was crushed. In a moment of hate I screamed Its Dallas Cowboys wide receiver Keyshane Johnson and walked away. By contrast I watched a Packers/ Vikings game with Mike Ditka at JFK airport and he was awesome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Aziz ansari. Absolutely full of himself, zero self awareness. Literally forces himself into conversations with no understanding that he isnt wanted there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138333.jpg" style="width:100%"><br>
 
@@ -323,7 +408,7 @@ Last updated: 04/05/2022-21:11:31
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138391.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 Unusual Things People Weren't Expecting to See</a><br>
+## <a href="#linky7" id="linky6">30 Unusual Things People Weren't Expecting to See</a><br>
 
 <span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
 
@@ -385,213 +470,7 @@ Last updated: 04/05/2022-21:11:31
 
 <span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">15 Coincidences People Weren't Expecting</a><br>
-
-<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">29 Stories Of Celebrities Being Jerks</a><br>
-
-<span style="font-size:4em">1. Ellen Degeneres is a bona fide b*tch. Incredibly rude. My Uncle worked with her, (hes an architect), on some projects and she treated him help like total crap. I couldnt believe it at the time, but Ive heard similar accounts of her bad behavior over the years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Oprah didn’t tip me on a $200 lunch — instead, she signed a napkin for me and acted like she was doing me a huge favor. The kicker was when she walked in, they gave away all of my other tables so she didn’t have to wait for anything. So I made $4/hour for two hours for the privilege of serving Oprah, and she went on and on about signing a napkin that I never asked for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I haven’t met many but Lenny Kravitz stayed at the hotel I worked at. He had the hotel sign an agreement that the staff were not to look at him or talk to him. Snoop dog was cool. He left a bunch of booze and weed behind in his suite. The house keepers got a bunch of top shelf hootch and weed after he left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Eminem. I was in Denver once and I was waiting for an autograph with my little brother. It was really cold and we waited for like 3 or 4 hours. He just said no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My wife worked at a hotel for many years and met literally every major celebrity you can think of. She said Snoop was the coolest person she ever met and Bill Clinton was the biggest douche even though I find it hilarious. My wife was walking outside back into the hotel, saw Bill and stared until she smashed herself in the face with a tree branch. Bill started laughing so hard he was having a hard time standing. The secret service ran over to help her and Bill, laughing so hard he could barely talk, told them to leave her because they had to keep walking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My dad is a pilot and he frequently deals with celebrities. His company has all the staff sign NDAs, but my dad usually doesnt even know who the celebrities are unless theyve been in the news. He said that Nicole Kidman and Keith Urban are incredibly rude to their own staff. Personal assistants were terrified of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Tyra Banks. This takes place when UPN and WB were merging into “The CW”. She comes into town for an ANTM cattle call. Demands we repaint the office she was going to use, (for three days), makes our pregnant programming director cry, flips her shot and tries to get me fired when I wouldn’t get her a bottled water. My response was “have one of your people get it, I have to get back to the board, commercial break is up in 40 seconds.” Opposite side, Ashton Kutcher and Mila Kunis are two of the nicest celebrities I’ve ever had the pleasure of meeting. We had just gotten “that 70’s show” in syndication and they came out for promo shoots. Super friendly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. William Shatner said he would give me an autograph in Hawaii when I was about 10 . He said ‘lemme get a pen’, got in his limo and drove off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Randy Jackson. He was invited to a telethon hosted by a hospital for children with severe disabilities, where my little sister lived until she passed away. Whenever the cameras were off, he would hide in his hotel room and seemed disgusted with the kids. Didn’t want anything to do with them. When the cameras were on though, he was all smiles and hugs. It was so disheartening and disappointed. Almost 10 years ago and I still remember it so clearly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I met Ed Westwick from Gossip Girl at Coachella. I never watched the show, but I recognized him — he grabbed my slice of pizza, took a bite out of it, and then spit it out and gave it back to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was an extra on X men: Days of Future Past. They were all nice. Jennifer Lawrence was the one that was the more meh with other people. I dont blame her too much... Peak hunger game popularity at the time I get it. She was probably afraid people would try to always give her too much attention...However the other actors didnt care about that. The NICEST ones by FAR were Hugh Jackman and James McAvoy for what I saw. For McAvoy, one of my friend was one of the extras right behind him in a scene and we were shooting 14 hours a day in cooking 40 degrees enclosed green screen bordered set in bright sunlight. We were running in high heels and wearing winter jackets... Basically a hellish day. And we couldnt sit anywhere! Well McAvoy saw my friend wasnt doing right and he let her sit in Professor Xs chair and have a bit of his water bottle. And with that said, the dude would just talk and chit chat with everybody, despite the very strict non-conversation with actors contract we signed. Hes just so chill.Hugh Jackman literally signed autographs in between shots and high fived a bunch of people all the time. Michael Fassbender told all set workers passing by him after a very long day of work battling in water to have a nice day. I was a huge fan of his at the time and it made my whole year at that point.F*ckin Peter Dinklage was dancing disco during the heatwave day to cheer people up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I’ve worked as a maintenance worker at a concert venue for a few summers and have bumped into several celebrities, but Carrie Underwood is the one who sticks out because of how demanding she always was. She refused to use a toilet if someone else had sat on the seat before her — cleaning them was never good enough, so we had to buy new toilet seats every time she came. Considering how much we already had to fix, the last thing we wanted to do was pointlessly replace perfectly good toilet seats. In contrast, Reba McEntire would always eat lunch with the staff and was always super chill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I worked with Gwyneth Paltrows children for eight weeks at a camp, and we got paid $5 an hour. Parents usually tip $100 or more at the end, but she didnt tip at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Madonna! She comes to my job few times a year. And every time she comes shes comes with 5-7 other people wearing a big hat, sunglasses and tries to blend within her friends or whoever they are. The people she travels with are so needy and always have some sort of special request to ask for. No thanks no nothing when they leave no tip and also leave a big mess. Cant stand them. No hi and no bye. Im like bye b*tch. Besides that a lot of the other celebrities are nice!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My daughter was at a store in orlando and ran into LeBron James when he was with the Heat. 13 yo girl asked for a pic and he got pissy, told her she wasnt worthy of a picture with him, did she even know who he was, he didnt have time for this. Walked away leaving her crying so bought her an ice cream.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I met a lot of celebrities while working for an airline, one of them being Hugh Grant. One time, he sat in First Class 1A on a 747 (which is right in the nose of the plane), so there was nothing but a wall in front of the seat. Its standard procedure for the cabin manager to go around to every first-class passenger and personally introduce themselves. When my manager got to Hugh, the conversation went something like this: Manager: Hello, Mr. Grant, my name is... Hugh: Oh, F*CK OFF. My manager proceeded to swiftly move on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Im from Vancouver, Canada (big film industry town), and a close family member of mine has worked in film here for 20 years, so I have too many stories to list. How about some rude ones, and some nice ones. Gerard Butler. Around nine years ago he insistently pursued a friend of mine at a club/lounge. She wasnt interested and told him so. Instead of respecting her wishes, he approached us, her friends, and attempted to get her number from us without her knowing. He would not respect her boundaries, or respect that no means no. Dedee Pfeiffer (Michelle Pfeiffers sister) attempted to have my female family member (crew member) fired from the movie of the week they were working on because Dedee was threatened by my family members appearance. This is not hyperbole. A producer told my family member Shes threatened by you because youre a petite blonde, like her, and youre outgoing and popular with the other crew members. My family member wasnt fired; Dedee was presumably told to cool her jets and focus on her job. Dedee Pfeiffers ego really is, apparently, that delicate that she cant handle another woman around her having any kind of positive attention. Later on in the shoot Dedee was purging in a set toilet (she is bulimic) and her gag reflex wouldnt stop gagging, so she passed out and an ambulance was called. David Duchovny circa X-Files. Frequent hissy fits on set, flipping garbage cans over, etc. Probably contributed 90% of Vancouvers stripper and escort income during the shows run. John Travolta. Kind, professional man on set. Arrested while here filming Look Whos Talking in Stanley Park for soliciting sex from an undercover male VPD officer and discretely bailed out of jail at 2am by a producer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Okay, so a quick disclaimer first - this wasnt me, but my friend Dolly who was a flight attendant for a well known British airline until she died. Shed been with them since year dot, and as a result of her seniority would work in the First Class cabin. In her own words, she preferred it at the front of the plane, the nylon carpets at the back played havoc with her bunions.. ANYWAY, One day she had a British celebrity called Katie Price onboard. Ms Price is famous for... umm.. having boobs and falling out of various bars, I think. So, Ms Price comes on board, spots Dolly, and proceeds to spend five minutes listing her demands for the flight - namely that she should have total privacy, that anyone coming near her should be escorted away, that no crew approach her unless she calls them, and that Dolly herself would be held responsible if she was bothered at all, heads would roll, etc..Dolly waited for her to finish her demands, and then said Certainly madam. And you are.......?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I’ve worked with Nicki Minaj before and while on a set with her, I was told not to look at her face. She also had people move out of the room before she would come in the room. It was a whole ordeal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When I was about 7 years old in the 70s, I was at the airport with my mom and her boyfriend and a friend of mine — my moms boyfriend told us that Evel Knievel was in one of the lounges. He was sitting in a back corner, drinking a glass of some kind of booze, and engulfed in a cloud of cigarette smoke. My friend and I approached him excitedly, and after he autographed some napkins, he looked at us and said, Before I give you these, Im going to teach you something. My friend and I looked at each other totally starstruck, and grinned like idiots. Evel proceeded to tap both of us on the arm and asked, Does that hurt? and we both shook our heads no — then he poked us lightly on the chest and asked, Does that hurt? and again, we both said no. Then he made fists out of both of his hands with the middle knuckles sticking out, and brought them down sharply and simultaneously onto both of our heads. Does that hurt? he asked, and neither of us could answer — I was holding back tears from the pain. He waited a few seconds and said, Thats why you wear a safety helmet, and then handed us the napkins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. EASILY John Mayer and its not even close. If youve ever thought John Mayer was cool, know this; John Mayer is a whiney man-child that just wants to smoke weed and watch South Park and play Call of Duty all day. Met him at an awards show thing about 10 years ago. WOULD NOT STOP quoting some sexist joke from South Park. Everybody around was just laughing awkwardly because it was weird. Also every word out of his mouth was a sarcastic joke, but like a MEAN sarcastic joke about somebody that I was supposed to find funny. But they werent funny. They were just weird. And mean. Got mad at me and called me a butthead when I didnt laugh.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Peter Mayhew aka Chewbacca. I accompanied my friend to a comic-con, who’s hobbies include getting autographs and photos of celebrities.He was very short with us and didn’t care we were fans at all. He interrupts my friend in the middle of complimenting him for his work, stating the costs of a photo and an autograph. Fine. We ask if we can take a photo instead of one his photos he selling and he tells us we’ll still pay the full price of one of his photos. Also fine. As my friend goes to walk around the table to stand side by side, he shouts at us to stay on the other side of the table. So we try our best to not look insulted, and take a super awkward picture of an annoyed Mayhew and my friend trying to lean back to make it look like they are posing for a fan pic.We try to thank him right after but he brushes us off as soon as we hand him the cash. D*ck. In contrast, we met Margot Kidder aka Lois Lane. She was super nice and even let us take pictures pretending to be flying with her like in the movie! And it was her suggestion, too!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Tim Duncan - Former Basketball player for the San Antonio Spurs. I met him at a Walgreens Pharmacy in San Antonio. I was trying to get batteries but he was getting batteries too. He was in my way. So I said “excuse me, could I just get through really quick- ”He stopped me mind-sentence and said “Nah, I don’t take pictures. Just let me do what I gotta do.” “My bad. I’m just trying to-“. “Hey, look. I don’t want to take pictures right now so just stop. ”He left. I got my batteries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Neil deGrasse Tyson. I worked at the bookstore in college, and would pick up extra shifts working late night events when I had time. NDT was giving a speech, and holding a little meet and greet afterwards. I signed up to run a table selling his books. After his speech, he comes in to the hall where Ive got my table set up. He comes over, introduces himself, and asks which of the 2 books I liked better of his. 20 year old me has no idea who is he and didnt read either book, so I replied I actually havent read either. Im just picking up an extra shift for the store. Well then he starts a 2 minutes rant, berating people my age for not being interested in science, didnt know who he was, blah blah blah. He finishes, I gave him a dumb blank stare, and he walked away. Talked down to me in a way that just made me feel like sh*t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Busta Rhymes came into the jersey shop I managed in Atlanta and got pissed off that I didn’t have a hat in his size. He called me a dumb f*ck - which hurt because I was a huge fan of his going way back to Leaders of the New School. Same store - Tyler Perry said he would “buy me and sell me” after I told him that the OnField 5950 Yankee hat was dark navy blue and not black - even though he demanded a “black Yankees hat like they wear on the field”. Snoop Dogg, Michael Vick, Terrell Owens (esp Terrell Owens, and Birdman were cool as f*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Pierce Brosnan. Saw him loading his car up at a farmers market in Santa Monica. Walked up to him and told him I was a big fan. I didnt ask for a picture or anything. He got into his car and as he was backing up he told me to f*ck right off. Maybe I was in the wrong for walking up to him, I was just excited.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I was in Las Vegas airport on a layover. I was reading Give Me the Damn Ball by Keyshawn Johnson. I was 14 or 15 at the time. Behind me at the airport convince store? Keyshawn Johnson. 14 year old me is super excited. He just signed with the Cowboys and I was a huge Dallas fan. I quietly said Im a big fan, and Im reading your book from behind big sunglasses he looks at me and says leave me the f*ck alone. I was crushed. In a moment of hate I screamed Its Dallas Cowboys wide receiver Keyshane Johnson and walked away. By contrast I watched a Packers/ Vikings game with Mike Ditka at JFK airport and he was awesome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Aziz ansari. Absolutely full of himself, zero self awareness. Literally forces himself into conversations with no understanding that he isnt wanted there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">56 of the Most Awesome Randoms You'll See all Day</a><br>
-
-<span style="font-size:4em">1. Im not sure how this happened, or why she hasnt gotten the kid out and cleaned him off already cause it is only going to get worse / be harder the longer she waits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. And they said vampires were just mythical creatures that didnt exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013418/87137565/87137236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Cuteness overload!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013447/87137570/87137246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Revenge is a dish best served raw and messy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. What if all of our clocks, watches, and time keeping devices have been wrong since day one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When you find the absolute perfect spot to relax in.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013356/87137561/87137230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. And we wonder why extraterrestrials havent made contact with us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132631.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132634.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132635.gif" style="width:100%"><br>
-
-<span style="font-size:4em">13. Some good tips and advice that anyone can use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. You know it must have been a problem or regular occurrence if they had to post a sign about it.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013414/87137564/87137235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Well that explains a lot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132640.gif" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132641.gif" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I think those are actually chickens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132646.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132647.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. They joys of learning another language.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Looks like that thing packs a nasty sting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132653.gif" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013340/87137558/87137229.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013345/87137559/87137223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013352/87137560/87137224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013403/87137562/87137232.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013407/87137563/87137233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87132627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013425/87137566/87137239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013430/87137567/87137241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013436/87137568/87137243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013441/87137569/87137245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013452/87137571/87137247.png" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013458/87137572/87137252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013503/87137573/87137257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/03/013508/87137574/87137258.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
+## <a href="#linky8" id="linky7">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
 
 <span style="font-size:4em">1. Read a personal finance book that recommended calling your providers once a year (credit card companies, TV/internet providers, cell phone company, etc) and demand a lower rate or price. I’ve been following that advice for two years and have not been denied once.
 
@@ -686,4 +565,118 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 <span style="font-size:4em">34. How to make Thermite. I dont know why, Thermite itself itsnt actually all that useful or destructive. It burns hot sure, but its not going to melt anything very well without a proper vessel to contain and direct the heat into the thing you want to melt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138089.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">41 Weird And Cool Things People Saw</a><br>
+
+<span style="font-size:4em">1. “The tiny flower pattern inside this egg”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “My brother found a .50 bullet encased in coral at the beach today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My phone vibrated when I was taking this photo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My cat has 26 toes (18 is normal)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “$320 pesos ( $16 dollars) of vegetables and fruits here in México.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “This kitchen counter along with an empty drinking glass sort of looks like a death star in space.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This ice patch I found that looks like a feather.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Notification that there may be a child with autism in the vehicle, in case of emergency.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “My job has a room for taking a nap. The room also has a gigantic roll of paper towels in case you have a cold.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I have a stream running directly under my entire house.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Loads of fingernail marks the chair at my dentists.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “The “American” section in an English supermarket.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A sculpture made from discarded wood crates.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My husbands uncles have used the same birthday card since 1974.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “There was one heart shaped treat in my dog’s bone shaped treats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “I found a footprint that looks like Edgar Allen Poe.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “I installed a climbing system for my cats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This add-on camera for my cell phone back in the day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “This chair is made of wood.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I just found out my copy of Hitchhiker’s Guide glows in the dark.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “The store in my new town has a specific aisle where you can meet up with your spouse if you get separated.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Actual cashews with the nut on top in a Brazilian supermarket.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “I noticed something strange about my cousin’s kneecaps.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Homer Simpson hiding in my rug”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “My kid’s snap band is a recycled tape measure.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This weirdly mutated strawberry I found.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “An old bottle of shoe cleaning liquid has some strange growth on the top”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “This penny came out of its lining.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “I noticed this curious leaf.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “This spider changed his skin several times in the same spot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “This mandarin with little baby mandarin inside it”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “The strange reflection of our room’s mirror”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “This paw print my daughter found hiding inside a crayon when she broke it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “There’s a strange-looking lemon growing in my garden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “This frog that lives in my fence”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “I noticed while grating some cheddar cheese that the spirals started to look a lot like popcorn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “The way this rubber band wedged itself in the grooves of my shoe.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. “My apples are red on the inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. “My scar didn’t get dirty at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137743.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">15 Coincidences People Weren't Expecting</a><br>
+
+<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
