@@ -1,7 +1,103 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/06/2022-05:11:31
+Last updated: 04/06/2022-06:11:31
 <br>
-## <a href="#linky2" id="linky1">29 Odd Items With Simple Explanations</a><br>
+## <a href="#linky2" id="linky1">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
+
+<span style="font-size:4em">1. Read a personal finance book that recommended calling your providers once a year (credit card companies, TV/internet providers, cell phone company, etc) and demand a lower rate or price. I’ve been following that advice for two years and have not been denied once.
+
+Last week I saw a commercial for my internet provider offering a super low introductory rate so I called to demand that I get that rate. They said no problem and now I save an extra $700 a year because of a 5 minute call. I am a very passive introvert so it’s not the most easy or comfortable thing but the money I save is worth it. They may so no initially but if you ask a few times or ask to speak to their supervisor they very usually give in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In Canada you can record any conversation with someone without their knowledge, unless it is in furtherance of an offence.
+
+I had to do this with an auto restoration shop in order to do a Visa chargeback when they did nothing to my car but steal parts for almost a year (Curtis Customs in Nova Scotia - I don’t mind mentioning them because there are already news stories about their scams)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When I was a kid, my dad taught me how to pick a lock. I became very interested in different kinds of locks and purchased a lock pick set. I practiced for years and became pretty good at certain types of locks. So over the years every now and then, if a neighbor locks themselves out of the house or a friend loses the key to a padlock or a lock box I’ve been able to help. But the reactions I tend to get from people, even while I’m helping them with their lock is mainly one of mistrust. I’m not a cat burglar. I just like locks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. (This is England knowledge, other countries may vary) If you are struggling to pay bills, make water the first one you skip. Access to water is protected by law so the utility supplier cannot cut you off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Well Im in med school and funny enough learning how to not kill a person involves learning about a s**t ton of ways to kill a person</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. You can ask scientists for their research paper that you usually have to pay money to view in a journal. They are allowed to just email it to you no questions asked and they like to do it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Unionization saves you more money than it costs you, you cannot be punished for attempting to do so, and it is NOT in any way illegal, rude, or improper to discuss your salary with your coworkers.
+
+It feels illegal because every company on the f*****g planet has tried to make people think unions are evil monsters trying to get you to pay union dues for no return. This is false because union dues are much less expensive than a company underpaying you and trying to work you to death, which a union fights against. Unions are there to prevent worker exploitation, stop it if people were being exploited when they got there, and get you a fair wage that will actually let you live off of one job instead of needing 4-5 or to work criminal amounts of overtime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Totally another route of what everyone else is posting but.... the lion at The Animal Kingdom safari ride isnt chained (Disney World park). He is fed a huge piece of meat every morning and sits on a rock that is changed to the perfect temperature for him everyday so he has no reason to attack anyone on the safari ride.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. How to make explosives with everyday home products.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. One thing I learned is in the state of California if you are squatting a property for five years and have been upkeeping it with proof, you can file a claim of ownership with the courts and take over any property as long as it was deemed that the original owner never tried to remove you within the same timeframe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Well, I gave my 9th grade chemistry class a detailed report on diacetylmorphine (heroin) for a project about organic molecules, including how to make it. It was pretty interesting to do and fun to present, but I feel like I broke the law somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. It is legal to grow opium poppies in the United States, but only if you dont know they can be used to make drugs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Police are allowed to lie to you. So are military recruiters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Creating Nitrogen triiodide. When in liquid form it is stable but once it dries so much as a fly landing on it creates a purple smoke explosion. Its so unstable that alpha radiation can be used to detonate the stuff.
+
+Its actually easy to get the materials and create the stuff. Filled my high school hallway stairs with purple smoke on the last day of school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Aluminum foil can block the thefts detection signals in super markets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Hospitals have but don’t tell you about a program to reduce your bills depending on how much you make. You can go to their website and find a usually hidden link for financial assistance policies and really cut your bill down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I dont know if its still a thing, but if you listen to Pandora radio the songs download into your temp folder under your browser. Just add the. Mp4 after it and you can play it.
+
+I spent lots of college listening to Pandora, and if I liked a song Id save it. If you paused the song in time then the most recent song was the top one in the temp folder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When you have a debt with a collection agency you can pay the debt and then call back a few weeks later and say, “I was told when I called and paid that you’d remove this from my credit score.” And then you ask for documentation saying they’re gonna do it. Apparently collection agencies don’t keep super good records on stuff like that; they just want your money. It worked for me, and I hope it can work for you if you need it in the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. 90% of home locks are easily pickable with a little know how and a couple pieces of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. You can ask the FBI if they have a file on you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. When companies ask for your name/age/sex/race/occupation/salary/etc. you can just lie.
+
+You’ll never be able to remove the information about yourself off the internet, but you can muddy the water quite a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. There is a book called 100 deadly skills that teaches you how to do all sorts of potentially illegal stuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. How to make a few different drugs. Organic chem at uni
+
+xk543x responded:
+
+How to make many illegal drugs
+
+Freelance Pharmacy institute of research and testing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Confidence can open a lot of doors. A lot of times, you can get away with more with some swagger than you otherwise would being meek about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I worked for a giant tech company and apparently share the same name as a very high up hardware engineer, got put on email threads I definitely didn’t belong on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. 1284x is a Ford fleet key. Not chipped, can be found on Amazon for $7 and perfectly legal to replicate.
+
+Searching 1284x filetype:.pdf site:.gov
+
+Will pull government bids that involve that key, and also show you what agencies you could open up or drive away a police car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. That in Ireland there is no legal age to get tattoo. Legally you can tattoo a newborn as long as the parents consent. We can get done for bodily harm to a minor if their is no consent. We have an industry standard of 16 with parent or 18 with ID. Im a tattooist in Ireland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I had a stats prof who used to work for the US government. Im not sure exactly what his job was, but it definitely involved evaluating the status and readiness of nukes, both ours and the USSRs (he was probably at least 70 and had been retired from that job for a while). One day in class he just started talking about the percentage of nukes that fail (ours and theirs) and why they fail and all kinds of other, seemingly sensitive, information. I dont think he would have told us anything classified, but his personality was boisterous and irreverent enough that I am not sure. I literally expected a team of spooks to bust down the door at any minute and drag us all off for interviews in windowless rooms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. You can say no when cashiers ask for your email or phone number.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. In regards to military grade bombs and missiles, it takes actual effort to make one go off on the ground. Like, you literally have to go out of your way to arm the fuse, then sit around for a timer to detonate said bomb.
+
+Its not like in the movies, where a soft breeze or some nutjob with a hammer, will make a bomb just explode for no reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Most large retail employers don’t have a policy against recording your interactions with your bosses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. When youre on a jury you can vote for someone as innocent even if you think they did it. Most common reasoning for this would be if you just think that they shouldnt be punished for whatever they did. I cant remember the term for it something like Third Option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. The tricks doctors use to distract you when they’re trying to check your reflexes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. How to make Thermite. I dont know why, Thermite itself itsnt actually all that useful or destructive. It burns hot sure, but its not going to melt anything very well without a proper vessel to contain and direct the heat into the thing you want to melt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">29 Odd Items With Simple Explanations</a><br>
 
 <span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
 
@@ -108,257 +204,7 @@ Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/me
 <span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
 Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">35 Pieces of Knowledge That Feel Illegal to Know</a><br>
-
-<span style="font-size:4em">1. Read a personal finance book that recommended calling your providers once a year (credit card companies, TV/internet providers, cell phone company, etc) and demand a lower rate or price. I’ve been following that advice for two years and have not been denied once.
-
-Last week I saw a commercial for my internet provider offering a super low introductory rate so I called to demand that I get that rate. They said no problem and now I save an extra $700 a year because of a 5 minute call. I am a very passive introvert so it’s not the most easy or comfortable thing but the money I save is worth it. They may so no initially but if you ask a few times or ask to speak to their supervisor they very usually give in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. In Canada you can record any conversation with someone without their knowledge, unless it is in furtherance of an offence.
-
-I had to do this with an auto restoration shop in order to do a Visa chargeback when they did nothing to my car but steal parts for almost a year (Curtis Customs in Nova Scotia - I don’t mind mentioning them because there are already news stories about their scams)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When I was a kid, my dad taught me how to pick a lock. I became very interested in different kinds of locks and purchased a lock pick set. I practiced for years and became pretty good at certain types of locks. So over the years every now and then, if a neighbor locks themselves out of the house or a friend loses the key to a padlock or a lock box I’ve been able to help. But the reactions I tend to get from people, even while I’m helping them with their lock is mainly one of mistrust. I’m not a cat burglar. I just like locks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. (This is England knowledge, other countries may vary) If you are struggling to pay bills, make water the first one you skip. Access to water is protected by law so the utility supplier cannot cut you off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well Im in med school and funny enough learning how to not kill a person involves learning about a s**t ton of ways to kill a person</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. You can ask scientists for their research paper that you usually have to pay money to view in a journal. They are allowed to just email it to you no questions asked and they like to do it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Unionization saves you more money than it costs you, you cannot be punished for attempting to do so, and it is NOT in any way illegal, rude, or improper to discuss your salary with your coworkers.
-
-It feels illegal because every company on the f*****g planet has tried to make people think unions are evil monsters trying to get you to pay union dues for no return. This is false because union dues are much less expensive than a company underpaying you and trying to work you to death, which a union fights against. Unions are there to prevent worker exploitation, stop it if people were being exploited when they got there, and get you a fair wage that will actually let you live off of one job instead of needing 4-5 or to work criminal amounts of overtime.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Totally another route of what everyone else is posting but.... the lion at The Animal Kingdom safari ride isnt chained (Disney World park). He is fed a huge piece of meat every morning and sits on a rock that is changed to the perfect temperature for him everyday so he has no reason to attack anyone on the safari ride.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. How to make explosives with everyday home products.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. One thing I learned is in the state of California if you are squatting a property for five years and have been upkeeping it with proof, you can file a claim of ownership with the courts and take over any property as long as it was deemed that the original owner never tried to remove you within the same timeframe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Well, I gave my 9th grade chemistry class a detailed report on diacetylmorphine (heroin) for a project about organic molecules, including how to make it. It was pretty interesting to do and fun to present, but I feel like I broke the law somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. It is legal to grow opium poppies in the United States, but only if you dont know they can be used to make drugs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Police are allowed to lie to you. So are military recruiters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Creating Nitrogen triiodide. When in liquid form it is stable but once it dries so much as a fly landing on it creates a purple smoke explosion. Its so unstable that alpha radiation can be used to detonate the stuff.
-
-Its actually easy to get the materials and create the stuff. Filled my high school hallway stairs with purple smoke on the last day of school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Aluminum foil can block the thefts detection signals in super markets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Hospitals have but don’t tell you about a program to reduce your bills depending on how much you make. You can go to their website and find a usually hidden link for financial assistance policies and really cut your bill down</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I dont know if its still a thing, but if you listen to Pandora radio the songs download into your temp folder under your browser. Just add the. Mp4 after it and you can play it.
-
-I spent lots of college listening to Pandora, and if I liked a song Id save it. If you paused the song in time then the most recent song was the top one in the temp folder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When you have a debt with a collection agency you can pay the debt and then call back a few weeks later and say, “I was told when I called and paid that you’d remove this from my credit score.” And then you ask for documentation saying they’re gonna do it. Apparently collection agencies don’t keep super good records on stuff like that; they just want your money. It worked for me, and I hope it can work for you if you need it in the future.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. 90% of home locks are easily pickable with a little know how and a couple pieces of metal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. You can ask the FBI if they have a file on you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When companies ask for your name/age/sex/race/occupation/salary/etc. you can just lie.
-
-You’ll never be able to remove the information about yourself off the internet, but you can muddy the water quite a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. There is a book called 100 deadly skills that teaches you how to do all sorts of potentially illegal stuff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. How to make a few different drugs. Organic chem at uni
-
-xk543x responded:
-
-How to make many illegal drugs
-
-Freelance Pharmacy institute of research and testing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Confidence can open a lot of doors. A lot of times, you can get away with more with some swagger than you otherwise would being meek about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I worked for a giant tech company and apparently share the same name as a very high up hardware engineer, got put on email threads I definitely didn’t belong on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. 1284x is a Ford fleet key. Not chipped, can be found on Amazon for $7 and perfectly legal to replicate.
-
-Searching 1284x filetype:.pdf site:.gov
-
-Will pull government bids that involve that key, and also show you what agencies you could open up or drive away a police car.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. That in Ireland there is no legal age to get tattoo. Legally you can tattoo a newborn as long as the parents consent. We can get done for bodily harm to a minor if their is no consent. We have an industry standard of 16 with parent or 18 with ID. Im a tattooist in Ireland.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I had a stats prof who used to work for the US government. Im not sure exactly what his job was, but it definitely involved evaluating the status and readiness of nukes, both ours and the USSRs (he was probably at least 70 and had been retired from that job for a while). One day in class he just started talking about the percentage of nukes that fail (ours and theirs) and why they fail and all kinds of other, seemingly sensitive, information. I dont think he would have told us anything classified, but his personality was boisterous and irreverent enough that I am not sure. I literally expected a team of spooks to bust down the door at any minute and drag us all off for interviews in windowless rooms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. You can say no when cashiers ask for your email or phone number.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. In regards to military grade bombs and missiles, it takes actual effort to make one go off on the ground. Like, you literally have to go out of your way to arm the fuse, then sit around for a timer to detonate said bomb.
-
-Its not like in the movies, where a soft breeze or some nutjob with a hammer, will make a bomb just explode for no reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Most large retail employers don’t have a policy against recording your interactions with your bosses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. When youre on a jury you can vote for someone as innocent even if you think they did it. Most common reasoning for this would be if you just think that they shouldnt be punished for whatever they did. I cant remember the term for it something like Third Option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. The tricks doctors use to distract you when they’re trying to check your reflexes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. How to make Thermite. I dont know why, Thermite itself itsnt actually all that useful or destructive. It burns hot sure, but its not going to melt anything very well without a proper vessel to contain and direct the heat into the thing you want to melt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. 51 is divisible by 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138090.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">34 Insanely WTF Haircuts to Baffle You</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
-
-<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">15 Coincidences People Weren't Expecting</a><br>
-
-<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">41 Weird And Cool Things People Saw</a><br>
+## <a href="#linky4" id="linky3">41 Weird And Cool Things People Saw</a><br>
 
 <span style="font-size:4em">1. “The tiny flower pattern inside this egg”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137741.jpg" style="width:100%"><br>
 
@@ -440,7 +286,7 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">40. “My scar didn’t get dirty at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137743.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">29 Stories Of Celebrities Being Jerks</a><br>
+## <a href="#linky5" id="linky4">29 Stories Of Celebrities Being Jerks</a><br>
 
 <span style="font-size:4em">1. Ellen Degeneres is a bona fide b*tch. Incredibly rude. My Uncle worked with her, (hes an architect), on some projects and she treated him help like total crap. I couldnt believe it at the time, but Ive heard similar accounts of her bad behavior over the years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138714.jpg" style="width:100%"><br>
 
@@ -499,6 +345,190 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 <span style="font-size:4em">28. Aziz ansari. Absolutely full of himself, zero self awareness. Literally forces himself into conversations with no understanding that he isnt wanted there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138738.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">25 Unethical Experiments That Would Never Pass an Ethics Board </a><br>
+
+<span style="font-size:4em">1. Im curious what happens if I isolate a person from, say, the color blue until the age of 10 and then put her in a room full of blue things.-u/HarmoniumSong </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138187.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. What could happen if you conjoin two brains in a way that allows them to communicate-u/ImpressStrict1366</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. How long can we prolong human life by replacing failing organs and whatnot with ones harvested from clones-u/_RealFakeDoors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. How a child would turn out with exactly 0 human contact, just very basic necessities met by robots. It would be interesting to see exactly how animalistic we are at the core-u/Historical_Collar_33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. How many people would I need to throw off the Empire State Building before the pile is big enough for them to survive the fall-u/Iamcryingontheinside</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I’d love to see the results of more twins studies done under controlled circumstances, but splitting up twins just because I’m curious about what makes people tick.-u/popejubal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Neural transplants. Want to see someone use someone elses body for a bit-u/Gale8761</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Give a baby a proportioned weight vest all its life, increasing the weight as it gets older. When it’s 11, will it be able to jump as high as all the other kids because its body has adapted? If yes, when we take it off can It jump much higher?-u/scemscem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. See if we can persuade a group of wolves to raise a child.-u/ReadinII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Any experiment that checks to see if a medicine is safe for pregnant ladies to consume... Would require trials of pregnant ladies consuming the medications before we knew the medications were completely safe.There are precious few Pregnancy Category A medicines.Most medications (like acetaminophen aka Tylenol) given to pregnant women are under Category B, Animal reproduction studies have failed to demonstrate a risk to the fetus and there are no adequate and well-controlled studies in pregnant women.-u/lub-shh-dub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Dr. Curt Richter conducted an experiment with rats that essentially concluded that the presence of hope could prolong the ability to stay alive when faced with life-threatening circumstances.During the first part of the experiment, rats were put in a bucket of water. After about 15 minutes the rat would begin to drown. The scientist plucked the rat out of the bucket of water merely seconds before death. After a couple of days, the scientist repeated this process. However, instead of drowning after 15 minutes of treading water, some of the rats survived for up to 2 and half days.The scientist concluded that the rats were able to continue swimming because they retained the HOPE of being rescued, as this is what they experienced during the first trial.It would be interesting to see how the concept of hope influences humans under similar circumstances.-u/Public_Bullfrog_382</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Id create an exact clone of me as a baby and send him to be raised somewhere else, by people who are as different from my parents as I can find, then meet up with him once hes, say, 30, and see how differently we turned out in terms of personality-u/WesleyPatterson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. It would be cool if we could somehow bring back different species of humans that went extinct. Like Neanderthals, Denisovans, etc. and see how they’d differ, if at all, from us if raised in a modern society. It’s been talked about, but likely will never happen due to ethical concerns.-u/jackiepoo0804</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138199.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Id like to know how how much of a human body could be replaced by cybernetics.I imagine we have/could make a good enough equivalent to quite a few organs but other organs I doubt could be replaced as easily It would also be interesting to see the mental impact of having so much of your body replaced.-u/northraider123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Bro, I want some crackheads to play sports-u/Heckthecooldude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Start modifying random genes to see if we could create superpowers.-u/HumanGomJabbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Id like to see an experiment where a child is brought up believing a fictional piece of work like Harry Potter or Lord of the Rings is a real religion.Think of it like the Truman Show, but instead of a show its just a household that worships Nic Cage or something. It would be interesting to see how behavior would deviate and/or be similar to other religious groups.-u/10sansari</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My brother and I have talked a lot about a special version of the Olympics where the competitors can use whatever and however many performance-enhancing drugs they want just to push the absolute limits of what humans can do. We figure it probably wouldn’t pan out though, since most of the athletes would probably just push themselves to death.-u/NoLifeMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. If you had 5 families living in one house and there were five kids each, all born the same day, same gender, etc; and the parents never once spoke to the child. All 5 sets of parents spoke their own language (let’s just say Russian, English, Chinese, Spanish, and German) and the kids grew up hearing all of that but never being spoken to. What language would the children learn or would they learn any?-u/Mountain_Ostrich0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. How many people would be willing to participate in incentive-based eugenics? IE - you get a timeshare in Florida if you promise to never have kids.-u/ItsPaulKerseysCar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. If were getting political: Organize a project where groups of people identifying with the same political belief govern a small region/city/county with full political control. So observing how a 100% leftist city would fare. And what a centrist city would do compared to a far-right city. Id be curious if those people would either start splintering into different sections, or harmonize into one big group, and if theyd fare relatively well or if they started to veer into extremism-u/notabuttersoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138207.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Human head transplant onto a gorilla body.-u/Spaventoo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Leave a bunch of babies in an isolated area alone (obviously feed them and stuff) but do not intervene otherwise and see what/how they develop a language.-u/_forum_mod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I’m fully convinced that living animal organisms need conflict or difficulty to survive. I’d like to see what happens if you took infants, put them in an artificial world, and provided them absolutely everything they needed to live, without them ever learning there’s a world outside. Obviously, it’s ethically atrocious, but I want to know what would happen-u/RavenStrider526</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Injecting mosquitos with vaccines so that they spread them instead, Id love to see if thatd actually work.-u/FestieBoy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87138211.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">30 Unusual Things People Weren't Expecting to See</a><br>
+
+<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">34 Insanely WTF Haircuts to Baffle You</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87136999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87137022.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
@@ -618,65 +648,35 @@ Its not like in the movies, where a soft breeze or some nutjob with a hammer, wi
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138391.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 Unusual Things People Weren't Expecting to See</a><br>
+## <a href="#linky10" id="linky9">15 Coincidences People Weren't Expecting</a><br>
 
-<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
+<span style="font-size:4em">2. “The letters in these signs that went out coincide with the letters that did not.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
+<span style="font-size:4em">3. “This TV uses the same picture as the puzzle I’m about to buy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
+<span style="font-size:4em">4. “By complete coincidence, the trees along this street matched the colors of the buildings.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I found some candles at work today that matched my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
+<span style="font-size:4em">6. “These cupcake papers match my sister.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
+<span style="font-size:4em">7. “My girlfriend’s socks perfectly matched the floor today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
+<span style="font-size:4em">8. “I lost my hat about a month ago. I found this homeless man who found it. What a coincidence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
+<span style="font-size:4em">9. “The color of my wife’s shoes matches this bag of chips.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Discovered this old chocolate box in my attic, just so happens that the best before date is actually my 3rd birthday (20/03/92).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
+<span style="font-size:4em">11. “My parents went to an art shop on their vacation and saw a drawing that looks like me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My cup color perfectly matches the color of sunset.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “When the sheets match your dog”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138050.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
+<span style="font-size:4em">14. “I work in a kitchen and everyone says I look like the guy from Ratatouille. Every minute.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
