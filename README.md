@@ -1,7 +1,49 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/06/2022-17:11:31
+Last updated: 04/06/2022-18:11:31
 <br>
-## <a href="#linky2" id="linky1">29 Stories Of Celebrities Being Jerks</a><br>
+## <a href="#linky2" id="linky1">20 Nightclub Photos That Are Far Too Chaotic for Us</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139007.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">29 Stories Of Celebrities Being Jerks</a><br>
 
 <span style="font-size:4em">1. Ellen Degeneres is a bona fide b*tch. Incredibly rude. My Uncle worked with her, (hes an architect), on some projects and she treated him help like total crap. I couldnt believe it at the time, but Ive heard similar accounts of her bad behavior over the years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138714.jpg" style="width:100%"><br>
 
@@ -61,68 +103,6 @@ Last updated: 04/06/2022-17:11:31
 
 <span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 Unusual Things People Weren't Expecting to See</a><br>
-
-<span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Some answers are needed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138774.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. A very synchronized team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138775.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. “This caterpillar train I saw at the park today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138778.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Some split clouds from earlier today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I heard a rustling in my backyard. Turned on the light expecting a possum and saw these guys.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138779.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. “In 1945 my great grandmother wrote her name on a sidewalk. We found it again. She is 93.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138780.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. “This surprised cheese block.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138781.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This parking lot hung up a plastic owl in hopes of scaring away pigeons.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138782.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Surprisingly voluminous trash cans in Amsterdam”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138783.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I found a surprisingly detailed face in my new water bottle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138784.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I accidentally left saltwater in an old mug for too long, and this is what happened.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “This trash bag looks surprisingly like a dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Suddenly, at work today. I work in northern Sweden.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138787.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “These well-aligned birds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Lizard eggs (I hope) nestled in an outlet box”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Instead of a broken wheel on my shopping cart, I have a shopping cart for my broken wheel.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “This extremely narrow building”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This cow, dabbing in the wild”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Clovers growing in my cactus”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “The stray black cat in my yard only has white armpits and bikini line hair.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138777.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found a starfish in my mussels.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “This sphere object I found in an aquarium on the display area kind of has a seal face.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “My donkey’s tooth came in at the center of his mouth. I call it cyclops tooth!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Mom boiled the purple potatoes with the corn. Now we have pink corn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This stack of papers kind of looks like Master Shake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Saw some water droplets with the oil slick rainbow effect, and each droplet has its own color.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
-
 ## <a href="#linky4" id="linky3">21 Morbius Memes Sweeping the Nation </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011734/87138837/Morbius-Memes4.jpg" style="width:100%"><br>
@@ -167,7 +147,114 @@ Last updated: 04/06/2022-17:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011931/87138858/Morbius-Memes2.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">Husband Totally Obliterates Wife’s Pet Goldfish</a><br>
+## <a href="#linky5" id="linky4">29 Odd Items With Simple Explanations</a><br>
+
+<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
+
+Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
+
+Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
+
+Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
+
+Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
+
+Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
+
+Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
+
+Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
+
+Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
+
+Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Spiky plastic thing”
+
+Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
+
+Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
+
+Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
+
+Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
+
+Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
+
+Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
+
+Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
+
+Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
+
+Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
+Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
+Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
+Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
+Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
+Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
+Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
+Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
+Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
+Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
+Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
+Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">Husband Totally Obliterates Wife’s Pet Goldfish</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138938.jpg" style="width:100%"><br>
 
@@ -185,7 +272,7 @@ Last updated: 04/06/2022-17:11:31
 
 <span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138937.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">49 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky7" id="linky6">49 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138652.jpg" style="width:100%"><br>
 
@@ -285,7 +372,7 @@ Last updated: 04/06/2022-17:11:31
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138699.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky8" id="linky7">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138333.jpg" style="width:100%"><br>
 
@@ -402,111 +489,4 @@ Last updated: 04/06/2022-17:11:31
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138390.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138391.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">29 Odd Items With Simple Explanations</a><br>
-
-<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
-
-Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
-
-Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
-
-Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
-
-Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
-
-Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
-
-Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
-
-Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
-
-Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
-
-Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Spiky plastic thing”
-
-Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
-
-Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
-
-Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
-
-Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
-
-Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
-
-Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
-
-Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
-
-Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
-
-Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
-Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
-Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
-Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
-Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
-Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
-Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
-Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
-Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
-Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
-Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
-Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
 
