@@ -1,7 +1,107 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/06/2022-14:11:31
+Last updated: 04/06/2022-15:11:31
 <br>
-## <a href="#linky2" id="linky1">15 Coincidences People Weren't Expecting</a><br>
+## <a href="#linky2" id="linky1">49 Funny Photos To Make Your Work Go Away</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138699.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">15 Coincidences People Weren't Expecting</a><br>
 
 <span style="font-size:4em">1. “I found a sneaker print in concrete that matched the shoe I was wearing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138044.jpg" style="width:100%"><br>
 
@@ -33,7 +133,7 @@ Last updated: 04/06/2022-14:11:31
 
 <span style="font-size:4em">15. “This random car matched the color of my nails.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138043.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">29 Stories Of Celebrities Being Jerks</a><br>
+## <a href="#linky4" id="linky3">29 Stories Of Celebrities Being Jerks</a><br>
 
 <span style="font-size:4em">1. Ellen Degeneres is a bona fide b*tch. Incredibly rude. My Uncle worked with her, (hes an architect), on some projects and she treated him help like total crap. I couldnt believe it at the time, but Ive heard similar accounts of her bad behavior over the years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138714.jpg" style="width:100%"><br>
 
@@ -93,7 +193,158 @@ Last updated: 04/06/2022-14:11:31
 
 <span style="font-size:4em">29. Samuel Jackson. Was walking around NYC around 17 or 18 and who do I see in the corner of my eye, but Mace Windu himself Kango hat and all. I was nervous about going up to him but I proceed to watch a young woman go up to him, show him her head shot, and take a picture with him. After he does this I have the confidence to strike so I stroll up and ask Are you Samuel Jackson? and he is like Nah so I proceed to ask Are you sure? Im pretty sure you are Samuel Jackson and he says Nah you got me confused with someone else and walks away. I was a massive fan before and now I will always associate him with that memory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138739.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky5" id="linky4">21 Morbius Memes Sweeping the Nation </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011734/87138837/Morbius-Memes4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011740/87138838/Morbius-Memes7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011745/87138839/Morbius-Memes13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011751/87138840/Morbius-Memes8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011728/87138836/Morbius-Memes11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011756/87138841/Morbius-Memes10.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011802/87138842/Morbius-Memes6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011807/87138843/Morbius-Memes9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011813/87138844/Morbius-Memes12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011817/87138845/Morbius-Memes20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011824/87138846/Morbius-Memes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011831/87138847/Morbius-Memes23.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011836/87138848/Morbius-Memes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011842/87138849/Morbius-Memes19.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011847/87138850/Morbius-Memes14.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011904/87138853/Morbius-Memes5.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011909/87138854/Morbius-Memes22.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011915/87138855/Morbius-Memes21.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011920/87138856/Morbius-Memes18.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011926/87138857/Morbius-Memes16.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011931/87138858/Morbius-Memes2.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">29 Odd Items With Simple Explanations</a><br>
+
+<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
+
+Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
+
+Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
+
+Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
+
+Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
+
+Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
+
+Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
+
+Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
+
+Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
+
+Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Spiky plastic thing”
+
+Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
+
+Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
+
+Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
+
+Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
+
+Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
+
+Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
+
+Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
+
+Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
+
+Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
+Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
+Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
+Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
+Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
+Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
+Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
+Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
+Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
+Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
+Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
+Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">59 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138333.jpg" style="width:100%"><br>
 
@@ -211,204 +462,6 @@ Last updated: 04/06/2022-14:11:31
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2207832/87138391.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">26 People Who Did Petty Things For Revenge</a><br>
-
-<span style="font-size:4em">1. Driver gets mad about traffic and gives me the finger.I was driving home from work on the freeway one late afternoon. Like a typical day in Los Angeles, there was a lot of traffic. I’m driving along and there’s this minivan behind me that starts tailgating me. It’s not like I can go any faster so I ignore it. Then the car proceeds to start honking. Still nothing I can really do. The driver than cuts to the lane next to me, rolls down her window, starts yelling and gives me the middle finger. I usually ignore stuff like this, but I was pretty annoyed at this point so I rolled down my window. I point at her tire while she’s yelling at me and yell “You have a flat.” She’s still yelling at this point so I say it again. She’s shocked and proceeds to pull off to the side. I watch her in my rear view mirror from a distance as she gets out to inspect her perfectly fine tire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Small revenge against hoarders.Saw a couple who had filled their trolley with toilet roll arguing with an elderly couple who had asked for one packet because there wasn’t any on the shelves and they’d ran out. These 2 were a right piece of work and being quite abusive to the elderly couple. I went over to the elderly couple and told them to finish their shopping and that I would come and find them. They go off and arsehole couple carry on what they’re doing. When their backs are turned I grab 2 packets out of their trolley, go and find the elderly couple and give it to them. I then went and found a shop assistant and told them about arsehole couple being abusive to the elderly and when they get to the checkout their trolley is taken off them and they’re escorted out by security. This has made me extremely happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. You say dogs barking is just what dogs do huh?I had a neighbor that had a dog that I s**t you not, barked from bout 7pm til 5am NON STOP. They worked nights I believe. They kept it outside. I knocked numerous times, and they said: Dogs bark, what do you expect?Their house was directly behind mine, we shared a divided wall. I recorded their dog for a full day. The minute they brought him in, and felt like they were sleeping, I popped my phone into the dock and played it on my stereo full blast facing their yard at 9am.They came over raving mad to my wall by about 12, asking me to shut my dog up. I said Its your dog, I recorded him, since you miss out on what dogs do. Im just playing the radio at normal allowable city time and I will do this everyday.They started bringing the dog in at night after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Say goodbye to your cheque!Short and sweet - I was waiting in line at the bank. They have you line up outside, not a problem. This particular day it was a bit windy, again not a problem... for me.A guy gets out of his car, cheque in hand. You know where this is going, ha. The wind whips the cheque from his hands and somehow I managed to step on it as it scooted by me.I wasnt really expecting a thank you to be honest, but what I definitely wasnt expecting was the guy to chew me out for dirtying up his cheque. Thanks for stepping on my cheque, the bank probably wont accept it nowCall me an asshole but I lifted my foot up and let it blow away in the wind down the street and said well they definitely wont accept it now.The guy flipped his s**t as he was chasing it down the street and I got called up as next in line. Sorry not sorry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I have a friend whose pumpkinfall display at the end of his driveway would be run over by the neighborhood jerk. happened every year. my friend decided to put a stop to it.he withdrew money from his savings account so he would have enough to buy the largest punkin he could find, along with several large bags of Quikcrete. filled that puppy up and made a real pretty display.the jackass broke the axle of his shotty car when he hit that pumpkin. could not drive away. my friend had his car towed away, too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My roommate enjoys nice long showers in the morning using all of the hot water. I realized that he literally jumps out of bed and runs into the bathroom when he hears my alarm. I started putting my alarm on silence for a while and this was working well enough but I still missed my morning shower several times because of their unreasonable long showers. So I just started moving to two alarms one alarm about an hour and a half before I normally get up. This has caused him for about two weeks now to get up really early run the hot water out and be out with enough time for it to be warm again. Small victories are nice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Neighbor wont turn his flood lights off.Some years ago we had some new neighbors move in next door. Nice enough people but we had a problem with them. The husband traveled a lot and his wife was afraid of just about everything, the dark, thunderstorms, you name it. The problem was the flood lights over their garage doors. She would leave them on all night, every night, even though you couldnt see them from inside of their house. They were positioned such that they would shine into our bedroom at night. We were not able to block them effectively with our curtains. We asked them politely several times if they could turn them off at night since they served no effective purpose. They adamantly refused. I offered to pay for a timer that would control them. No way they would consider it. I thought about taking the bulbs out, shooting them out with my pellet gun, etc. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">The solution that I arrived at was to simply loosen them up enough that they wouldnt come on. Since they couldnt see them from inside the house it was about 5-6 months before they realized that they were not working. They screwed them back in. I waited a couple of weeks and unscrewed them again. Another few months went by. Finally, one day, my neighbor asked me if I ever had any trouble with my outdoor lights. I told him yes, as a matter of fact I did. I said that they would loosen up occasionally and I would have to retighten them. I blamed it on vibration from the traffic on our street. He said that he had the same problem. I told him that I finally just gave up and left them off. He eventually did the same. We were happy with the final outcome and we were able to keep peace in the neighborhood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. You can have the furniture but Im taking the hex keys & screws!My ex and I broke up. We lived together. I sold most of my furniture to keep his, and we used that money to buy new things for the apartment like decor & bar stools for the kitchen. He not only wanted to keep all of his furniture, but 50% of the stuff we bought together. Tried to explain that everything became ours 50/50 when I sold my stuff to keep his. It wasnt worth fighting over, he was being pretty vindictive, so I said f**k it and let him take it all. I ended up with a desk, a rug, 2 bar stools, and some kitchen & decor items. He took all the electronics including TV, couch, coffee table, tv stand, bed & bedframe, etc. All of the really important and/or expensive items. He also returned all the gifts he got me for Christmas/my bday, but kept his Christmas gifts (more like, left me the boxes but took the items out of them).My petty revenge... Most of the furniture was Ikea. All of it being built with hex keys. I helped him disassemble his furniture for the movers. Then, I took his entire bag of hex keys & hardware (the screws and whatnot). He put the furniture in storage so he wont notice for another month at least. Replacing the hex keys is pretty simple, but good luck tracking down the exact screws and brackets and etc!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My mum and her friend had a massive fight, and my mums friend sent a letter to my mum scolding her and pretty much saying Were no longer friends and my mum, as an Ex-Teacher, took out a red pen, corrected all the spelling mistakes and grammatical mistakes, and mailed it right back to her</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. So, you wanna snoop in your daughters texts?So Im married to a wonderful woman. Shes smart, funny and very kind.Her mother is generally very nice and tends to have a great attitude and be very enjoyable, a bit of a prude but generally enjoyable, however can be a bit of a major snoop. If my wife leaves her phone sitting around she will just pick it up and start going through it. My wife has kind of laughed this off as a remnant of her mom being controlling when she was a kid.Im not a fan of this because my wife and I will sometimes text about thing that simply dont involve her mother and I dont feel are hee business at all.So over Christmas my I saw my wife set her phone down on the kitchen counter and I had a brilliant idea. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Her mom was still in the kitchen and I sent my wife the most sexually depraved text about all the things I was going to do to her when everyone left. (Honestly most of them are things we havent even done, but I had to make it extra scarring ...)I sent this text from the bathroom. And maybe it was my imagination but I could swear I could hear an audible ghasp shortly after her phone went off.When I went out her mother absolutely would not look me in the eye. Then not-so-discreetly asked her daughter to come talk to her in the other room.When my wife came back into the living room I thought she had been crying, however upon closer inspection she was laughing. Her mother had questioned her about me sexually abusing her and if I always talk down to her like that.My wife had told her kindly that what we do is between us and us only. Probably the best gift this christmas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mom won’t believe nsfw site was popup ad, son “shows” her it can happen to anyone.When I was a kid my mom caught me looking at a porn site and I claimed it was a popup but she clearly didnt believe me. A few days later when she wasnt looking I pulled the same site up on her work laptop and hid it behind her browser window and pretended to catch her in the act when she closed her browser and the porn site showed up on her screen. She was flabbergasted and claimed it was a popup and I was all yeah right because that apparently doesnt happen and she apologized for not believing me before.I was f***ing diabolical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Take my parking spot?? What goes around comes around.This may be the pettiest thing I have ever done.So in my city there is a pub thats attached to a doughnut shop that serves the best doughnuts in the city (which always causes a long line). Because its attached to a pub, it doesnt close shop until 9PM as there is a solid flow of business rolling in.Anyway, my girlfriend and I get a serious hankering for some snacks so we decide to head to the doughnut shop and arrive out around 8:30 P:M by car. Now, there are only three parallel parking spots a little up the street from the place, and they are all 15-minute spots which are usually full. We see up the street that, count our lucky stars, a spot is free! My girlfriend pulls a little ahead of the car in front of the spot, turns on her indicator, and begins backing into parking spot when this little white vespa driving behind us whips into the spot. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">I roll down our window and call out to the driver Scuse me, we were just backing in. The driver seems to be a pretty univ student who shrugs her shoulders and calls out to me sorry, first come first serve! while her and her friend share a good laugh.My girlfriend suggests we just get doughnuts another time, and I tell her she can drop me off here, Ill buy the doughnuts since I know what she likes, and she can loop around. She agrees, and I pop out of the car, pass the little white vespa where the girls are still gathering their things, and head to the shop. As always, the line is super long for doughnuts and since this is the last batch, the doughnuts are slim pickins. The girls are behind me looking at the 5 or so different flavors that are left, talking about which ones are best and which they havent had yet. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">I hear one of them jokingly mention thank god we got a parking spot and they burst out laughing. I get to the front of the line, and when asked for my order, request two dozen doughnuts, which is every last one remaining. The girls behind me didnt listen to what I ordered, but eyebrows of confusion started to form on their faces and they slowly saw each doughnut loaded into the boxes and their options dwindle.One of them (the driver) in desperation asked the baker who was loading them in what, youre not even gonna save a few for us though? to which I turned around and said sorry, first come first serve. She honestly looked like she just simultaneously solved a movie mystery and s**t her pants, its difficult to put into words but truly an expression I can never forget.Best doughnuts I ever tasted (and enjoyed by the rest of my office the next morning)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Teacher denies bathroom privilege, student asserts his dominance.I originally posted this as a comment on another post, but my SO thought it was worth sharing as a standalone. Im adding a bit more detail and correcting some spelling and grammar. Also, posting from mobile, so apologies for formatting. Context: This happened in the early 90s and at the time the teacher had been teaching for 30 plus years. It was a rural area, so many of my friends parents had also suffered through at least one year of primary school with this awful woman. Ive seen a grown woman cry recounting memories of her experiences --she was really that bad.My second grade teacher took pride in being a mean old cunt to her students. Wielding control over our tiny little bladders was something that gave her a particular satisfaction. One day during cursive lessons this kid named Joseph asked to use the bathroom. She told him he shouldve used the bathroom during morning recess and would have to wait until lunch. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">A little while later he started squirming in his seat and again asked to use the bathroom, this time with more urgency. At this point our teacher starts berating the kid by telling him he is a little baby for not holding his bladder like a big boy and suggesting that he should wear diapers. Joseph gets tired of her s**t, stands up from his seat, stares her directly in the eye and proceeds to unleash the most epic man-sized piss he could muster. As fate would have it he was wearing those mesh material basketball shorts so the piss just flowed unobstructed down his legs and pooled on the carpet beneath him. A wave of giggling quickly spread through the classroom, which was basically the second grade equivalent of a slow clap. Our teacher just stood there dumbfounded for a moment before grabbing Joseph by the arm and dragging him off to the principals office. As they exited the room Joseph glanced over his shoulder with a big grin on his face.A legend was born that day and we all enjoyed our newfound bathroom privileges for the remainder of the school year. Teacher retired the following year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I put a fake note on a Corvettes windshield that read Sorry I hit your car, you probably wont even notice the damage because it was taking up four spots.So title is fairly self explanatory but Ill elaborate. I was trying to find a parking spot at my university. The lot was notoriously crowded but my campus didnt have a lot of options. While searching, I saw a Corvette taking up FOUR prime spots near the front of the lot. After about ten minutes of waiting/looking for a spot one opened up towards the back of the lot. Furious at the nerve of the driver being so inconsiderate, I wrote a note saying, Sorry I hit your car, you probably wont even notice the damage and left it on their windshield. When I got out of class and was headed back to my car, I saw a very stereotypical college aged Corvette owner frantically searching their vehicle while yelling into their phone. I dont know who they were talking to, but I feel bad for them having to deal with this person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Neighbor took my parking spot after I shoveled. I poured water in his windshield.It was a cold winter day. 8 inches of snow had fallen the night before, and the windchill made it feel as if it were in the negatives (Fahrenheit). I drive an all wheel drive SUV so I have no issues getting out. My wife on the other hand drives a Prius, which slides with the smallest amount of moisture on the road.My car was down at the time, so we had to take my wife’s car. I spent 45 minutes in the freezing cold shoveling that car out so we could get to the store. We were gone for an hour, and when we came back, our neighbor had taken the spot I had shoveled.Our apartment complex doesn’t have assigned parking, but in the winter, it’s understood that if you shovel a spot, it’s yours. So when I saw his car in the spot I had just shoveled, I was pretty pissed.I went inside and filled two gallon jugs of water. Went back out and poured them on his windshield. Rinse and repeat. I must have poured about ten gallons of water on his car. Being how cold it was, it was already freezing by the time I poured the last gallon on. It sat like that overnight.The next morning, I got to watch as he helplessly tried to scrape all of these layers of ice off his windshield.Don’t take my goddamn parking spot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I published a poem about my ex in a literary magazine hed been trying to get in to for years.We were both in high school, and at the end of the relationship he told me he was just in it for the sex that he didnt really mean any of it, and that I obviously just wanted him because I was horny. He then went and had a hot and heavy make out sess with my best friend and came back and told me I was a bad kisser compared to her. Yeah, he was a jerk.Well, flash back to a few months previous. I was angry at him because he was being really hot and cold and so I wrote an angry poem about him. The magazine he had been trying to get into had a website and would publish poems based off of popularity on the website. He had gotten me to join a few months previous and I only had a few poems up. I decided against posting it then because it would be too mean.Well after he had pulled that s**t I decided I wanted a little revenge. So I posted the poem. And suddenly it was getting A LOT of popularity. And I get a notification from the magazine saying they want to publish it. So what was the first thing I did? Messaged him that I got published in this magazine. He got excited for me and congratulated me, until... he read the poem.Several million people have read the poem in the magazine, and to this day, he still hasnt gotten published.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Dad got decade long revenge on my aunty.A little set-up: My dad is one of 9 children to my grandparents. When the oldest sister (my aunty) lets call her Margaret got married, one of the gifts she received was four very poorly made clay pots from one of her friends who wasnt super close to the family. They were all very different to each other and didnt match at all. I assume they came out of a first-timers pottery class or something.Anyway, fast forward 15 years and my parents are getting married. Margaret shows up at the wedding. As does everyone else. The ceremony and reception pass with no dramas and everyone goes home.The following week my parents begin to sort through all their wedding gifts. Unwrap Margarets to find a very old worn-looking cardboard box with the old tape still underneath the new tape put on there by Margaret to hold the lid closed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">Dad opens the box to see the 4 pots that had been given to Margaret 15 years prior. My parents knew this was a gift to Margaret originally because at the bottom of the box was a cord of congratulations on your wedding... addressed to Margaret. She hadnt even bothered to take the pots out of the box when she was gifted them or checked the condition when rewrapping them. This thoroughly pissed off my dad.Then his anger turned to determination as he started to develop a plan that would stretch almost a decade.With Christmas fast approaching my dad rewrapped the pots in the same box with the same wedding card addressed to Margaret. essentially in the same condition he had received it in. He then wrote another card addressed to another of his siblings explaining his plan. He gave the present to the youngest of his siblings, the newer card explained that she was to hold on to the pots until the next Christmas, making sure to unwrap it and make sure that everyone could see the pots in one way or another. the card then explained to leave the wedding card in the box and to not let anyone see it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">My aunty would then hold on to the box, pots and card until next Christmas. She would then gift them and my dads note to the next sibling above her in age (my uncle). This cycle would repeat another 8 times until it reached the oldest sibling. Margaret. In my dads letter, it instructed the last sibling before Margaret to not give her the letter written by him regarding the plan.9 years after giving the gift away. My dad and all his siblings watched as she pulled out the pots that she had seen being passed around from sister to brother to sister for the last decade. She then noticed the note still in the box. She opened it and a category 4.2 earthquake was registered as her jaw hit the floor.Now, most people would expect her to erupt in rage but Australians have some of the best senses of humour on the planet. The family all had a good chuckle about it and moved on to Christmas lunch. The pots are now separated. one going to my dad, Margaret, my grandparents and the last being the trophy of the annual cricket game. It was sadly destroyed by a rouge ball in that very same yearly tournament and is now only half a trophy.Hope you enjoyed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. We were kids staying at the seaside on holiday with our family. My little sister would always make a pretty sandcastle, and the next day it would have been kicked down and shed cry. We wanted to find out who was doing it, so one day we stayed behind to spy. We watched as a bunch of jerk older boys came by and kicked her castle down, laughing smugly. So the next night, we covered a big beach rock in sand and decorated it. Like clockwork, the jerk kids came with their smug faces and this time kicked a solid rock with all of their might. The yowl and the look on their faces was the best revenge ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Grumpy neighbors ruined my birthday, my dad never let them enjoy their backyard ever again.Just came across this sub & thought of this story instantly.We are going a ways back here, think I was 8yo so that puts this story in the late 90’s.I grew up on a busy street in a suburb, all the houses are basically right next to each other.On one side of the house we had the grumpiest most miserable old couple in their 70’s as neighbors.We have a big family & enjoyed cook outs during the summer months. They hated us having parties & we weren’t even doing anything out of the ordinary. Just the type of people that would bitch about basically anything for no good reason.Well it’s my 8th birthday party & we have our typical big family get together. Well my favorite gift that year ended up being a globe trotters basketball. We had a hoop & had a blast playing around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139426.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">21 Morbius Memes Sweeping the Nation </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011734/87138837/Morbius-Memes4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011740/87138838/Morbius-Memes7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011745/87138839/Morbius-Memes13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011751/87138840/Morbius-Memes8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011728/87138836/Morbius-Memes11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011756/87138841/Morbius-Memes10.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011802/87138842/Morbius-Memes6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011807/87138843/Morbius-Memes9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011813/87138844/Morbius-Memes12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011817/87138845/Morbius-Memes20.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011824/87138846/Morbius-Memes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011831/87138847/Morbius-Memes23.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011836/87138848/Morbius-Memes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011842/87138849/Morbius-Memes19.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011847/87138850/Morbius-Memes14.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011904/87138853/Morbius-Memes5.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011909/87138854/Morbius-Memes22.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011915/87138855/Morbius-Memes21.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011920/87138856/Morbius-Memes18.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011926/87138857/Morbius-Memes16.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/05/011931/87138858/Morbius-Memes2.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">49 Funny Photos To Make Your Work Go Away</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87138699.jpg" style="width:100%"><br>
-
 ## <a href="#linky8" id="linky7">30 Unusual Things People Weren't Expecting to See</a><br>
 
 <span style="font-size:4em">1. “This is what happens when you put dish soap in a fountain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138776.jpg" style="width:100%"><br>
@@ -470,111 +523,4 @@ Last updated: 04/06/2022-14:11:31
 <span style="font-size:4em">29. “Found a double banana.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138802.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. “My cat, Bo, has her name on her back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138803.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">29 Odd Items With Simple Explanations</a><br>
-
-<span style="font-size:4em">1. “Weird hollow lens-shaped things stuck together with no pattern. Found on a beach.”
-
-Answer: Whelk eggs. There’s a picture here if you scroll, plus a cool one of the whelk actually laying some eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Small dimpled rubber ball that was thrown at a cyclist. Very squishy and about the size of a paintball.”
-
-Answer: Nerf ball for the Hyper or the Rival.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Stretchy metal bracelet with sharp hanging blade. The bit at the end is sharp and moves on the pin.”
-
-Answer: You put a spool of thread on the bar and put the circle on your wrist, so you can work on needlework or embroidery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I now own these neon rainbow acrylic mystery sticks I found in the Goodwill bins. Anyone know what I bought?”
-
-Answer: They are colorful mahjong racks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Cast iron shaft in the marsh on my property”
-
-Answer: It’s the worm and driveshaft out of a 28-29 model AA Ford. Driveshaft and worm likely 6-7 feet long.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Light ’fixture’ I noticed at a restaurant. Appears to be some sort of old machinery.”
-
-Answer: It’s the lift mechanism from a dumb waiter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Found these glass tubes in the attic of my 100 year old home.”
-
-Answer: Ampules that can be filled with something. They get sealed by melting the glass with a flame.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “What is the intended purpose of this very thin, glass covered drawer?”
-
-Answer: It’s a bedside cabinet and it’s to put cups of coffee/ breakfast on, so it doesn’t leave coffee rings/stains on the top.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Metal triangle-shaped hand tool with an offset wooden handle. 5 shallow circle indents on the surface.”
-
-Answer: It’s a Masonic shot glass holder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Spiky plastic thing”
-
-Answer: Bottle holder for babies bottles. You use it as a drainer after washing them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “It looks like a plastic key of some sort, but with a ridge pattern instead of a normal key pattern.”
-
-Answer: Looks like it could be a ’Zig Zag Waffle Key for Leonardo Versatwin & Kruger toilet paper dispensers’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Found this at my internship. It is a relatively small, metal plate.”
-
-Answer: Looks like a Witkar key. Even the design in the flat part looks like the company logo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Found on the beach, it’s solid, and the green casing feels like stone, but is almost a little stretchy when I try to pull at the edges.”
-
-Answer: Could be a capacitor. Looks like the 2 wires can be seen at the bottom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “What is this weaved object hanging on the wall of my local pub? I vaguely remember one hanging in my grandparent’s old house.”
-
-Answer: For beating the dust out of rugs, I believe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “What is this 6-floor tiny tower in the middle of a parking lot, adjacent to a baseball field?”
-
-Answer: They use that whole area for training of all sorts, including high-speed chase training for cops, as well as a firing range.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Old heavy key with ‘GOOD HEALTH’ engraved”
-
-Answer: It’s obvious. It’s the key to good health. These ’motivational’ knickknacks have been a thing for generations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Found this in my math teacher’s room. 100 squares with varying patterns and colors. No patterns seem to be the same.”
-
-Answer: It’s a prime factorization chart. Almost the same one, but I see this one is shifted one down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “It’s carved wood with wooden rings around it. The rings don’t come off. Found it in a park.”
-
-Answer: It’s a hot chocolate stirrer/whisk. Known as a molinillo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “It looks to be a very small concrete bench or seat facing away from the road near the curb. Too small for a child.”
-Answer: They could be old carriage steps, used to help people get in and out of horse-drawn carriages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “A gold sphere with legs and a handle. The sphere splits in 2, each side with a lid.”
-Answer: This is a Victorian folding clamshell biscuit box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “This is gate-blocked road access to some cell towers. Why so many locks, and how would someone even open it?”
-Answer: It’s a shared access gate. You can open the gate if you have 1 key that fits one of the locks. It’s necessary when the keys belong to different people or organizations. If someone loses the keys, you can just restore 1 key instead of making new copies for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Purchased in Africa, was told something about ancient sailing.”
-Answer: They say it’s an astrolabe. It is one of the most ancient astronomical tools to measure the horizontal angles and find the longitudes and latitudes of celestial bodies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I found this metal object. No text or numbers. Can retract to be the size of a bracelet.”
-Answer: It’s the top (closure part) of a purse or small handbag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Okay, I know it’s a chair, but what’s with the extended arms?”
-Answer: It looks like a plantation/planter’s chair. You’d put your sore, swollen legs up on the arms after sitting on a horse all day, like a pregnant woman with her legs up in the same fashion. This is why the back is so sloped as well. If you sit up straight, it wouldn’t be comfortable to put your legs up like that, but in a reclined position, it’s good for blood and air flow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Just moved to a new apartment, found this in the living room. What is it?”
-Answer: It’s an antique heater.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Found this small kettle years ago. Does anyone have an idea as to why this has this unique shape?”
-Answer: It’s a portable men’s urinal for bed-bound patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “This was found with old tools. It can lock in place and the middle bit turns around, unraveling 2 straps of fabric.”
-Answer: It’s for carrying books.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “I found this in the garage, a tube with notches made of brass, the rest of the cover on top. It has a copper rod with a wooden handle.”
-Answer: It’s a hair curler.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “It’s a plaque with numbers inscribed on it. Found on the sidewalk outside a building at my university.”
-Answer: It’s a magic square. It’s a popular sort of decoration to put outside math departments. If you add the numbers horizontally, vertically, and diagonally, it will make 34.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138421.jpg" style="width:100%"><br>
 
