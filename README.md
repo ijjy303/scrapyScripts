@@ -1,65 +1,99 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/08/2022-09:11:31
+Last updated: 04/08/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">28 Posts From People Who Really Hate Cars </a><br>
+## <a href="#linky2" id="linky1">25 Things That Make Living In America Great</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121317/87140474/fuck-cars28.png" style="width:100%"><br>
+<span style="font-size:4em">1. Honestly, if I had to pick the #1 thing, Id say the open space. The USA has so much open space that weve carved off enormous parts of the continent to permanently be just open space. -u/McFeely_Smackup </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121318/87140475/fuck-cars23.png" style="width:100%"><br>
+<span style="font-size:4em">2. You can go to the humane society and pet cats for free!!-u/Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139825.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121327/87140476/fuck-cars14.png" style="width:100%"><br>
+<span style="font-size:4em">3. Wheelchair accessibility. As someone who uses a wheelchair for all ambulation, I can say the US has a leg up on that compared to the other countries that I have been to.-u/hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121329/87140477/fuck-cars22.png" style="width:100%"><br>
+<span style="font-size:4em">4. National and state parks National parks are beloved destinations for both citizens and visitors from around the world, even more people visit the state parks. With sweeping vistas, stunning forests and incredible wildlife, amazing hiking and camping adventure, parks are one of the brightest jewels of America.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121339/87140478/fuck-cars27.png" style="width:100%"><br>
+<span style="font-size:4em">5. I like the diversity of the landscape & natural world. I’ve been to mountains & deserts & mountains in deserts. Been to the ocean with a sandy beach, to lakes with sandy beaches, to lakes with rocky beaches. Been to the woods & to forests. I’ve seen so many different native plants, all kinds of animals, & bugs. It’s pretty damn cool.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121340/87140479/fuck-cars21.png" style="width:100%"><br>
+<span style="font-size:4em">6. Garbage disposals in sink-u/nasdaqian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121349/87140480/fuck-cars11.png" style="width:100%"><br>
+<span style="font-size:4em">7. Plenty of densely forested areas to hide in after the apocalypse if you know where to live. Also, corn. Love me some cornbread.-u/amillefolium11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121351/87140481/fuck-cars17.png" style="width:100%"><br>
+<span style="font-size:4em">8. How inexpensive tech is-u/Arndt3002</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121400/87140482/fuck-cars10.png" style="width:100%"><br>
+<span style="font-size:4em">9. Free refills.-u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121402/87140483/fuck-cars9.png" style="width:100%"><br>
+<span style="font-size:4em">10. Amazing concerts and music festivals-u/wogwai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139833.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121411/87140484/fuck-cars25.png" style="width:100%"><br>
+<span style="font-size:4em">11. Our grocery stores stay open really late. On the east coast, its until 11 or 12 at night. On the west, its 24 hours in some places.This is, in all seriousness, the thing I love most about my country.-u/ThatDismalGiraffe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121413/87140485/fuck-cars20.png" style="width:100%"><br>
+<span style="font-size:4em">12. I was very young when my parents and I immigrated here, and I have far more opportunities here than I would in India. So I’m very thankful for that.-u/sunsetskye_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121422/87140486/fuck-cars16.png" style="width:100%"><br>
+<span style="font-size:4em">13. The American spirit, not in the sense of patriotism, but in the sense that people who live here have a certain.....gumption.....to get things done no matter the cost.-u/The_Poster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121424/87140487/fuck-cars15.png" style="width:100%"><br>
+<span style="font-size:4em">14. After watching whats happening to Ukraine, its nice to know well never be physically invaded. It would be nothing short of a suicide mission for anyone that tried.-u/berwak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121433/87140488/fuck-cars26.png" style="width:100%"><br>
+<span style="font-size:4em">15. The people here are actually very nice. There are a few turds that make us look bad, but most people are friendly and helpful.-u/Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121435/87140489/fuck-cars13.png" style="width:100%"><br>
+<span style="font-size:4em">16. AC during the summer-u/I2eN0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121445/87140490/fuck-cars8.png" style="width:100%"><br>
+<span style="font-size:4em">17. I have never faced repercussions for criticizing our leaders or government. The diversity is pretty cool. I have lived my whole life in the northeast, and pretty much any given day I could meet someone from literally any country on the planet. That diversity brings a really tasty variety of cuisine. We have a lot of coastline for beachgoers, mountains for fun in the snow, prairies for prairies stuff.-u/TheShoot141</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121446/87140491/fuck-cars6.png" style="width:100%"><br>
+<span style="font-size:4em">18. You can speak English with a heavy accent and still be seen as fully American.-u/liberalvenery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121457/87140492/fuck-cars19.png" style="width:100%"><br>
+<span style="font-size:4em">19. I can talk sh*t about the president and not get arrested and disappeared. So thats pretty nice.-u/Its_All_True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121508/87140493/fuck-cars24.png" style="width:100%"><br>
+<span style="font-size:4em">20. I can wear what I want. Sure, I have strict parents at the age of about to be 21. But coming from the middle east, most people dont realize the blessing we have here to be able to wear shorts or jeans or tank tops-u/DarkenedProdigy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121519/87140494/fuck-cars18.png" style="width:100%"><br>
+<span style="font-size:4em">21. Not American but I’ve lived in the US for 15 years. As an outsider:-closets. I love all the built-in closets. I was never a wardrobe fan.-separate laundry areas.-that most housing is detached. On the one hand, it does mean a huge reliance on cars. On the other hand, I never ever hear my neighbors.-accessibility of toilets is a heck of a lot better than any other country I have visited. During the day I can usually rely on finding a Target or Starbucks or something. Even if I have to buy something to use it they’re easier to find than in Europe.-the casual way everyone dresses. My fashion-conscious friend is appalled but especially as a parent I appreciate that I can dash out in my PJs if I really, really need to.-convenience. Every time I visit my family now I forget that not all shops are open until 9/10 pm. I also live in Washington state currently and have developed a deep love for all the coffee stands around here.-u/anyaplaysfates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121528/87140495/fuck-cars4.png" style="width:100%"><br>
+<span style="font-size:4em">22. Ice in drinks. We really value ice.-u/CaptainoftheStella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121529/87140496/fuck-cars3.png" style="width:100%"><br>
+<span style="font-size:4em">23. I can smoke legal weed on my way to have legal gay sex and I don’t have to worry about being macheted to death or thrown off a building.-u/junk_science</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121530/87140497/fuck-cars12.png" style="width:100%"><br>
+<span style="font-size:4em">24. Our wide-eyed optimism, self-sufficiency, and inherent distrust of government.-u/Straight_Medium2988</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121541/87140498/fuck-cars5.png" style="width:100%"><br>
+<span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121552/87140499/fuck-cars7.png" style="width:100%"><br>
+## <a href="#linky3" id="linky2">19 Pics to Make You Say Hot Damn</a><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121603/87140500/fuck-cars1.png" style="width:100%"><br>
+<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121612/87140501/fuck-cars2.png" style="width:100%"><br>
+<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">14 Pics That Will Restore Your Faith In Humanity</a><br>
+<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">14 Pics That Will Restore Your Faith In Humanity</a><br>
 
 <span style="font-size:4em">1. My wife and I couldn’t get our newborn baby to stop crying at the restaurant, so we embarrassingly started to pack up to go home when the couple sitting next to us offered to hold him so we could enjoy a night out. Our baby slept on this kind strangers shoulder the entire evening!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139671.jpg" style="width:100%"><br>
 
@@ -89,7 +123,7 @@ Last updated: 04/08/2022-09:11:31
 
 <span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
+## <a href="#linky5" id="linky4">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
 
@@ -110,68 +144,6 @@ Last updated: 04/08/2022-09:11:31
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">30 People Who Found Real Life Easter Eggs</a><br>
-
-<span style="font-size:4em">1. A Friendly Message On The Bottom Side Of My Bag Of Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Found On A Hike Right Outside Of Stowe, Vt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My Dog Took The Squeaker Out Of Her Toy. It Says Game Over. Your Dog Won</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My First Ever Shoes (From The Early 1980s) With Some Useful Instructions On The Sole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Tried To Find An Easter Egg On A Bottle Of Juice, Not Disappointed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Upside Down On The Back Of An Innocent Almond Drink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Saw This On A Walk It’s Nearly Invisible From Any Other Angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The Back Of A Tag On A Frying Pan I Just Purchased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Don’t!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My Coconut Yoghurt Wants To Be A Book Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Virtual Reality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When Broken Isnt Really Broken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nachos For The Win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Excuse Me, I Can’t Find My Husband.” “Try Aisle 6”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In Case Of Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Cute Dino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This H&s Signs I Found At Work</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Oops…. Dales Pale Ale Did It Again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Scooby Doo Irl Easter Egg In Ottawa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Before He Died, Adam West Lived In Ketchum, Idaho. This Is From The Ketchum Phone Book During That Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I Have Had This T-Shirt For Way Longer Than I Want To Admit. I Hear A Capture Sound From My GF`s Phone Taking A Picture Of My Neck And She Shows Me This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Rest In Peace?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. On The Bottom Of The Drink I Had Last Summer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. On The Box Of Subscription Cat Food I Got Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Ebisu, Tokyo Has Street Lamps In The Shape Of Beer Mugs, As There Used To Be A Beer Factory There</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Found This Behind A Samsung Washing Machine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Saw This In My Daughters Shorts While Changing Her Diaper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Adorable Tag On My New Jumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Entrance To The Mountain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. In The Corner Of My Schools It Room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138772.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">88 Darn Great Memes and Pics to Enjoy</a><br>
 
@@ -405,7 +377,65 @@ Last updated: 04/08/2022-09:11:31
 
 <span style="font-size:4em">19. Grumpy neighbors ruined my birthday, my dad never let them enjoy their backyard ever again.Just came across this sub & thought of this story instantly.We are going a ways back here, think I was 8yo so that puts this story in the late 90’s.I grew up on a busy street in a suburb, all the houses are basically right next to each other.On one side of the house we had the grumpiest most miserable old couple in their 70’s as neighbors.We have a big family & enjoyed cook outs during the summer months. They hated us having parties & we weren’t even doing anything out of the ordinary. Just the type of people that would bitch about basically anything for no good reason.Well it’s my 8th birthday party & we have our typical big family get together. Well my favorite gift that year ended up being a globe trotters basketball. We had a hoop & had a blast playing around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139426.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">32 Street Smart Tips That Could Help You Out</a><br>
+## <a href="#linky8" id="linky7">28 Posts From People Who Really Hate Cars </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121317/87140474/fuck-cars28.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121318/87140475/fuck-cars23.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121327/87140476/fuck-cars14.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121329/87140477/fuck-cars22.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121339/87140478/fuck-cars27.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121340/87140479/fuck-cars21.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121349/87140480/fuck-cars11.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121351/87140481/fuck-cars17.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121400/87140482/fuck-cars10.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121402/87140483/fuck-cars9.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121411/87140484/fuck-cars25.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121413/87140485/fuck-cars20.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121422/87140486/fuck-cars16.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121424/87140487/fuck-cars15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121433/87140488/fuck-cars26.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121435/87140489/fuck-cars13.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121445/87140490/fuck-cars8.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121446/87140491/fuck-cars6.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121457/87140492/fuck-cars19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121508/87140493/fuck-cars24.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121519/87140494/fuck-cars18.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121528/87140495/fuck-cars4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121529/87140496/fuck-cars3.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121530/87140497/fuck-cars12.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121541/87140498/fuck-cars5.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121552/87140499/fuck-cars7.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121603/87140500/fuck-cars1.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121612/87140501/fuck-cars2.png" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">32 Street Smart Tips That Could Help You Out</a><br>
 
 <span style="font-size:4em">1. Never count your cash in public even if in singles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139464.jpg" style="width:100%"><br>
 
@@ -505,7 +535,69 @@ Kim says I showed them the gun in my hand. Then she showed me the gun in her han
 
 I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139495.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">21 Creepy Kids of Horror Films Then and Now</a><br>
+## <a href="#linky10" id="linky9">30 People Who Found Real Life Easter Eggs</a><br>
+
+<span style="font-size:4em">1. A Friendly Message On The Bottom Side Of My Bag Of Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Found On A Hike Right Outside Of Stowe, Vt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My Dog Took The Squeaker Out Of Her Toy. It Says Game Over. Your Dog Won</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My First Ever Shoes (From The Early 1980s) With Some Useful Instructions On The Sole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Tried To Find An Easter Egg On A Bottle Of Juice, Not Disappointed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Upside Down On The Back Of An Innocent Almond Drink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Saw This On A Walk It’s Nearly Invisible From Any Other Angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The Back Of A Tag On A Frying Pan I Just Purchased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Don’t!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My Coconut Yoghurt Wants To Be A Book Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Virtual Reality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When Broken Isnt Really Broken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nachos For The Win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Excuse Me, I Can’t Find My Husband.” “Try Aisle 6”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Case Of Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Cute Dino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This H&s Signs I Found At Work</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Oops…. Dales Pale Ale Did It Again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Scooby Doo Irl Easter Egg In Ottawa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Before He Died, Adam West Lived In Ketchum, Idaho. This Is From The Ketchum Phone Book During That Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I Have Had This T-Shirt For Way Longer Than I Want To Admit. I Hear A Capture Sound From My GF`s Phone Taking A Picture Of My Neck And She Shows Me This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Rest In Peace?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. On The Bottom Of The Drink I Had Last Summer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. On The Box Of Subscription Cat Food I Got Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Ebisu, Tokyo Has Street Lamps In The Shape Of Beer Mugs, As There Used To Be A Beer Factory There</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Found This Behind A Samsung Washing Machine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Saw This In My Daughters Shorts While Changing Her Diaper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Adorable Tag On My New Jumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Entrance To The Mountain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. In The Corner Of My Schools It Room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138772.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">21 Creepy Kids of Horror Films Then and Now</a><br>
 
 <span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
 
@@ -549,7 +641,7 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">21 Dank Memes That Fell Off a Truck</a><br>
+## <a href="#linky12" id="linky11">21 Dank Memes That Fell Off a Truck</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
 
@@ -593,47 +685,7 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">19 Pics to Make You Say Hot Damn</a><br>
-
-<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">49 Funny Photos to Obliterate Boredom</a><br>
+## <a href="#linky13" id="linky12">49 Funny Photos to Obliterate Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139012.jpg" style="width:100%"><br>
 
@@ -730,4 +782,90 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139059.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139060.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">30 Strange Things People Were Caught Doing</a><br>
+
+<span style="font-size:4em">1. When I bought my first pair of night vision goggles, I had them delivered to the TV station I worked at (not trusting my neighbors to leave my [stuff] alone).
+
+So, I took a break and tried them out in the only truly dark room I could find. The mens room.
+
+A coworker came in, flicked on the lights, and was startled to find me in the middle of the room, blinded by the sudden flash of normal light, brushing my teeth in the pitch dark with night vision goggles.
+
+I had to go talk to HR about it. He was freaked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I picked up a pizza and was super excited to eat it. I put it in the passenger seat of my car and said something along the lines of, Im gonna take you home and [mess] you up! I then realized that my window was open, and so was the window of the car next to me. The driver had watched and heard me talk dirty to a pizza.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I was in standstill traffic (ie car had been turned off, people where loitering outside of their cars) and I had a baby squirrel that I was hand rearing in my car. I fed it some puppy milk formula from a bottle, looked up and realised I had an audience of about twenty people gawking at me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. One time, I was popping my friend’s back by picking him up from behind and bouncing him repeatedly. A teacher walked in the room and we both froze.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When I was 14, I wanted to try to drink like a dog. I put a bowl on the floor and filled it with Fanta. My dad walked into my room where I was kneeling on the floor with my tongue in the bowl. He has never mentioned it since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My friend and I went to the movies and thought the place was empty, so we started running around and flailing our arms. Turns out, there was a man sitting in the far back corner the whole time just watching us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was called in to assist my wife with putting together a friends baby shower when her helper bailed at the last minute. My job was to prep the dirty diaper game which, if youve not heard of it, is played like this: an assortment of name brand candy bars and chocolates are unwrapped and then mushed into a diaper so as to resemble a babys dirty diaper. The game participants then assess the contents of each dirty diaper and have a guess at what candy bar might be lurking within. Whoever has the most correct answers wins.
+
+Because I was called in at the last minute, I had to complete the task while at work...
+
+So there I was, in my office, fifteen or so diapers laying open on my desk, sleeves rolled up, hurriedly rolling what appeared to be a gooey, nutty turd in my hands...when my boss walks in.
+
+We make eye contact.
+
+He glances at my work, looks at me as though I am dangerously unstable, then slowly steps back out of the office without saying a word.
+
+Weve never spoken of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Me, newlywed to my then-husband. Had to leave our apartment and move in with his somewhat disabled mother. Two weeks in, he and I are having sexy times in our bedroom. Specifically, hes going downtown and eating at the Y. MIL knocks and immediately opens the door, saying dinners on the table!. Awkward pause. Everyone freezes. His face is buried in my crotch. She stands shock still, then huffs, and says Well, I see youve already eaten, slams the door and goes away.
+
+We giggle, recoup, and go to eat. Most awkward meal of my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I once ran up the stairs on all fours. I hadnt realized that my best friend had already come over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. As a toddler, my dog bit my diaper so, in retaliation, I bit my dog in the butt, and my mother caught me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I once had a coworker who worked at a customer site and had a crush on one of the women who worked there, too. One day, the woman came back from lunch and saw him pick up the cushion from her chair and sniff it. He was asked to leave.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My father once saw me put my foot up on a chair and smack my own [butt]. My leg had fallen asleep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My ex-girlfriend once caught me playing her cat like a banjo. I had the cats front paws in my hand, and I strummed his tummy. The cat was purring so loud that it made her come in to see what was going on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A UPS delivery guy once caught my grandma biting her toenails. She was in the sunroom with the screen door open, and the guy walked up to the door and witnessed that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I was like 13 or 14 in my room alone, my window wide opened, when I started to wonder if I ever got kissed what the other person would be seeing from their perspective, so I went up to my closet, which had those floor length mirrors and I started kissing the mirror, opening my eyes every once in a while to see if I looked at all attractive doing this, one of those times I opened my eyes I saw my brother outside my wide open window through the mirror looking at me with such a confused look on his face, I screamed and fell to the floor and hid in my room for a while.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. One of my old roommates walked in on me singing naked into a hairbrush once.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I can’t remember why, but I was in the shower and started loudly reciting the trailer for Gremlins 2. I stepped out of the bathroom and my mom was there pissing herself with laughter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I was once a server, and we have ranch dressing in bags, which were so satisfying to squish. I started doing it the way cats do it with their paws against something. I looked to my left and saw my manager staring at me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I was 14 getting it on with my hand and surround sound headphones...my dad walks in on me half asleep and mumbles, “what are you doin boy?” And shuts the door, but then COMES BACK IN TO VERIFY WHAT HE’S WITNESSED and has the audacity to say “you playin’ with yer meat?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In third grade, I went to the bathroom and, thinking I was alone, put my hands against the wall, leaned forward, and let out a long gigantic fart. I turned around and saw that some other kids had come in as I had released that massive fart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Arguing with myself (well, not myself - the actual person just wasnt there, so I was standing in) in the mirror. With animated facial expressions and gestures. Lips moving, but with no sound. I now reserve these hypothetical arguments for the shower. When I am home alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. It was 3am and 15 year old me was taking a [poop] and got a blood nose. Now for context, I get real bad nose bleeds and usually just keep my head up and it goes away. Well I was bored. So I thought, “what if I just keep my head down and let it drip?” I know... very stupid. Blood was all over the floor. I had every intent to just clean it up with tissues and flush it, no evidence of my little experiment. What I didnt know was that my mum was actually awake and was waiting for me to finish in the toilet for her turn. I didnt lock the door because it was 3am and I didnt think I needed to. Well... she opens the door... “SemenDemon16 why are you taking so l-“ She sees the blood, starts freaking tf out. Thinks I’m either dead or dying. I start yelling trying to explain myself. Mum starts crying thinking shes gonna lose her son. My sister walks out her room from the crying and the yelling. Sees the blood. Freaks tf out as well. After a bit of panic I eventually explained my stupid experiment. I cleaned it up and we all went to bed. But I dont think anybody slept after that traumatic experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. One time my girlfriend and I had just left the house. She then remembered she needed something and went back in. Now, our house (Golders Green, London), was semi-detached with the neighbours house.
+
+The neighbours motorbike was kind of in our shared front yard. Since I was waiting for my girlfriend, I decided to sit on the motorbike.
+
+I heard the front door of the house close behind me, so, trying to be funny for my girlfriend, I leaned over the tank of the motorbike and started pretending to rev the throttle and making Vrrooom, Vroom motorbike noises. Like, really getting into it. I didnt hear any laughing, so I turned around and it was actually my neighbour standing there with this wtf look on his face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Walking across the road to the dumpster with a bag of trash. One arm pulled into my hoodie. Flapping it like a wing, and slowly moving forward while going in circles. Saying to myself Flying in circles, flying in circles. Realizing that I was not circling in the right direction for the wing I had and reversing to circle oppositewise. Saying Flying in circles the wrong way.
+
+Come back inside and find that my whole family had been watching me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I once jokingly made an Instagram story of me pretending to shoot oranges out of my bum. My girl walked in on me in the bedroom with my drawers on throwing oranges so it looked like a POV of them popping out my butt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I was playing VR Chat with a skeleton skin on and I kept doing stupid dances that may or may not have involved a jerkoff motion. I heard my wifes voice from outside the headset go what the [hell]?!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Oh man. So I must have been about 12. I was in the car with my mom - to set the scene it was a three row soccer mom van and I was in the second row behind the passenger seat with my mom driving. Well since I was 12 I got my random hormone boner, strange and awkward enough right? Well I decide that I would pretend I was driving and that my boner was the stick shift... mom caught me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I was a kid and creeped out by cousins creepy doll, one morning me and the doll were alone in her room and I grabbed the doll and started to shake it and while I was yelling at it that I knew it could talk, my cousin walked in and was like what are you doing?? And I brought the doll close to me and caressed it and said I was just kidding. She kept the doll away from me after that</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Was at the driveway at Wendys and had exact change as I was switching the money one hand to another the quarter slipped in between my legs and I went to grab it but it slipped down further and the guy comes to the window as I have one hand full with cash and the other hand in between my legs trying to grab the quarter. He looked and me and said Im not even going to ask and I just said the quarter fell between my legs I have exact change I got it and handed it to him pulled up to the next window to get my food and it set it what he thought he saw me doing. So embarrassing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. When I was around 10 years old I was getting curious about sex so I decided to look it up in the dictionary. Wouldn’t you know it my ultra conservative mother walks in the room so I try to play it off like I was looking up the Heida Native American tribe. She called me out for being in the S’s but I doubled down and pretended i was possibly dyslexic. What a tangled web I wove.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141194.jpg" style="width:100%"><br>
 
