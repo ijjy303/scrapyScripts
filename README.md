@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/08/2022-00:11:31
+Last updated: 04/08/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">88 Darn Great Memes and Pics to Enjoy</a><br>
 
@@ -179,7 +179,69 @@ Last updated: 04/08/2022-00:11:31
 
 <span style="font-size:4em">88. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/020244/87140694/87127303.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Nightclub Photos That Are Far Too Chaotic for Us</a><br>
+## <a href="#linky3" id="linky2">30 People Who Found Real Life Easter Eggs</a><br>
+
+<span style="font-size:4em">1. A Friendly Message On The Bottom Side Of My Bag Of Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Found On A Hike Right Outside Of Stowe, Vt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My Dog Took The Squeaker Out Of Her Toy. It Says Game Over. Your Dog Won</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My First Ever Shoes (From The Early 1980s) With Some Useful Instructions On The Sole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Tried To Find An Easter Egg On A Bottle Of Juice, Not Disappointed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Upside Down On The Back Of An Innocent Almond Drink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Saw This On A Walk It’s Nearly Invisible From Any Other Angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The Back Of A Tag On A Frying Pan I Just Purchased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Don’t!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My Coconut Yoghurt Wants To Be A Book Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Virtual Reality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When Broken Isnt Really Broken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nachos For The Win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Excuse Me, I Can’t Find My Husband.” “Try Aisle 6”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Case Of Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Cute Dino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This H&s Signs I Found At Work</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Oops…. Dales Pale Ale Did It Again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Scooby Doo Irl Easter Egg In Ottawa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Before He Died, Adam West Lived In Ketchum, Idaho. This Is From The Ketchum Phone Book During That Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I Have Had This T-Shirt For Way Longer Than I Want To Admit. I Hear A Capture Sound From My GF`s Phone Taking A Picture Of My Neck And She Shows Me This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Rest In Peace?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. On The Bottom Of The Drink I Had Last Summer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. On The Box Of Subscription Cat Food I Got Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Ebisu, Tokyo Has Street Lamps In The Shape Of Beer Mugs, As There Used To Be A Beer Factory There</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Found This Behind A Samsung Washing Machine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Saw This In My Daughters Shorts While Changing Her Diaper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Adorable Tag On My New Jumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Entrance To The Mountain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. In The Corner Of My Schools It Room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138772.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">20 Nightclub Photos That Are Far Too Chaotic for Us</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138988.jpg" style="width:100%"><br>
 
@@ -221,123 +283,7 @@ Last updated: 04/08/2022-00:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139007.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Husband Totally Obliterates Wife’s Pet Goldfish</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138937.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">49 Funny Photos to Obliterate Boredom</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139060.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">32 Street Smart Tips That Could Help You Out</a><br>
+## <a href="#linky5" id="linky4">32 Street Smart Tips That Could Help You Out</a><br>
 
 <span style="font-size:4em">1. Never count your cash in public even if in singles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139464.jpg" style="width:100%"><br>
 
@@ -437,7 +383,7 @@ Kim says I showed them the gun in my hand. Then she showed me the gun in her han
 
 I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139495.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">26 Masterminds Who Exacted Petty Revenge</a><br>
+## <a href="#linky6" id="linky5">26 Masterminds Who Exacted Petty Revenge</a><br>
 
 <span style="font-size:4em">1. Driver gets mad about traffic and gives me the finger.I was driving home from work on the freeway one late afternoon. Like a typical day in Los Angeles, there was a lot of traffic. I’m driving along and there’s this minivan behind me that starts tailgating me. It’s not like I can go any faster so I ignore it. Then the car proceeds to start honking. Still nothing I can really do. The driver than cuts to the lane next to me, rolls down her window, starts yelling and gives me the middle finger. I usually ignore stuff like this, but I was pretty annoyed at this point so I rolled down my window. I point at her tire while she’s yelling at me and yell “You have a flat.” She’s still yelling at this point so I say it again. She’s shocked and proceeds to pull off to the side. I watch her in my rear view mirror from a distance as she gets out to inspect her perfectly fine tire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139415.jpg" style="width:100%"><br>
 
@@ -491,7 +437,7 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">19. Grumpy neighbors ruined my birthday, my dad never let them enjoy their backyard ever again.Just came across this sub & thought of this story instantly.We are going a ways back here, think I was 8yo so that puts this story in the late 90’s.I grew up on a busy street in a suburb, all the houses are basically right next to each other.On one side of the house we had the grumpiest most miserable old couple in their 70’s as neighbors.We have a big family & enjoyed cook outs during the summer months. They hated us having parties & we weren’t even doing anything out of the ordinary. Just the type of people that would bitch about basically anything for no good reason.Well it’s my 8th birthday party & we have our typical big family get together. Well my favorite gift that year ended up being a globe trotters basketball. We had a hoop & had a blast playing around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139426.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">47 Fun Photos For Your Enjoyment</a><br>
+## <a href="#linky7" id="linky6">47 Fun Photos For Your Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87139501.jpg" style="width:100%"><br>
 
@@ -587,69 +533,105 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87139547.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 People Who Found Real Life Easter Eggs</a><br>
+## <a href="#linky8" id="linky7">49 Funny Photos to Obliterate Boredom</a><br>
 
-<span style="font-size:4em">1. A Friendly Message On The Bottom Side Of My Bag Of Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138753.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Found On A Hike Right Outside Of Stowe, Vt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138760.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My Dog Took The Squeaker Out Of Her Toy. It Says Game Over. Your Dog Won</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138743.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My First Ever Shoes (From The Early 1980s) With Some Useful Instructions On The Sole</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138744.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Tried To Find An Easter Egg On A Bottle Of Juice, Not Disappointed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Upside Down On The Back Of An Innocent Almond Drink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Saw This On A Walk It’s Nearly Invisible From Any Other Angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The Back Of A Tag On A Frying Pan I Just Purchased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138751.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Don’t!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138752.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. My Coconut Yoghurt Wants To Be A Book Cover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138754.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139021.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Virtual Reality</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138746.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. When Broken Isnt Really Broken</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138755.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Nachos For The Win</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138757.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Excuse Me, I Can’t Find My Husband.” “Try Aisle 6”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138758.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In Case Of Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138756.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Cute Dino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138747.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. This H&s Signs I Found At Work</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138745.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Oops…. Dales Pale Ale Did It Again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138759.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Scooby Doo Irl Easter Egg In Ottawa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138761.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Before He Died, Adam West Lived In Ketchum, Idaho. This Is From The Ketchum Phone Book During That Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138762.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. I Have Had This T-Shirt For Way Longer Than I Want To Admit. I Hear A Capture Sound From My GF`s Phone Taking A Picture Of My Neck And She Shows Me This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138763.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Rest In Peace?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138764.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. On The Bottom Of The Drink I Had Last Summer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138765.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. On The Box Of Subscription Cat Food I Got Today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138766.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Ebisu, Tokyo Has Street Lamps In The Shape Of Beer Mugs, As There Used To Be A Beer Factory There</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138767.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Found This Behind A Samsung Washing Machine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138768.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Saw This In My Daughters Shorts While Changing Her Diaper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138769.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Adorable Tag On My New Jumper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138770.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Entrance To The Mountain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138771.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. In The Corner Of My Schools It Room</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138772.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139041.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">14 Pics That Will Restore Your Faith In Humanity</a><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139060.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">14 Pics That Will Restore Your Faith In Humanity</a><br>
 
 <span style="font-size:4em">1. My wife and I couldn’t get our newborn baby to stop crying at the restaurant, so we embarrassingly started to pack up to go home when the couple sitting next to us offered to hold him so we could enjoy a night out. Our baby slept on this kind strangers shoulder the entire evening!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139671.jpg" style="width:100%"><br>
 
@@ -679,7 +661,95 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">27 Sad Moments of Cringe</a><br>
+## <a href="#linky10" id="linky9">21 Dank Memes That Fell Off a Truck</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139267.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139269.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139274.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139275.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139279.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139280.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139284.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">21 Creepy Kids of Horror Films Then and Now</a><br>
+
+<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">27 Sad Moments of Cringe</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140175.jpg" style="width:100%"><br>
 
@@ -733,7 +803,7 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140178.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
+## <a href="#linky13" id="linky12">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
 
@@ -755,95 +825,7 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">21 Dank Memes That Fell Off a Truck</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139267.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139269.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139280.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139284.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">21 Creepy Kids of Horror Films Then and Now</a><br>
-
-<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">19 Pics to Make You Say Hot Damn</a><br>
+## <a href="#linky14" id="linky13">19 Pics to Make You Say Hot Damn</a><br>
 
 <span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
 
@@ -882,4 +864,22 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 <span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Husband Totally Obliterates Wife’s Pet Goldfish</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87138937.jpg" style="width:100%"><br>
 
