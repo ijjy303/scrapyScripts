@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/08/2022-13:11:31
+Last updated: 04/08/2022-14:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 Baseball Moments That Were Pure Debauchery</a><br>
 
@@ -43,105 +43,151 @@ Last updated: 04/08/2022-13:11:31
 
 <span style="font-size:4em">20. A streaker in full red-man garb.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102153/87141256/redman.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">49 Funny Photos to Obliterate Boredom</a><br>
+## <a href="#linky3" id="linky2">32 Street Smart Tips That Could Help You Out</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139012.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Never count your cash in public even if in singles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139013.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Always look like you know where youre going, even when you dont.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139014.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If someone starts to loudly state that they’ve lost their wallet or phone, don’t obviously or immediately go to check on yours in your bag or pocket. It’s a common pickpocket technique to get people to show the pickpockets where their stuff is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139015.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. There is no shame in running away from a fight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139016.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Ladies, never leave your drink unattended and dont accept drinks from strangers when you didnt see the drink being made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139017.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. If someone approaching you says “hey man, I ain’t gonna rob you” - they’re probably gonna try to rob you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139018.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If youre uncomfortable with your surroundings, leave.
+
+Your unconscious is often more aware of your surroundings than youd think. If something you cant figure out is telling you to go, listen to it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139019.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Trust your gut. If anyone seems a little too friendly, get away ASAP.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139020.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. If you are feeling unsafe, find the biggest friendliest person and act like you know them, chances are they will understand, help you out and youll end up making a friend.
+
+Had a group of young men once nod in a targeting manner towards me in a dangerous subway station in SF, the big dude I sat next to, and acted like I knew, was understanding when I explained why I was sitting next to him, we ended up chatting during the subway ride too. Very cool guy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139021.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. If you ever find yourself homeless in a big city but want to keep clean because of job/hygiene standards/whatever, look into gyms in the area. Many of them have very low-cost memberships or even free trials for a certain amount of time. Head on in, get your shower, brush your teeth, and get yourself all cleaned up.
+
+Hope it helps anyone who needs it as much as it helped me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139022.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Know where the exits are at all times.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139023.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Always check the toilet paper roll before taking a dump.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139024.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. If someone is asking you for help, but you need to follow them around the corner to help them... dont. Politely say youre late to a meeting and keep walking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139025.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Blend in. Everywhere. Even if you’re faking it. And, if you’re faking it, get out as soon as you inconspicuously can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139026.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Confirm the license plate and make sure you are getting in your proper Uber/Lyft.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139027.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. If youre in the hood and you see kids playing outside, youre probably safe. If there are a lot of people outside but no kids, be super cautious and walk with a purpose. If its empty or only teenagers/young adults, get out asap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139028.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Always put something between yourself and the ground, even if its just a piece of cardboard. Especially on asphalt, it absorbs heat and it will feel like its sucking the life out of you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139029.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. If you see something potentially illegal going on dont look directly at them. Especially if you know that youre not going to be reporting it to the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139030.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Always get the money upfront.
+
+People who want to pay later probably wont and then things can get messy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139031.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. You can get into a lot of places by holding a pizza.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139032.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Your elbow is the strongest joint on your body… take advantage of it when you can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139033.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Exercise your legs. Although in a bad situation theyll probably feel like wet noodles, if needed youll be able to run. It will also show in everyday life that you are capable of moving effortlessly. Most people are sluggish and its not hard to notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139034.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. If an attractive woman asks for directions, look for her partner behind you or going into your car to take what they can grab.
+
+Typical vacation area scam.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139035.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Wear shorts under ur pants keep your valuables in ur shorts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139036.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Walk on the road if you’re in a real shady neighborhood and it’s late at night. Not in traffic but away from alleyway entrances.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139037.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Look with your eyes, not your head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139038.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Listen always and speak only when you need to. People dont know when to shut up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139039.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Never show your watch, wallet, or phone in areas known for pickpockets.
+
+Also dont touch your pockets if you see warning signs, because a good thief will be watching to see which pocket your valuables are in.
+
+And when approached by someone on the street be mindful of who else is watching and what is behind you. Try and keep everything in front of you and dont be afraid to shout and swear at them to get attention.
+
+If someone puts a gun or knife in your face dont be a hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139040.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Another tip: get to know your local homeless people. If you live in a city and regularly walk past the same homeless people, stop and say hi once in a while. Just have a brief chat and give them some change. Even a smile helps. Believe me, these guys know EVERYTHING about what happens on that block. If youre ever in trouble, theyll help you out if youve been friendly, or they may just pretend they didnt see a thing. They can also help watch your car - for instance if someone dings it and drives off, they might even get the plate for you. View the street as their home; when walking on the street, youre walking through their living room. They can be excellent hosts.
+
+This doesnt apply if youre traveling in a new city. Not worth befriending a homeless guy if youre only there for like 2 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139041.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. This one isn’t so much protection, but when you’re walking and you know how people do that little shuffle thing when they walk towards each other because you don’t know which way the people are going. Well if you maintain a line of sight in a direction, not looking into the eyes of people coming towards you, people will just move out of your way. No awkward little dance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139042.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Only break one law at a time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139043.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. If someone asks you for help. Like my car wont start or, really anything. Dont help them but offer to call someone for them.
+
+I learned this ~10 years ago. I had to do a thing in the bad side of town once a week early in the morning. I would get there ~5:00 a.m., they opened at 6:00 but I wanted to get in and out and leave.
+
+There were a few other regulars at that time for the same reason. One I befriended was a lady named Kim.
+
+We were both there one morning. A couple of guys pulled up in their car ~100 from us. They got out, lifted the hood made some noise, called us over to help them. They were having car troubles.
+
+Kim told me to stay where I was, I shrugged and said OK. She walks over, they talk a few minutes, they drive off and she comes back.
+
+Kim says They didnt have car trouble, they were going to rob us.
+
+I say Seriously? No s**t. Why did they drive off then?
+
+Kim says I showed them the gun in my hand. Then she showed me the gun in her hand.
+
+I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139044.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">21 Creepy Kids of Horror Films Then and Now</a><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139045.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139046.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139047.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139048.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139049.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139050.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139051.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139052.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139053.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139054.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139055.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139056.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139057.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139059.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87139060.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">26 Masterminds Who Exacted Petty Revenge</a><br>
+<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">26 Masterminds Who Exacted Petty Revenge</a><br>
 
 <span style="font-size:4em">1. Driver gets mad about traffic and gives me the finger.I was driving home from work on the freeway one late afternoon. Like a typical day in Los Angeles, there was a lot of traffic. I’m driving along and there’s this minivan behind me that starts tailgating me. It’s not like I can go any faster so I ignore it. Then the car proceeds to start honking. Still nothing I can really do. The driver than cuts to the lane next to me, rolls down her window, starts yelling and gives me the middle finger. I usually ignore stuff like this, but I was pretty annoyed at this point so I rolled down my window. I point at her tire while she’s yelling at me and yell “You have a flat.” She’s still yelling at this point so I say it again. She’s shocked and proceeds to pull off to the side. I watch her in my rear view mirror from a distance as she gets out to inspect her perfectly fine tire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139415.jpg" style="width:100%"><br>
 
@@ -194,50 +240,6 @@ Last updated: 04/08/2022-13:11:31
 <span style="font-size:4em">18. We were kids staying at the seaside on holiday with our family. My little sister would always make a pretty sandcastle, and the next day it would have been kicked down and shed cry. We wanted to find out who was doing it, so one day we stayed behind to spy. We watched as a bunch of jerk older boys came by and kicked her castle down, laughing smugly. So the next night, we covered a big beach rock in sand and decorated it. Like clockwork, the jerk kids came with their smug faces and this time kicked a solid rock with all of their might. The yowl and the look on their faces was the best revenge ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139425.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. Grumpy neighbors ruined my birthday, my dad never let them enjoy their backyard ever again.Just came across this sub & thought of this story instantly.We are going a ways back here, think I was 8yo so that puts this story in the late 90’s.I grew up on a busy street in a suburb, all the houses are basically right next to each other.On one side of the house we had the grumpiest most miserable old couple in their 70’s as neighbors.We have a big family & enjoyed cook outs during the summer months. They hated us having parties & we weren’t even doing anything out of the ordinary. Just the type of people that would bitch about basically anything for no good reason.Well it’s my 8th birthday party & we have our typical big family get together. Well my favorite gift that year ended up being a globe trotters basketball. We had a hoop & had a blast playing around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139426.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">21 Creepy Kids of Horror Films Then and Now</a><br>
-
-<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">19 Pics to Make You Say Hot Damn</a><br>
 
@@ -309,7 +311,29 @@ Last updated: 04/08/2022-13:11:31
 
 <span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">21 Dank Memes That Fell Off a Truck</a><br>
+## <a href="#linky8" id="linky7">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">21 Dank Memes That Fell Off a Truck</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
 
@@ -353,81 +377,7 @@ Last updated: 04/08/2022-13:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">25 Things That Make Living In America Great</a><br>
-
-<span style="font-size:4em">1. Honestly, if I had to pick the #1 thing, Id say the open space. The USA has so much open space that weve carved off enormous parts of the continent to permanently be just open space. -u/McFeely_Smackup </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. You can go to the humane society and pet cats for free!!-u/Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139825.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wheelchair accessibility. As someone who uses a wheelchair for all ambulation, I can say the US has a leg up on that compared to the other countries that I have been to.-u/hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. National and state parks National parks are beloved destinations for both citizens and visitors from around the world, even more people visit the state parks. With sweeping vistas, stunning forests and incredible wildlife, amazing hiking and camping adventure, parks are one of the brightest jewels of America.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I like the diversity of the landscape & natural world. I’ve been to mountains & deserts & mountains in deserts. Been to the ocean with a sandy beach, to lakes with sandy beaches, to lakes with rocky beaches. Been to the woods & to forests. I’ve seen so many different native plants, all kinds of animals, & bugs. It’s pretty damn cool.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Garbage disposals in sink-u/nasdaqian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Plenty of densely forested areas to hide in after the apocalypse if you know where to live. Also, corn. Love me some cornbread.-u/amillefolium11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. How inexpensive tech is-u/Arndt3002</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Free refills.-u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Amazing concerts and music festivals-u/wogwai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139833.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Our grocery stores stay open really late. On the east coast, its until 11 or 12 at night. On the west, its 24 hours in some places.This is, in all seriousness, the thing I love most about my country.-u/ThatDismalGiraffe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was very young when my parents and I immigrated here, and I have far more opportunities here than I would in India. So I’m very thankful for that.-u/sunsetskye_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The American spirit, not in the sense of patriotism, but in the sense that people who live here have a certain.....gumption.....to get things done no matter the cost.-u/The_Poster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. After watching whats happening to Ukraine, its nice to know well never be physically invaded. It would be nothing short of a suicide mission for anyone that tried.-u/berwak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The people here are actually very nice. There are a few turds that make us look bad, but most people are friendly and helpful.-u/Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. AC during the summer-u/I2eN0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I have never faced repercussions for criticizing our leaders or government. The diversity is pretty cool. I have lived my whole life in the northeast, and pretty much any given day I could meet someone from literally any country on the planet. That diversity brings a really tasty variety of cuisine. We have a lot of coastline for beachgoers, mountains for fun in the snow, prairies for prairies stuff.-u/TheShoot141</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. You can speak English with a heavy accent and still be seen as fully American.-u/liberalvenery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I can talk sh*t about the president and not get arrested and disappeared. So thats pretty nice.-u/Its_All_True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I can wear what I want. Sure, I have strict parents at the age of about to be 21. But coming from the middle east, most people dont realize the blessing we have here to be able to wear shorts or jeans or tank tops-u/DarkenedProdigy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Not American but I’ve lived in the US for 15 years. As an outsider:-closets. I love all the built-in closets. I was never a wardrobe fan.-separate laundry areas.-that most housing is detached. On the one hand, it does mean a huge reliance on cars. On the other hand, I never ever hear my neighbors.-accessibility of toilets is a heck of a lot better than any other country I have visited. During the day I can usually rely on finding a Target or Starbucks or something. Even if I have to buy something to use it they’re easier to find than in Europe.-the casual way everyone dresses. My fashion-conscious friend is appalled but especially as a parent I appreciate that I can dash out in my PJs if I really, really need to.-convenience. Every time I visit my family now I forget that not all shops are open until 9/10 pm. I also live in Washington state currently and have developed a deep love for all the coffee stands around here.-u/anyaplaysfates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ice in drinks. We really value ice.-u/CaptainoftheStella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I can smoke legal weed on my way to have legal gay sex and I don’t have to worry about being macheted to death or thrown off a building.-u/junk_science</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Our wide-eyed optimism, self-sufficiency, and inherent distrust of government.-u/Straight_Medium2988</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">88 Darn Great Memes and Pics to Enjoy</a><br>
+## <a href="#linky10" id="linky9">88 Darn Great Memes and Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. Jada Pinkett Hellraiser</span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/013105/87140562/87133839.png" style="width:100%"><br>
 
@@ -605,107 +555,43 @@ Last updated: 04/08/2022-13:11:31
 
 <span style="font-size:4em">88. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/020244/87140694/87127303.png" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">32 Street Smart Tips That Could Help You Out</a><br>
+## <a href="#linky11" id="linky10">17 Fascinating Pics to Scratch That Curious Itch</a><br>
 
-<span style="font-size:4em">1. Never count your cash in public even if in singles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139464.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Teenager with the largest hands in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Always look like you know where youre going, even when you dont.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139465.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Pamela Anderson at 21, doing a Labatt’s Beer Commercial, 1989</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. If someone starts to loudly state that they’ve lost their wallet or phone, don’t obviously or immediately go to check on yours in your bag or pocket. It’s a common pickpocket technique to get people to show the pickpockets where their stuff is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139466.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A Mid-80’s High School Computer Club Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. There is no shame in running away from a fight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139467.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The head of Chechnya republic Kadyrov desperately wants people to think he is fighting in Ukraine. First, he lied about being near Kyiv when he was seen in Chechnya. Now he says he is in Mariupol and posts this picture, not realizing, that there are no Rosneft gas stations in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Ladies, never leave your drink unattended and dont accept drinks from strangers when you didnt see the drink being made.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139468.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Cueva de las Manos [Cave of the Hands] (7300 BCE – 700 CE)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If someone approaching you says “hey man, I ain’t gonna rob you” - they’re probably gonna try to rob you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139469.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Anti-piracy measures on ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If youre uncomfortable with your surroundings, leave.
-
-Your unconscious is often more aware of your surroundings than youd think. If something you cant figure out is telling you to go, listen to it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139470.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Paramedics of the Great North Air Ambulance training on jet suits to reach emergencies this summer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Trust your gut. If anyone seems a little too friendly, get away ASAP.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139471.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. In some parts of Canada, milk is bought in bags. 3 bags are packaged in 1 bag totalling 4L(~1gallon). A plastic jug holds the bag while the corner is cut to pour out. An organizer stacks the bag with a slit for the milk date tag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. If you are feeling unsafe, find the biggest friendliest person and act like you know them, chances are they will understand, help you out and youll end up making a friend.
-
-Had a group of young men once nod in a targeting manner towards me in a dangerous subway station in SF, the big dude I sat next to, and acted like I knew, was understanding when I explained why I was sitting next to him, we ended up chatting during the subway ride too. Very cool guy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139472.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In 1955 author John Steinbeck wrote a letter to Marilyn Monroe asking for an autographed photo for his nephew, “He is already your slave. This would make him mine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. If you ever find yourself homeless in a big city but want to keep clean because of job/hygiene standards/whatever, look into gyms in the area. Many of them have very low-cost memberships or even free trials for a certain amount of time. Head on in, get your shower, brush your teeth, and get yourself all cleaned up.
-
-Hope it helps anyone who needs it as much as it helped me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139473.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Roman Hrybov (on the right), the border guard from the Snake Island, author of “Russian warship…” motto, is back at home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138323.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Know where the exits are at all times.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139474.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Richest People in the World in 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138324.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Always check the toilet paper roll before taking a dump.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139475.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. At This Triangular Table, You Can Eat in Austria, Hungary, and Slovakia at the Same Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138325.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. If someone is asking you for help, but you need to follow them around the corner to help them... dont. Politely say youre late to a meeting and keep walking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139476.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Pirate flags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138326.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Blend in. Everywhere. Even if you’re faking it. And, if you’re faking it, get out as soon as you inconspicuously can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139477.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Playground in Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Confirm the license plate and make sure you are getting in your proper Uber/Lyft.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139478.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. A Japanese Company Created a Castle Smaller Than Hair using Nano 3D Printer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138328.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. If youre in the hood and you see kids playing outside, youre probably safe. If there are a lot of people outside but no kids, be super cautious and walk with a purpose. If its empty or only teenagers/young adults, get out asap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139479.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The African Hammer-headed bat is the stuff of nightmares</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Always put something between yourself and the ground, even if its just a piece of cardboard. Especially on asphalt, it absorbs heat and it will feel like its sucking the life out of you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139480.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Cost of living in 1990 vs 2021. Adjusted for inflation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. If you see something potentially illegal going on dont look directly at them. Especially if you know that youre not going to be reporting it to the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Always get the money upfront.
-
-People who want to pay later probably wont and then things can get messy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. You can get into a lot of places by holding a pizza.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Your elbow is the strongest joint on your body… take advantage of it when you can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Exercise your legs. Although in a bad situation theyll probably feel like wet noodles, if needed youll be able to run. It will also show in everyday life that you are capable of moving effortlessly. Most people are sluggish and its not hard to notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If an attractive woman asks for directions, look for her partner behind you or going into your car to take what they can grab.
-
-Typical vacation area scam.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Wear shorts under ur pants keep your valuables in ur shorts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Walk on the road if you’re in a real shady neighborhood and it’s late at night. Not in traffic but away from alleyway entrances.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Look with your eyes, not your head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Listen always and speak only when you need to. People dont know when to shut up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Never show your watch, wallet, or phone in areas known for pickpockets.
-
-Also dont touch your pockets if you see warning signs, because a good thief will be watching to see which pocket your valuables are in.
-
-And when approached by someone on the street be mindful of who else is watching and what is behind you. Try and keep everything in front of you and dont be afraid to shout and swear at them to get attention.
-
-If someone puts a gun or knife in your face dont be a hero.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Another tip: get to know your local homeless people. If you live in a city and regularly walk past the same homeless people, stop and say hi once in a while. Just have a brief chat and give them some change. Even a smile helps. Believe me, these guys know EVERYTHING about what happens on that block. If youre ever in trouble, theyll help you out if youve been friendly, or they may just pretend they didnt see a thing. They can also help watch your car - for instance if someone dings it and drives off, they might even get the plate for you. View the street as their home; when walking on the street, youre walking through their living room. They can be excellent hosts.
-
-This doesnt apply if youre traveling in a new city. Not worth befriending a homeless guy if youre only there for like 2 days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This one isn’t so much protection, but when you’re walking and you know how people do that little shuffle thing when they walk towards each other because you don’t know which way the people are going. Well if you maintain a line of sight in a direction, not looking into the eyes of people coming towards you, people will just move out of your way. No awkward little dance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Only break one law at a time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. If someone asks you for help. Like my car wont start or, really anything. Dont help them but offer to call someone for them.
-
-I learned this ~10 years ago. I had to do a thing in the bad side of town once a week early in the morning. I would get there ~5:00 a.m., they opened at 6:00 but I wanted to get in and out and leave.
-
-There were a few other regulars at that time for the same reason. One I befriended was a lady named Kim.
-
-We were both there one morning. A couple of guys pulled up in their car ~100 from us. They got out, lifted the hood made some noise, called us over to help them. They were having car troubles.
-
-Kim told me to stay where I was, I shrugged and said OK. She walks over, they talk a few minutes, they drive off and she comes back.
-
-Kim says They didnt have car trouble, they were going to rob us.
-
-I say Seriously? No s**t. Why did they drive off then?
-
-Kim says I showed them the gun in my hand. Then she showed me the gun in her hand.
-
-I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139495.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">28 Posts From People Who Really Hate Cars </a><br>
+## <a href="#linky12" id="linky11">28 Posts From People Who Really Hate Cars </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121317/87140474/fuck-cars28.png" style="width:100%"><br>
 
@@ -763,39 +649,55 @@ I said Oh. OK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121612/87140501/fuck-cars2.png" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">17 Fascinating Pics to Scratch That Curious Itch</a><br>
+## <a href="#linky13" id="linky12">25 Things That Make Living In America Great</a><br>
 
-<span style="font-size:4em">1. Teenager with the largest hands in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138314.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Honestly, if I had to pick the #1 thing, Id say the open space. The USA has so much open space that weve carved off enormous parts of the continent to permanently be just open space. -u/McFeely_Smackup </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Pamela Anderson at 21, doing a Labatt’s Beer Commercial, 1989</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138315.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. You can go to the humane society and pet cats for free!!-u/Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139825.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. A Mid-80’s High School Computer Club Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138317.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wheelchair accessibility. As someone who uses a wheelchair for all ambulation, I can say the US has a leg up on that compared to the other countries that I have been to.-u/hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The head of Chechnya republic Kadyrov desperately wants people to think he is fighting in Ukraine. First, he lied about being near Kyiv when he was seen in Chechnya. Now he says he is in Mariupol and posts this picture, not realizing, that there are no Rosneft gas stations in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138318.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. National and state parks National parks are beloved destinations for both citizens and visitors from around the world, even more people visit the state parks. With sweeping vistas, stunning forests and incredible wildlife, amazing hiking and camping adventure, parks are one of the brightest jewels of America.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Cueva de las Manos [Cave of the Hands] (7300 BCE – 700 CE)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138319.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I like the diversity of the landscape & natural world. I’ve been to mountains & deserts & mountains in deserts. Been to the ocean with a sandy beach, to lakes with sandy beaches, to lakes with rocky beaches. Been to the woods & to forests. I’ve seen so many different native plants, all kinds of animals, & bugs. It’s pretty damn cool.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Anti-piracy measures on ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138320.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Garbage disposals in sink-u/nasdaqian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Paramedics of the Great North Air Ambulance training on jet suits to reach emergencies this summer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138321.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Plenty of densely forested areas to hide in after the apocalypse if you know where to live. Also, corn. Love me some cornbread.-u/amillefolium11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In some parts of Canada, milk is bought in bags. 3 bags are packaged in 1 bag totalling 4L(~1gallon). A plastic jug holds the bag while the corner is cut to pour out. An organizer stacks the bag with a slit for the milk date tag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138322.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. How inexpensive tech is-u/Arndt3002</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In 1955 author John Steinbeck wrote a letter to Marilyn Monroe asking for an autographed photo for his nephew, “He is already your slave. This would make him mine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138316.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Free refills.-u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Roman Hrybov (on the right), the border guard from the Snake Island, author of “Russian warship…” motto, is back at home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138323.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Amazing concerts and music festivals-u/wogwai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139833.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Richest People in the World in 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138324.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Our grocery stores stay open really late. On the east coast, its until 11 or 12 at night. On the west, its 24 hours in some places.This is, in all seriousness, the thing I love most about my country.-u/ThatDismalGiraffe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. At This Triangular Table, You Can Eat in Austria, Hungary, and Slovakia at the Same Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138325.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I was very young when my parents and I immigrated here, and I have far more opportunities here than I would in India. So I’m very thankful for that.-u/sunsetskye_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Pirate flags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138326.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The American spirit, not in the sense of patriotism, but in the sense that people who live here have a certain.....gumption.....to get things done no matter the cost.-u/The_Poster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Playground in Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138327.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. After watching whats happening to Ukraine, its nice to know well never be physically invaded. It would be nothing short of a suicide mission for anyone that tried.-u/berwak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A Japanese Company Created a Castle Smaller Than Hair using Nano 3D Printer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138328.png" style="width:100%"><br>
+<span style="font-size:4em">15. The people here are actually very nice. There are a few turds that make us look bad, but most people are friendly and helpful.-u/Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The African Hammer-headed bat is the stuff of nightmares</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138329.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. AC during the summer-u/I2eN0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Cost of living in 1990 vs 2021. Adjusted for inflation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138330.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I have never faced repercussions for criticizing our leaders or government. The diversity is pretty cool. I have lived my whole life in the northeast, and pretty much any given day I could meet someone from literally any country on the planet. That diversity brings a really tasty variety of cuisine. We have a lot of coastline for beachgoers, mountains for fun in the snow, prairies for prairies stuff.-u/TheShoot141</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. You can speak English with a heavy accent and still be seen as fully American.-u/liberalvenery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I can talk sh*t about the president and not get arrested and disappeared. So thats pretty nice.-u/Its_All_True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I can wear what I want. Sure, I have strict parents at the age of about to be 21. But coming from the middle east, most people dont realize the blessing we have here to be able to wear shorts or jeans or tank tops-u/DarkenedProdigy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Not American but I’ve lived in the US for 15 years. As an outsider:-closets. I love all the built-in closets. I was never a wardrobe fan.-separate laundry areas.-that most housing is detached. On the one hand, it does mean a huge reliance on cars. On the other hand, I never ever hear my neighbors.-accessibility of toilets is a heck of a lot better than any other country I have visited. During the day I can usually rely on finding a Target or Starbucks or something. Even if I have to buy something to use it they’re easier to find than in Europe.-the casual way everyone dresses. My fashion-conscious friend is appalled but especially as a parent I appreciate that I can dash out in my PJs if I really, really need to.-convenience. Every time I visit my family now I forget that not all shops are open until 9/10 pm. I also live in Washington state currently and have developed a deep love for all the coffee stands around here.-u/anyaplaysfates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ice in drinks. We really value ice.-u/CaptainoftheStella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I can smoke legal weed on my way to have legal gay sex and I don’t have to worry about being macheted to death or thrown off a building.-u/junk_science</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Our wide-eyed optimism, self-sufficiency, and inherent distrust of government.-u/Straight_Medium2988</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
 
