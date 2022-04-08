@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/08/2022-16:11:31
+Last updated: 04/08/2022-17:11:31
 <br>
 ## <a href="#linky2" id="linky1">26 Fresh Memes To Break Up Your Day</a><br>
 
@@ -55,49 +55,49 @@ Last updated: 04/08/2022-16:11:31
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87138623.jpeg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 Creepy Kids of Horror Films Then and Now</a><br>
+## <a href="#linky3" id="linky2">21 Dank Memes That Fell Off a Truck</a><br>
 
-<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139267.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139269.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139280.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139284.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">28 Posts From People Who Really Hate Cars </a><br>
 
@@ -209,7 +209,199 @@ Last updated: 04/08/2022-16:11:31
 
 <span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">26 Masterminds Who Exacted Petty Revenge</a><br>
+## <a href="#linky6" id="linky5">17 Fascinating Pics to Scratch That Curious Itch</a><br>
+
+<span style="font-size:4em">1. Teenager with the largest hands in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Pamela Anderson at 21, doing a Labatt’s Beer Commercial, 1989</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A Mid-80’s High School Computer Club Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The head of Chechnya republic Kadyrov desperately wants people to think he is fighting in Ukraine. First, he lied about being near Kyiv when he was seen in Chechnya. Now he says he is in Mariupol and posts this picture, not realizing, that there are no Rosneft gas stations in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Cueva de las Manos [Cave of the Hands] (7300 BCE – 700 CE)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Anti-piracy measures on ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Paramedics of the Great North Air Ambulance training on jet suits to reach emergencies this summer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In some parts of Canada, milk is bought in bags. 3 bags are packaged in 1 bag totalling 4L(~1gallon). A plastic jug holds the bag while the corner is cut to pour out. An organizer stacks the bag with a slit for the milk date tag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 1955 author John Steinbeck wrote a letter to Marilyn Monroe asking for an autographed photo for his nephew, “He is already your slave. This would make him mine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Roman Hrybov (on the right), the border guard from the Snake Island, author of “Russian warship…” motto, is back at home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Richest People in the World in 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. At This Triangular Table, You Can Eat in Austria, Hungary, and Slovakia at the Same Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Pirate flags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Playground in Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A Japanese Company Created a Castle Smaller Than Hair using Nano 3D Printer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138328.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. The African Hammer-headed bat is the stuff of nightmares</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Cost of living in 1990 vs 2021. Adjusted for inflation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138330.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">20 Baseball Moments That Were Pure Debauchery</a><br>
+
+<span style="font-size:4em">1. How could we forget the trash city of Chicago blaming poor Steve Bartman for getting in the way of a foul ball.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102005/87141240/bartman.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. These insane dad reflexes.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102016/87141242/dadbat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Disco demolition night (again in Chicago.) What started as a shock jock party, turned into a riot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102023/87141243/disco.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Everytime the brewers hit a home run, their creepy mustached mascot takes a trip down the slide in the outfield.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102001/87141239/bernie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The now infamous models who flashed Gerrit Cole during the World Series. They are banned indefinitely.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102045/87141247/gerrit.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Again in Chicago, White Sox fans attacked Royals first base coach Tom Gamboa in the middle of a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102034/87141245/gamboa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Philly Fanatic once had a stuffed version of Tommy Lasorda. Lasorda was not amused, so he took matters into his own hands.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102038/87141246/lasorda.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Marlins Man has been dubbed the Wheres Waldo of baseball. Hes usually behind home plate in an orange visor and jersey.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102048/87141248/marlinsman.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. People making fools of themselves in Atlanta trying to beat The Freeze in a race.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102026/87141244/freeze.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Rick Monday saves the American flag from being burned by protestors.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102056/87141249/monday.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Of all people to catch a foul ball, Chris Rock snagged one sitting next to fellow actor Bobby Cannavale. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102012/87141241/chrisrock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Actor Michael Sergio parachuting into Shea Stadium during the 86 World Series.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102059/87141250/parachute.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Here comes the pizza! A fan throws his pizza at other fans. And its hilarious.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102110/87141251/pizza.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Morganna The Kissing Bandit. She would run onto the field and kiss any ball player she could get her lips on.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102122/87141252/morganna.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. This dude who NEARLY escaped capture while streaking, dawned the message Super Heroes Never Die. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102204/87141258/super.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This dude shooting his shot. Turns out he kept the foul ball, and gave this girl a decoy. Legendary.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102142/87141254/playa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Randy Johnson obliterating a bird with a fastball.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102145/87141255/randy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. There is a pool in Arizonas stadium. So of course if youre a Dodgers fan, youre going to be pushed in.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102132/87141253/pool.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Randall Simon of the Pirates once hit one of the racing sausages in Milwaukee.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102157/87141257/sausage.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A streaker in full red-man garb.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102153/87141256/redman.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">19 Pics to Make You Say Hot Damn</a><br>
+
+<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">21 Creepy Kids of Horror Films Then and Now</a><br>
+
+<span style="font-size:4em">1. Haley Joel Osment in The Sixth Sense.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Louise and LIsa Burns as the Grady Twins in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Danielle Harris as Jamie Lloyd in the Halloween franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Dakota Fanning in Hide and Seek.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Daeg Faerch as Michael Myers in Rob Zombies Halloween.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Macaulay Culkin in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Milly Shapiro as Charlie in Hereditary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kirsten Dunst in Interview with the Vampire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. James Bentley in The Others.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. John Franklin in Children of the Corn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Elijah Wood in The Good Son.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Ty Simpkins in Insidious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Danny Lloyd as Danny Torrance in The Shining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Linda Blair in The Exorcist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Isabelle Fuhrman in Orphan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Abigail Breslin as Bo in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Daveigh Chase as Samara in The Ring.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rory Culkin in Signs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Yuya Ozeki as Toshio Saeki in The Grudge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Miko Hughes as Gage in Pet Sematary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87139872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Alakina Mann in The Others.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/06/082955/87139875/alka.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">14 Pics That Will Restore Your Faith In Humanity</a><br>
+
+<span style="font-size:4em">1. My wife and I couldn’t get our newborn baby to stop crying at the restaurant, so we embarrassingly started to pack up to go home when the couple sitting next to us offered to hold him so we could enjoy a night out. Our baby slept on this kind strangers shoulder the entire evening!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Our neighbour doesn’t have Wi-Fi, so we talked her through joining ours. Once on she received 70 messages from her children living overseas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. One of my neighbors cleared the snow and packed ice off my driveway when I was recovering from back surgery. I didn’t know who did it so I posted the orange sign “Thank you, Snow Angel!” The next morning I saw the response. I still don’t know who did it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Today is the day this little lady becomes my daughter. Happy adoption day!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My daughter found an injured moth and brought it in to let it warm up. She made it a house out of a shoe box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A young man sheltering an old lady from hail while crossing the road [Tbilisi, Georgia].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The good hearted people in my neighborhood set up and regularly donate to a free community book exchange.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. When I moved in with my dad, I had no friends except for a couple people. This is what they gave me when I told them it was my birthday, and it was the best gift I could ever ask for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Our donut blew, had a tire in the backseat but no jack. This awesome guy had a jack and was kind enough to put it on. Thank you so so much!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My dog got out and a delivery driver picked him up after seeing him on some major roads. He got to ride around in the truck before the driver dropped him to my house and tied him up. Best day ever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Someone in my community put out sleds for anyone to enjoy on the snow hill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Every Thursday morning my little nephew waits for the garbage man to arrive so he can help. Today they brought him a WM hat to wear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Been going through a bit of a depresh recently and my flatmate left me this today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">26 Masterminds Who Exacted Petty Revenge</a><br>
 
 <span style="font-size:4em">1. Driver gets mad about traffic and gives me the finger.I was driving home from work on the freeway one late afternoon. Like a typical day in Los Angeles, there was a lot of traffic. I’m driving along and there’s this minivan behind me that starts tailgating me. It’s not like I can go any faster so I ignore it. Then the car proceeds to start honking. Still nothing I can really do. The driver than cuts to the lane next to me, rolls down her window, starts yelling and gives me the middle finger. I usually ignore stuff like this, but I was pretty annoyed at this point so I rolled down my window. I point at her tire while she’s yelling at me and yell “You have a flat.” She’s still yelling at this point so I say it again. She’s shocked and proceeds to pull off to the side. I watch her in my rear view mirror from a distance as she gets out to inspect her perfectly fine tire.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139415.jpg" style="width:100%"><br>
 
@@ -263,85 +455,7 @@ Last updated: 04/08/2022-16:11:31
 
 <span style="font-size:4em">19. Grumpy neighbors ruined my birthday, my dad never let them enjoy their backyard ever again.Just came across this sub & thought of this story instantly.We are going a ways back here, think I was 8yo so that puts this story in the late 90’s.I grew up on a busy street in a suburb, all the houses are basically right next to each other.On one side of the house we had the grumpiest most miserable old couple in their 70’s as neighbors.We have a big family & enjoyed cook outs during the summer months. They hated us having parties & we weren’t even doing anything out of the ordinary. Just the type of people that would bitch about basically anything for no good reason.Well it’s my 8th birthday party & we have our typical big family get together. Well my favorite gift that year ended up being a globe trotters basketball. We had a hoop & had a blast playing around. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139426.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">20 Baseball Moments That Were Pure Debauchery</a><br>
-
-<span style="font-size:4em">1. How could we forget the trash city of Chicago blaming poor Steve Bartman for getting in the way of a foul ball.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102005/87141240/bartman.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. These insane dad reflexes.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102016/87141242/dadbat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Disco demolition night (again in Chicago.) What started as a shock jock party, turned into a riot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102023/87141243/disco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Everytime the brewers hit a home run, their creepy mustached mascot takes a trip down the slide in the outfield.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102001/87141239/bernie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The now infamous models who flashed Gerrit Cole during the World Series. They are banned indefinitely.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102045/87141247/gerrit.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Again in Chicago, White Sox fans attacked Royals first base coach Tom Gamboa in the middle of a game.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102034/87141245/gamboa.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The Philly Fanatic once had a stuffed version of Tommy Lasorda. Lasorda was not amused, so he took matters into his own hands.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102038/87141246/lasorda.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Marlins Man has been dubbed the Wheres Waldo of baseball. Hes usually behind home plate in an orange visor and jersey.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102048/87141248/marlinsman.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. People making fools of themselves in Atlanta trying to beat The Freeze in a race.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102026/87141244/freeze.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Rick Monday saves the American flag from being burned by protestors.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102056/87141249/monday.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Of all people to catch a foul ball, Chris Rock snagged one sitting next to fellow actor Bobby Cannavale. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102012/87141241/chrisrock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Actor Michael Sergio parachuting into Shea Stadium during the 86 World Series.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102059/87141250/parachute.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Here comes the pizza! A fan throws his pizza at other fans. And its hilarious.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102110/87141251/pizza.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Morganna The Kissing Bandit. She would run onto the field and kiss any ball player she could get her lips on.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102122/87141252/morganna.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This dude who NEARLY escaped capture while streaking, dawned the message Super Heroes Never Die. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102204/87141258/super.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. This dude shooting his shot. Turns out he kept the foul ball, and gave this girl a decoy. Legendary.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102142/87141254/playa.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Randy Johnson obliterating a bird with a fastball.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102145/87141255/randy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. There is a pool in Arizonas stadium. So of course if youre a Dodgers fan, youre going to be pushed in.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102132/87141253/pool.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Randall Simon of the Pirates once hit one of the racing sausages in Milwaukee.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102157/87141257/sausage.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A streaker in full red-man garb.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/102153/87141256/redman.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">17 Fascinating Pics to Scratch That Curious Itch</a><br>
-
-<span style="font-size:4em">1. Teenager with the largest hands in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Pamela Anderson at 21, doing a Labatt’s Beer Commercial, 1989</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. A Mid-80’s High School Computer Club Photo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The head of Chechnya republic Kadyrov desperately wants people to think he is fighting in Ukraine. First, he lied about being near Kyiv when he was seen in Chechnya. Now he says he is in Mariupol and posts this picture, not realizing, that there are no Rosneft gas stations in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Cueva de las Manos [Cave of the Hands] (7300 BCE – 700 CE)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Anti-piracy measures on ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Paramedics of the Great North Air Ambulance training on jet suits to reach emergencies this summer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In some parts of Canada, milk is bought in bags. 3 bags are packaged in 1 bag totalling 4L(~1gallon). A plastic jug holds the bag while the corner is cut to pour out. An organizer stacks the bag with a slit for the milk date tag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 1955 author John Steinbeck wrote a letter to Marilyn Monroe asking for an autographed photo for his nephew, “He is already your slave. This would make him mine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Roman Hrybov (on the right), the border guard from the Snake Island, author of “Russian warship…” motto, is back at home</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Richest People in the World in 2022</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. At This Triangular Table, You Can Eat in Austria, Hungary, and Slovakia at the Same Time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Pirate flags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Playground in Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A Japanese Company Created a Castle Smaller Than Hair using Nano 3D Printer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138328.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. The African Hammer-headed bat is the stuff of nightmares</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Cost of living in 1990 vs 2021. Adjusted for inflation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138330.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">88 Darn Great Memes and Pics to Enjoy</a><br>
+## <a href="#linky12" id="linky11">88 Darn Great Memes and Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. Jada Pinkett Hellraiser</span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/013105/87140562/87133839.png" style="width:100%"><br>
 
@@ -519,81 +633,7 @@ Last updated: 04/08/2022-16:11:31
 
 <span style="font-size:4em">88. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/020244/87140694/87127303.png" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">21 Dank Memes That Fell Off a Truck</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139267.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139269.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139280.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139284.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87139285.png" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">14 Pics That Will Restore Your Faith In Humanity</a><br>
-
-<span style="font-size:4em">1. My wife and I couldn’t get our newborn baby to stop crying at the restaurant, so we embarrassingly started to pack up to go home when the couple sitting next to us offered to hold him so we could enjoy a night out. Our baby slept on this kind strangers shoulder the entire evening!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Our neighbour doesn’t have Wi-Fi, so we talked her through joining ours. Once on she received 70 messages from her children living overseas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. One of my neighbors cleared the snow and packed ice off my driveway when I was recovering from back surgery. I didn’t know who did it so I posted the orange sign “Thank you, Snow Angel!” The next morning I saw the response. I still don’t know who did it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Today is the day this little lady becomes my daughter. Happy adoption day!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My daughter found an injured moth and brought it in to let it warm up. She made it a house out of a shoe box.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A young man sheltering an old lady from hail while crossing the road [Tbilisi, Georgia].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The good hearted people in my neighborhood set up and regularly donate to a free community book exchange.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When I moved in with my dad, I had no friends except for a couple people. This is what they gave me when I told them it was my birthday, and it was the best gift I could ever ask for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Our donut blew, had a tire in the backseat but no jack. This awesome guy had a jack and was kind enough to put it on. Thank you so so much!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My dog got out and a delivery driver picked him up after seeing him on some major roads. He got to ride around in the truck before the driver dropped him to my house and tied him up. Best day ever!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Someone in my community put out sleds for anyone to enjoy on the snow hill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Every Thursday morning my little nephew waits for the garbage man to arrive so he can help. Today they brought him a WM hat to wear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Been going through a bit of a depresh recently and my flatmate left me this today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
+## <a href="#linky13" id="linky12">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
 
@@ -614,44 +654,4 @@ Last updated: 04/08/2022-16:11:31
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">19 Pics to Make You Say Hot Damn</a><br>
-
-<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
 
