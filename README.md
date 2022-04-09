@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/09/2022-03:11:31
+Last updated: 04/09/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">58 People Who Asked To Be Roasted And Got Scorched</a><br>
 
@@ -337,179 +337,7 @@ Last updated: 04/09/2022-03:11:31
 
 <span style="font-size:4em">20. “I love my husband. I love cheese. Brian, what the fuck?!.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137557.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">19 Pics to Make You Say Hot Damn</a><br>
-
-<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">25 Things That Make Living In America Great</a><br>
-
-<span style="font-size:4em">1. Honestly, if I had to pick the #1 thing, Id say the open space. The USA has so much open space that weve carved off enormous parts of the continent to permanently be just open space. -u/McFeely_Smackup </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. You can go to the humane society and pet cats for free!!-u/Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139825.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wheelchair accessibility. As someone who uses a wheelchair for all ambulation, I can say the US has a leg up on that compared to the other countries that I have been to.-u/hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. National and state parks National parks are beloved destinations for both citizens and visitors from around the world, even more people visit the state parks. With sweeping vistas, stunning forests and incredible wildlife, amazing hiking and camping adventure, parks are one of the brightest jewels of America.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I like the diversity of the landscape & natural world. I’ve been to mountains & deserts & mountains in deserts. Been to the ocean with a sandy beach, to lakes with sandy beaches, to lakes with rocky beaches. Been to the woods & to forests. I’ve seen so many different native plants, all kinds of animals, & bugs. It’s pretty damn cool.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Garbage disposals in sink-u/nasdaqian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Plenty of densely forested areas to hide in after the apocalypse if you know where to live. Also, corn. Love me some cornbread.-u/amillefolium11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. How inexpensive tech is-u/Arndt3002</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Free refills.-u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Amazing concerts and music festivals-u/wogwai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139833.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Our grocery stores stay open really late. On the east coast, its until 11 or 12 at night. On the west, its 24 hours in some places.This is, in all seriousness, the thing I love most about my country.-u/ThatDismalGiraffe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was very young when my parents and I immigrated here, and I have far more opportunities here than I would in India. So I’m very thankful for that.-u/sunsetskye_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The American spirit, not in the sense of patriotism, but in the sense that people who live here have a certain.....gumption.....to get things done no matter the cost.-u/The_Poster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. After watching whats happening to Ukraine, its nice to know well never be physically invaded. It would be nothing short of a suicide mission for anyone that tried.-u/berwak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The people here are actually very nice. There are a few turds that make us look bad, but most people are friendly and helpful.-u/Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. AC during the summer-u/I2eN0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I have never faced repercussions for criticizing our leaders or government. The diversity is pretty cool. I have lived my whole life in the northeast, and pretty much any given day I could meet someone from literally any country on the planet. That diversity brings a really tasty variety of cuisine. We have a lot of coastline for beachgoers, mountains for fun in the snow, prairies for prairies stuff.-u/TheShoot141</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. You can speak English with a heavy accent and still be seen as fully American.-u/liberalvenery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I can talk sh*t about the president and not get arrested and disappeared. So thats pretty nice.-u/Its_All_True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I can wear what I want. Sure, I have strict parents at the age of about to be 21. But coming from the middle east, most people dont realize the blessing we have here to be able to wear shorts or jeans or tank tops-u/DarkenedProdigy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Not American but I’ve lived in the US for 15 years. As an outsider:-closets. I love all the built-in closets. I was never a wardrobe fan.-separate laundry areas.-that most housing is detached. On the one hand, it does mean a huge reliance on cars. On the other hand, I never ever hear my neighbors.-accessibility of toilets is a heck of a lot better than any other country I have visited. During the day I can usually rely on finding a Target or Starbucks or something. Even if I have to buy something to use it they’re easier to find than in Europe.-the casual way everyone dresses. My fashion-conscious friend is appalled but especially as a parent I appreciate that I can dash out in my PJs if I really, really need to.-convenience. Every time I visit my family now I forget that not all shops are open until 9/10 pm. I also live in Washington state currently and have developed a deep love for all the coffee stands around here.-u/anyaplaysfates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Ice in drinks. We really value ice.-u/CaptainoftheStella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I can smoke legal weed on my way to have legal gay sex and I don’t have to worry about being macheted to death or thrown off a building.-u/junk_science</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Our wide-eyed optimism, self-sufficiency, and inherent distrust of government.-u/Straight_Medium2988</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">28 Posts From People Who Really Hate Cars </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121317/87140474/fuck-cars28.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121318/87140475/fuck-cars23.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121327/87140476/fuck-cars14.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121329/87140477/fuck-cars22.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121339/87140478/fuck-cars27.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121340/87140479/fuck-cars21.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121349/87140480/fuck-cars11.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121351/87140481/fuck-cars17.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121400/87140482/fuck-cars10.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121402/87140483/fuck-cars9.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121411/87140484/fuck-cars25.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121413/87140485/fuck-cars20.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121422/87140486/fuck-cars16.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121424/87140487/fuck-cars15.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121433/87140488/fuck-cars26.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121435/87140489/fuck-cars13.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121445/87140490/fuck-cars8.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121446/87140491/fuck-cars6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121457/87140492/fuck-cars19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121508/87140493/fuck-cars24.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121519/87140494/fuck-cars18.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121528/87140495/fuck-cars4.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121529/87140496/fuck-cars3.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121530/87140497/fuck-cars12.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121541/87140498/fuck-cars5.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121552/87140499/fuck-cars7.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121603/87140500/fuck-cars1.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121612/87140501/fuck-cars2.png" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">88 Darn Great Memes and Pics to Enjoy</a><br>
+## <a href="#linky8" id="linky7">88 Darn Great Memes and Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. Jada Pinkett Hellraiser</span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/013105/87140562/87133839.png" style="width:100%"><br>
 
@@ -687,7 +515,7 @@ Last updated: 04/09/2022-03:11:31
 
 <span style="font-size:4em">88. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/020244/87140694/87127303.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">14 Pics That Will Restore Your Faith In Humanity</a><br>
+## <a href="#linky9" id="linky8">14 Pics That Will Restore Your Faith In Humanity</a><br>
 
 <span style="font-size:4em">1. My wife and I couldn’t get our newborn baby to stop crying at the restaurant, so we embarrassingly started to pack up to go home when the couple sitting next to us offered to hold him so we could enjoy a night out. Our baby slept on this kind strangers shoulder the entire evening!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139671.jpg" style="width:100%"><br>
 
@@ -716,4 +544,176 @@ Last updated: 04/09/2022-03:11:31
 <span style="font-size:4em">13. Been going through a bit of a depresh recently and my flatmate left me this today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139683.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">14. My 3yr old daughter saw a little girl without hair and asked why she was bald. I explained she was sick and the medicine made her hair fall out. “Oh. She can have some of my hair,” she said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139684.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">28 Posts From People Who Really Hate Cars </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121317/87140474/fuck-cars28.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121318/87140475/fuck-cars23.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121327/87140476/fuck-cars14.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121329/87140477/fuck-cars22.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121339/87140478/fuck-cars27.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121340/87140479/fuck-cars21.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121349/87140480/fuck-cars11.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121351/87140481/fuck-cars17.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121400/87140482/fuck-cars10.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121402/87140483/fuck-cars9.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121411/87140484/fuck-cars25.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121413/87140485/fuck-cars20.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121422/87140486/fuck-cars16.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121424/87140487/fuck-cars15.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121433/87140488/fuck-cars26.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121435/87140489/fuck-cars13.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121445/87140490/fuck-cars8.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121446/87140491/fuck-cars6.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121457/87140492/fuck-cars19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121508/87140493/fuck-cars24.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121519/87140494/fuck-cars18.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121528/87140495/fuck-cars4.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121529/87140496/fuck-cars3.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121530/87140497/fuck-cars12.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121541/87140498/fuck-cars5.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121552/87140499/fuck-cars7.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121603/87140500/fuck-cars1.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/121612/87140501/fuck-cars2.png" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">25 Things That Make Living In America Great</a><br>
+
+<span style="font-size:4em">1. Honestly, if I had to pick the #1 thing, Id say the open space. The USA has so much open space that weve carved off enormous parts of the continent to permanently be just open space. -u/McFeely_Smackup </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. You can go to the humane society and pet cats for free!!-u/Cats_are_happiness_2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139825.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Wheelchair accessibility. As someone who uses a wheelchair for all ambulation, I can say the US has a leg up on that compared to the other countries that I have been to.-u/hisamsmith</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. National and state parks National parks are beloved destinations for both citizens and visitors from around the world, even more people visit the state parks. With sweeping vistas, stunning forests and incredible wildlife, amazing hiking and camping adventure, parks are one of the brightest jewels of America.-u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I like the diversity of the landscape & natural world. I’ve been to mountains & deserts & mountains in deserts. Been to the ocean with a sandy beach, to lakes with sandy beaches, to lakes with rocky beaches. Been to the woods & to forests. I’ve seen so many different native plants, all kinds of animals, & bugs. It’s pretty damn cool.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Garbage disposals in sink-u/nasdaqian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Plenty of densely forested areas to hide in after the apocalypse if you know where to live. Also, corn. Love me some cornbread.-u/amillefolium11</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. How inexpensive tech is-u/Arndt3002</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Free refills.-u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Amazing concerts and music festivals-u/wogwai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139833.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Our grocery stores stay open really late. On the east coast, its until 11 or 12 at night. On the west, its 24 hours in some places.This is, in all seriousness, the thing I love most about my country.-u/ThatDismalGiraffe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I was very young when my parents and I immigrated here, and I have far more opportunities here than I would in India. So I’m very thankful for that.-u/sunsetskye_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The American spirit, not in the sense of patriotism, but in the sense that people who live here have a certain.....gumption.....to get things done no matter the cost.-u/The_Poster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. After watching whats happening to Ukraine, its nice to know well never be physically invaded. It would be nothing short of a suicide mission for anyone that tried.-u/berwak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The people here are actually very nice. There are a few turds that make us look bad, but most people are friendly and helpful.-u/Actuaryba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. AC during the summer-u/I2eN0</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I have never faced repercussions for criticizing our leaders or government. The diversity is pretty cool. I have lived my whole life in the northeast, and pretty much any given day I could meet someone from literally any country on the planet. That diversity brings a really tasty variety of cuisine. We have a lot of coastline for beachgoers, mountains for fun in the snow, prairies for prairies stuff.-u/TheShoot141</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. You can speak English with a heavy accent and still be seen as fully American.-u/liberalvenery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I can talk sh*t about the president and not get arrested and disappeared. So thats pretty nice.-u/Its_All_True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I can wear what I want. Sure, I have strict parents at the age of about to be 21. But coming from the middle east, most people dont realize the blessing we have here to be able to wear shorts or jeans or tank tops-u/DarkenedProdigy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Not American but I’ve lived in the US for 15 years. As an outsider:-closets. I love all the built-in closets. I was never a wardrobe fan.-separate laundry areas.-that most housing is detached. On the one hand, it does mean a huge reliance on cars. On the other hand, I never ever hear my neighbors.-accessibility of toilets is a heck of a lot better than any other country I have visited. During the day I can usually rely on finding a Target or Starbucks or something. Even if I have to buy something to use it they’re easier to find than in Europe.-the casual way everyone dresses. My fashion-conscious friend is appalled but especially as a parent I appreciate that I can dash out in my PJs if I really, really need to.-convenience. Every time I visit my family now I forget that not all shops are open until 9/10 pm. I also live in Washington state currently and have developed a deep love for all the coffee stands around here.-u/anyaplaysfates</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Ice in drinks. We really value ice.-u/CaptainoftheStella</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I can smoke legal weed on my way to have legal gay sex and I don’t have to worry about being macheted to death or thrown off a building.-u/junk_science</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Our wide-eyed optimism, self-sufficiency, and inherent distrust of government.-u/Straight_Medium2988</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Every time I step foot outside the US the smell of cigarettes is everywhere. They really did an amazing job with the anti-smoking campaign here.-u/Plussydestroyer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139848.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">Couple Faces Test after GF Realizes Her BF Is a Sloth</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87140430.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">19 Pics to Make You Say Hot Damn</a><br>
+
+<span style="font-size:4em">1. A fish jumps right in front of the camera and creates funny picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dude meets Keanu Reeves 3 years apart, but Keanu wears the same shirt…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. 3 Generation Of Twins</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The cat stepped perfectly in blue and pink paint of the sign I was making!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Almost died this morning on the highway. Bounced from the left lane up in the air and impaled my windshield.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This weather balloon was launched by the National Weather Service in Topeka, KS and traveled 80 miles before landing within sight of another National Weather Service office in Pleasant Hill, MO.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Its like Green Eggs and Ham but with lightning. I wonder what this guy did to deserve Mother Natures warth? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. It was stuck on so I had to ask an employee to remove it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cat sitting the exact place.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139144.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. When you notice it….</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I captured this shot of a sandhill crane at the exat moment it was perpendicular to me, so you can see straight through its nostrils.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Woman Loses Engagement Ring In Garden Finds It 13 Years Later On A Carrot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Was eating orange slices until I found half yellow and half orange ones. Very cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Sometimes life hands you an easy homerun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Bird nearly pooped on my niece.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My egg perfectly inverted itself</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Soldier survives after 15,000 ft fall as parachute fails to open correctly in US</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thought I was out of Tums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139152.jpg" style="width:100%"><br>
 
