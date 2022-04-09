@@ -5,6 +5,7 @@ from scrapy.crawler import CrawlerProcess
 class nommerSpider(scrapy.Spider):
 	"""Collect food recipes without the abhorrently excessive ads and life stories"""
 	name = 'nommer'
+	outputFolder = 'database'
 	start_urls = ['https://preppykitchen.com/category/recipes/']
 	handle_httpstatus_list = [404]
 	logging.getLogger('scrapy').propagate = False # No Excessive Log
@@ -69,7 +70,7 @@ class nommerSpider(scrapy.Spider):
 					'card' : recipeUrl}
 
 			filename = header.replace(" ", "-").lower() # Format header into lowercase, dash seperated for file naming
-			nestedFolder = f'.\\{category}\\{filename}\\' # Nest a folder named 'Recipe' within folder name of 'Category'
+			nestedFolder = f'.\\{self.outputFolder}\\{category}\\{filename}\\' # Nest a folder named 'Recipe' within folder name of 'Category'
 			
 			if not os.path.exists(nestedFolder): # If \Category\Recipe folder doesn't exist...
 				os.makedirs(nestedFolder) # make it
