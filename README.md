@@ -1,157 +1,79 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/11/2022-07:11:32
+Last updated: 04/11/2022-08:11:31
 <br>
-## <a href="#linky2" id="linky1">30 Secrets People Kept From Their Parents</a><br>
+## <a href="#linky2" id="linky1">25 People Who Technically Aren't Wrong</a><br>
 
-<span style="font-size:4em">1. My mom is not so good with finances and the internet. I have been paying a significant portion of her bills for the past decade and she has no idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140296.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. So would someone with 7 feet be better?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My teenage best friend Chester was forbidden to come to our house or call, because they heard he was a bad kid, welp, the friend they liked Raphael, was Chester all along... Used his middle name for around 6 years until mom found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140295.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Im on my oil only diet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I got married and didn’t tell them until my wife began to show her pregnancy. We had been married for over a year at that point. They did not approve of our relationship because of outdated reasons. We have been married for 37 years now and have 4 kids and 7 grandkids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140294.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. How can radar stop speech?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. While my parents were at work, my older brother started cooking french fries in a cast iron skillet and cranked the heat until the oil was boiling. He left the stove unattended for a few minutes and came back to a raging fire. He took the pan, spilled hot grease on the cheap kitchen tile, opened the sliding back door and tossed it into the yard before hosing it down. The microwave that sat above the stove was completely ruined and two or three floor tiles were badly burned. So my brother goes to Lowes and finds the exact microwave model, overcharging his card to pay for it. Comes home, tosses the old one, installs the new one. We replaced the tiles with a box cutter and super glue and exchanged the burned tiles in the middle of the kitchen with tiles from the back of the pantry. They never suspected a thing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140300.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When I was a junior in high school, my mom and I got into a low speed accident with minor damage to both vehicles. Later that month I was so exhausted from school that I decided to ditch. I drove on the backroads for 10 minutes send parked, and then slept.
-
-My mom found out and was furious at me. I lied and said that it was because I wasnt feeling good and I had headaches and some bs like that. She took me to the doctor and they found that my C3 vertebrae was fractured on top of having a tumor growing on it. I ended up having a gnarly 10 hour spinal surgery that honestly completely changed the course of my life.
-
-And we only found out about it because I couldnt think of any other b******t excuse to use</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140297.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. And if you burn them, you cant eat them eating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I got a tattoo on my shoulder blade. Kept it hidden for years after a shower etc. Found out years down the line my brother told them a week after I had the tattoo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140299.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Give him the points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I personally dont want to get married or have kids. I just dont want to deal with the stress around raising another life in this world and failing at being the best father that I can be. I would rather be happy alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140301.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Youre not getting away with anything there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My mom used to take the power cord to my Xbox when I was grounded. My buddy’s Xbox stopped working so he gave me his power cord and I would hop on when they weren’t home or late at night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140302.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Maybe get off actually</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I knew about her cancer for 6 months before she told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140303.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. What could go wrong?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The really great report card I brought home once was actually a fabrication I made on the home computer while they were sleeping. Mom was so proud, I never told her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140304.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. That would be awkward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. My mom raised me in a pretty aggressive christian household. When we finally got tv, I discovered HBO had like a 5 minute preview of movies/shows whatever. Then I saw the late night s**t. Well our tv was locked down with a passcode. I had to be like 11 or 12 but I put a vhs in then hit record. I then told my mom that I wanted to watch a animal documentary but it was locked tv14 for the animal violence. Well, she had me turn around while she scrolled the password in. After she left for work, I rewinded the vhs and got the password. Sorry Mom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140298.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. You know, save the world for a small portion of my wealth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I snuck out my window at night to raise hell in the neighborhood when I was a teenager. They brought it up in casual conversation about 20 years later..... yeah. Parents know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140305.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Im now just calling it the hole bowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. That they are terrible at hiding things or making passwords. Anytime I was in trouble and used a password to lock the tv or computer they always used a significant date so it was just process of elimination.
-
-I also found almost all of the Christmas presents every year because they would just put them in the garage under a giant blanket. Like all of a sudden in mid-December a mountain of stuff covered by a blanket would appear in the garage, dont have to be Sherlock Holmes to figure that one out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140306.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I used to drive the family car when they were away at work. Like everytime. Just drive around the neighbourhood. I was 15.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140307.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I still talk to the girl they forbade me from speaking to when I was 14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140308.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Theres a little entryway off on the side of my mothers house and into the basement. I realized how easy it was to sneak in and out of that thing when I was sixteen, and asked if I could move my room to the basement to feel like I had my own space.
-
-Actually, I snuck people in and out of it constantly. My girlfriend at the time stayed over two or three times a week, and I would sneak friends in constantly to drink and party with me. Either that or Id sneak out on weekends and go party and hang out with people. My mother is a very very conservative Christian, and if she ever found out, she would lose her mind and probably disown me. I think about this sometimes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140309.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Ill take that with me next time just in case...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I never graduated college. Im the youngest so they were pretty over going to graduation ceremonies. I said I got my degree in the mail. I still got a decent job, they never asked for my degree but I said I had one on my resume.
-
-Been 8yrs since I graduated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140310.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When I was 14 I stole my dad’s MGB roadster and drove it for about an hour. When I got it home I washed it to cool it down so he wouldn’t notice it was warm, he appreciated the wash so much he took me for my 2nd serving of ice cream that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140311.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In high school, the melted floor mats in my moms new car were because I sprayed febreeze on dog c**p that a friends shoe brought in and it reacted like that.
-
-In truth, it was a firecracker that someone tried to chuck out the window and it bounced off the glass and landed inside the car. They forgot the child safety windows didnt go all the way down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140312.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I got my drivers license a few days after I turned 16 one summer. I told my mom and dad that a friend and I wanted to drive a 100 miles away to go help my friends grandpa with chores around his house because he was getting to old to do them on his own. My mom and dad thought that was a great idea and even offered their brand new car for us to use the week we would be gone.
-
-Thing is, we didn’t go to my friends grandfathers house, we drove almost a 1000 miles (each way) to Las Vegas. After we had driven a few hundred miles we disconnected the speedometer (gear driven) so they wouldn’t know the real miles we racked up on their new car. Had the time of our life. We slept in the car and cleaned up at truck stops along the way. This was back in the mid 70’s and the strip wasn’t even part of Las Vegas yet. We managed to slip into a casino and put a few nickels in a slot machine right inside the door, but never got caught. It was a road trip that I’ll never forget. Parents never were the wiser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140313.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. His dad had a lot of pull, or should I say force...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. I skipped school once in high school. Forged my dads signature on a note. Im 37 and still think my mom might kill me if she found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140314.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Oh deer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Im the one that made all the leprechaun movies disappear throughout my childhood. I took them to granny’s house & made sure they’d never see the light of day again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140315.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. That I watched Ben 10. Growing up, I said that Ben 10 was stupid and then I watched an episode and loved it. But not wanting to be a hypocrite, I would put a sign on my door and say don’t come into until 10:30 which was what time Ben 10 ended on Saturday mornings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140316.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. At Least</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. That it took me 7 years to get my B.S in CS. Because I failed a lot due to anxiety and depression. Im a first Gen american so they dont know how college works and I just lied to them by saying that taking 2 or 3 classes a semester is better than being full time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140317.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. When I moved across the country 2 years ago my car broke down in the middle of Texas. I ditched it there and took a rental the rest of the way and bought a used car on Facebook 2 weeks later. They still think I’m driving the same car I had when I left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140318.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Theyre both a kilogram...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. That I was a bouncer for a night club for about a year and that I took a personal loan for my classes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140319.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">5 Times People Broke the Rules By Following Them</a><br>
 
-<span style="font-size:4em">27. I once took my dads motorbike on a 4 hour round trip because I woke up late for a scuba diving trip when I was 18.
-
-I was being picked up by the instructor and just overslept by about 45 min and didnt hear them at the door. My parents were away so I put on all my dads bike gear (we are pretty similar in size) and drove about two hours up the motorway and spent the day diving before driving home. Filled up the tank on the way home to cover my tracks!
-
-I didnt have a license or insurance (although I could drive a bike).
-
-I dont think he would even care now (Im 33) but Ive just never had the right moment to tell him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140320.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/125534/87140526/Compliance-1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Back in high-school, we went on a family vacation to Hayward Wisconsin. Me, my brother, and my cousin had these under water fire crackers wed been lighting and throwing in the lake. Well, I convinced my cousin to light one and throw it in the toilet of the cabin we rented. Sure enough, it cracked the bowl and all the water spilled out. When it came time to fess up, none of us had any idea what happened and my uncle had to go buy a new toilet to install. I think we told them the truth about a decade later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140321.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/125633/87140527/image-2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Those 20 beers that were stashed under my bed..I was NOT holding them for a friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140322.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010026/87140528/image3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. When I found out they were really Santa Claus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140323.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010038/87140529/image4.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">34 Memes That Show Why Dating Sucks</a><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010108/87140532/image5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140188.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010100/87140531/image6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140181.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010110/87140533/image7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140182.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010120/87140534/image8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140183.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010121/87140535/image9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140213.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010131/87140536/image10.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">20 Male Living Spaces That Don’t Give a Hoot About Your Opinion</a><br>
 
@@ -483,40 +405,55 @@ I dont think he would even care now (Im 33) but Ive just never had the right mom
 
 <span style="font-size:4em">24. Wiped my ass, didn’t realize the tissue broke then bit my nail before washing my hands…. Needless to say, I don’t bite my nails anymore lmao-u/Duhmoan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139806.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">14 Times Life Wasn't All Sunshine And Rainbows</a><br>
+## <a href="#linky10" id="linky9">27 Fresh Memes That Came From the Hills of Dank</a><br>
 
-<span style="font-size:4em">1. “Terrible Tom” was the longest serving federal inmate in solitary confinement. He killed two fellow inmates and a guard. Spared execution since it wasn’t an option at the time, Tom spent his last 36 years in complete isolation. Even guards refused to talk to him, out of respect for the slain guard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139816.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. On the night of March 9-10 1945 in Tokyo, Operation Meetinghouse was conducted by the United States. The fire bombing raid killed at least 100,000 civilians and left over 1 million homeless. It is considered the most destructive bombing raid in history as it destroyed approximately 16 square miles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139808.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Moments before 14 year old Tyre Sampson (right) fell to his death from the Orlando Free Fall ride where 30 riders rise to the top, tilt 30 degrees forward and plunge nearly 400 feet at speeds reaching over 75 mph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139809.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140995.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Russian conscript with his family before being deployed to the front, Karachev, Bryansk, Russia, 1943.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139810.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140996.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hilda Clayton, the war photographer, captured the moment of her own death when a mortar bomb accidentally exploded in Afghanistan killing her and four others in July 2013. This is her final photograph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139811.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140997.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. 25 years since the suicide of 39 Heaven’s Gate cult members. March 26th 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139812.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140998.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Nearly seven years ago, Michael Slager committed one of the most brazen acts of police brutality in recent U.S. history. Slager shot a fleeing unarmed man five times in the back from about 15 to 20 feet away. He then planted a taser next to the man’s body. A bystander recorded everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139813.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140999.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Riding With Death” (1988). One of the last paintings by Jean Michel Basquiat before his own death at 27.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139814.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Just one of the dozens of prison letters from female admirers sent to mass murderer James Holmes who opened fire on a theatre full of moviegoers at a midnight screening of the new Batman movie in Aurora, Colorado.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139815.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141001.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A typical cell at ADX Florence. Supermax facility in Colorado, known for housing some of the worst terrorists and cartel leaders in US history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139817.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141003.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. In 2020, Shane Goldsby (right) got his sister’s rapist (left) as a cellmate. Despite repeatedly requesting a transfer, nothing happened. After the man taunted him for days with specific details about his sister’s rape, Goldsby snapped and stomped him to death.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139818.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141004.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Martin Bryant, Australian Mass Murderer smiles and laughs as he confesses he killed 35 people at Port Arthur in 1996 believing the cameras weren’t recording</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139819.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141005.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. In December 2015, 25-year-old Jamesha Roberts, a mother-of-two walking from her shift at Starbucks, was gunned down by a gang member. Her killer was in a competition with another gang member for who could shoot the most people, and shot Jamesha for no other reason than to “improve his stats”. Five people, including Jamesha, were killed. Six others were wounded. Only one of the people killed had any involvement in gang-related activity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139820.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. One of the extras in the hospital scene in the Excorcist (1973) is convicted murderer and suspected serial killer Paul Bateson.
-Bateson appeared as a radiological technologist in a scene from the 1973 horror film The Exorcist, which was inspired when the film’s director, William Friedkin, watched him perform a cerebral angiography the previous year.
-
-In 1979, Bateson was convicted of the murder of film industry journalist Addison Verrill and sentenced to a minimum of 20 years in prison; in 2003 he was released on parole, which ended after five years.
-
-Prior to Bateson’s trial, police and prosecutors implicated him in a series of unsolved slayings of gay men in Manhattan, killings he had reportedly boasted about while in jail, bringing it up at his sentencing. However, no additional charges ever were brought against him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139821.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141012.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141014.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141018.jpg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">30 Comments That Are Just Ridiculous</a><br>
 
@@ -622,7 +559,89 @@ Prior to Bateson’s trial, police and prosecutors implicated him in a series of
 
 <span style="font-size:4em">20. The person who originally did this probably thought they were so clever.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032913/87141514/wipe.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">15 Life Hacks That Are Actually Pretty Good</a><br>
+## <a href="#linky13" id="linky12">30 Secrets People Kept From Their Parents</a><br>
+
+<span style="font-size:4em">1. My mom is not so good with finances and the internet. I have been paying a significant portion of her bills for the past decade and she has no idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My teenage best friend Chester was forbidden to come to our house or call, because they heard he was a bad kid, welp, the friend they liked Raphael, was Chester all along... Used his middle name for around 6 years until mom found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I got married and didn’t tell them until my wife began to show her pregnancy. We had been married for over a year at that point. They did not approve of our relationship because of outdated reasons. We have been married for 37 years now and have 4 kids and 7 grandkids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. While my parents were at work, my older brother started cooking french fries in a cast iron skillet and cranked the heat until the oil was boiling. He left the stove unattended for a few minutes and came back to a raging fire. He took the pan, spilled hot grease on the cheap kitchen tile, opened the sliding back door and tossed it into the yard before hosing it down. The microwave that sat above the stove was completely ruined and two or three floor tiles were badly burned. So my brother goes to Lowes and finds the exact microwave model, overcharging his card to pay for it. Comes home, tosses the old one, installs the new one. We replaced the tiles with a box cutter and super glue and exchanged the burned tiles in the middle of the kitchen with tiles from the back of the pantry. They never suspected a thing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When I was a junior in high school, my mom and I got into a low speed accident with minor damage to both vehicles. Later that month I was so exhausted from school that I decided to ditch. I drove on the backroads for 10 minutes send parked, and then slept.
+
+My mom found out and was furious at me. I lied and said that it was because I wasnt feeling good and I had headaches and some bs like that. She took me to the doctor and they found that my C3 vertebrae was fractured on top of having a tumor growing on it. I ended up having a gnarly 10 hour spinal surgery that honestly completely changed the course of my life.
+
+And we only found out about it because I couldnt think of any other b******t excuse to use</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I got a tattoo on my shoulder blade. Kept it hidden for years after a shower etc. Found out years down the line my brother told them a week after I had the tattoo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I personally dont want to get married or have kids. I just dont want to deal with the stress around raising another life in this world and failing at being the best father that I can be. I would rather be happy alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom used to take the power cord to my Xbox when I was grounded. My buddy’s Xbox stopped working so he gave me his power cord and I would hop on when they weren’t home or late at night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I knew about her cancer for 6 months before she told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The really great report card I brought home once was actually a fabrication I made on the home computer while they were sleeping. Mom was so proud, I never told her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My mom raised me in a pretty aggressive christian household. When we finally got tv, I discovered HBO had like a 5 minute preview of movies/shows whatever. Then I saw the late night s**t. Well our tv was locked down with a passcode. I had to be like 11 or 12 but I put a vhs in then hit record. I then told my mom that I wanted to watch a animal documentary but it was locked tv14 for the animal violence. Well, she had me turn around while she scrolled the password in. After she left for work, I rewinded the vhs and got the password. Sorry Mom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I snuck out my window at night to raise hell in the neighborhood when I was a teenager. They brought it up in casual conversation about 20 years later..... yeah. Parents know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. That they are terrible at hiding things or making passwords. Anytime I was in trouble and used a password to lock the tv or computer they always used a significant date so it was just process of elimination.
+
+I also found almost all of the Christmas presents every year because they would just put them in the garage under a giant blanket. Like all of a sudden in mid-December a mountain of stuff covered by a blanket would appear in the garage, dont have to be Sherlock Holmes to figure that one out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I used to drive the family car when they were away at work. Like everytime. Just drive around the neighbourhood. I was 15.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I still talk to the girl they forbade me from speaking to when I was 14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Theres a little entryway off on the side of my mothers house and into the basement. I realized how easy it was to sneak in and out of that thing when I was sixteen, and asked if I could move my room to the basement to feel like I had my own space.
+
+Actually, I snuck people in and out of it constantly. My girlfriend at the time stayed over two or three times a week, and I would sneak friends in constantly to drink and party with me. Either that or Id sneak out on weekends and go party and hang out with people. My mother is a very very conservative Christian, and if she ever found out, she would lose her mind and probably disown me. I think about this sometimes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I never graduated college. Im the youngest so they were pretty over going to graduation ceremonies. I said I got my degree in the mail. I still got a decent job, they never asked for my degree but I said I had one on my resume.
+
+Been 8yrs since I graduated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When I was 14 I stole my dad’s MGB roadster and drove it for about an hour. When I got it home I washed it to cool it down so he wouldn’t notice it was warm, he appreciated the wash so much he took me for my 2nd serving of ice cream that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In high school, the melted floor mats in my moms new car were because I sprayed febreeze on dog c**p that a friends shoe brought in and it reacted like that.
+
+In truth, it was a firecracker that someone tried to chuck out the window and it bounced off the glass and landed inside the car. They forgot the child safety windows didnt go all the way down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I got my drivers license a few days after I turned 16 one summer. I told my mom and dad that a friend and I wanted to drive a 100 miles away to go help my friends grandpa with chores around his house because he was getting to old to do them on his own. My mom and dad thought that was a great idea and even offered their brand new car for us to use the week we would be gone.
+
+Thing is, we didn’t go to my friends grandfathers house, we drove almost a 1000 miles (each way) to Las Vegas. After we had driven a few hundred miles we disconnected the speedometer (gear driven) so they wouldn’t know the real miles we racked up on their new car. Had the time of our life. We slept in the car and cleaned up at truck stops along the way. This was back in the mid 70’s and the strip wasn’t even part of Las Vegas yet. We managed to slip into a casino and put a few nickels in a slot machine right inside the door, but never got caught. It was a road trip that I’ll never forget. Parents never were the wiser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I skipped school once in high school. Forged my dads signature on a note. Im 37 and still think my mom might kill me if she found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Im the one that made all the leprechaun movies disappear throughout my childhood. I took them to granny’s house & made sure they’d never see the light of day again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. That I watched Ben 10. Growing up, I said that Ben 10 was stupid and then I watched an episode and loved it. But not wanting to be a hypocrite, I would put a sign on my door and say don’t come into until 10:30 which was what time Ben 10 ended on Saturday mornings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That it took me 7 years to get my B.S in CS. Because I failed a lot due to anxiety and depression. Im a first Gen american so they dont know how college works and I just lied to them by saying that taking 2 or 3 classes a semester is better than being full time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. When I moved across the country 2 years ago my car broke down in the middle of Texas. I ditched it there and took a rental the rest of the way and bought a used car on Facebook 2 weeks later. They still think I’m driving the same car I had when I left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. That I was a bouncer for a night club for about a year and that I took a personal loan for my classes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I once took my dads motorbike on a 4 hour round trip because I woke up late for a scuba diving trip when I was 18.
+
+I was being picked up by the instructor and just overslept by about 45 min and didnt hear them at the door. My parents were away so I put on all my dads bike gear (we are pretty similar in size) and drove about two hours up the motorway and spent the day diving before driving home. Filled up the tank on the way home to cover my tracks!
+
+I didnt have a license or insurance (although I could drive a bike).
+
+I dont think he would even care now (Im 33) but Ive just never had the right moment to tell him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Back in high-school, we went on a family vacation to Hayward Wisconsin. Me, my brother, and my cousin had these under water fire crackers wed been lighting and throwing in the lake. Well, I convinced my cousin to light one and throw it in the toilet of the cabin we rented. Sure enough, it cracked the bowl and all the water spilled out. When it came time to fess up, none of us had any idea what happened and my uncle had to go buy a new toilet to install. I think we told them the truth about a decade later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Those 20 beers that were stashed under my bed..I was NOT holding them for a friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. When I found out they were really Santa Claus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140323.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">15 Life Hacks That Are Actually Pretty Good</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/030524/87140777/life-hacks-01.jpg" style="width:100%"><br>
 
@@ -654,7 +673,42 @@ Prior to Bateson’s trial, police and prosecutors implicated him in a series of
 
 <span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/024406/87140769/life-hacks-15.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">30 WTF Things People Weren't Supposed to See</a><br>
+## <a href="#linky15" id="linky14">14 Times Life Wasn't All Sunshine And Rainbows</a><br>
+
+<span style="font-size:4em">1. “Terrible Tom” was the longest serving federal inmate in solitary confinement. He killed two fellow inmates and a guard. Spared execution since it wasn’t an option at the time, Tom spent his last 36 years in complete isolation. Even guards refused to talk to him, out of respect for the slain guard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. On the night of March 9-10 1945 in Tokyo, Operation Meetinghouse was conducted by the United States. The fire bombing raid killed at least 100,000 civilians and left over 1 million homeless. It is considered the most destructive bombing raid in history as it destroyed approximately 16 square miles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Moments before 14 year old Tyre Sampson (right) fell to his death from the Orlando Free Fall ride where 30 riders rise to the top, tilt 30 degrees forward and plunge nearly 400 feet at speeds reaching over 75 mph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Russian conscript with his family before being deployed to the front, Karachev, Bryansk, Russia, 1943.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hilda Clayton, the war photographer, captured the moment of her own death when a mortar bomb accidentally exploded in Afghanistan killing her and four others in July 2013. This is her final photograph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. 25 years since the suicide of 39 Heaven’s Gate cult members. March 26th 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Nearly seven years ago, Michael Slager committed one of the most brazen acts of police brutality in recent U.S. history. Slager shot a fleeing unarmed man five times in the back from about 15 to 20 feet away. He then planted a taser next to the man’s body. A bystander recorded everything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Riding With Death” (1988). One of the last paintings by Jean Michel Basquiat before his own death at 27.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Just one of the dozens of prison letters from female admirers sent to mass murderer James Holmes who opened fire on a theatre full of moviegoers at a midnight screening of the new Batman movie in Aurora, Colorado.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A typical cell at ADX Florence. Supermax facility in Colorado, known for housing some of the worst terrorists and cartel leaders in US history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2020, Shane Goldsby (right) got his sister’s rapist (left) as a cellmate. Despite repeatedly requesting a transfer, nothing happened. After the man taunted him for days with specific details about his sister’s rape, Goldsby snapped and stomped him to death.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Martin Bryant, Australian Mass Murderer smiles and laughs as he confesses he killed 35 people at Port Arthur in 1996 believing the cameras weren’t recording</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In December 2015, 25-year-old Jamesha Roberts, a mother-of-two walking from her shift at Starbucks, was gunned down by a gang member. Her killer was in a competition with another gang member for who could shoot the most people, and shot Jamesha for no other reason than to “improve his stats”. Five people, including Jamesha, were killed. Six others were wounded. Only one of the people killed had any involvement in gang-related activity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. One of the extras in the hospital scene in the Excorcist (1973) is convicted murderer and suspected serial killer Paul Bateson.
+Bateson appeared as a radiological technologist in a scene from the 1973 horror film The Exorcist, which was inspired when the film’s director, William Friedkin, watched him perform a cerebral angiography the previous year.
+
+In 1979, Bateson was convicted of the murder of film industry journalist Addison Verrill and sentenced to a minimum of 20 years in prison; in 2003 he was released on parole, which ended after five years.
+
+Prior to Bateson’s trial, police and prosecutors implicated him in a series of unsolved slayings of gay men in Manhattan, killings he had reportedly boasted about while in jail, bringing it up at his sentencing. However, no additional charges ever were brought against him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139821.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">30 WTF Things People Weren't Supposed to See</a><br>
 
 <span style="font-size:4em">1. When I bought my first pair of night vision goggles, I had them delivered to the TV station I worked at (not trusting my neighbors to leave my [stuff] alone).
 
@@ -740,7 +794,7 @@ Come back inside and find that my whole family had been watching me.</span><br><
 
 <span style="font-size:4em">30. When I was around 10 years old I was getting curious about sex so I decided to look it up in the dictionary. Wouldn’t you know it my ultra conservative mother walks in the room so I try to play it off like I was looking up the Heida Native American tribe. She called me out for being in the S’s but I doubled down and pretended i was possibly dyslexic. What a tangled web I wove.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141194.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">27 Sad Moments of Cringe</a><br>
+## <a href="#linky17" id="linky16">27 Sad Moments of Cringe</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140175.jpg" style="width:100%"><br>
 
@@ -793,78 +847,6 @@ Come back inside and find that my whole family had been watching me.</span><br><
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140177.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140178.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">27 Fresh Memes That Came From the Hills of Dank</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140997.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140998.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87140999.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141003.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141005.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141007.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141012.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141014.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141018.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">5 Times People Broke the Rules By Following Them</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/125534/87140526/Compliance-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/125633/87140527/image-2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010026/87140528/image3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010038/87140529/image4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010108/87140532/image5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010100/87140531/image6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010110/87140533/image7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010120/87140534/image8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010121/87140535/image9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/07/010131/87140536/image10.jpg" style="width:100%"><br>
 
 ## <a href="#linky18" id="linky17">30 People From History Cooler than Cool </a><br>
 
@@ -927,4 +909,74 @@ Come back inside and find that my whole family had been watching me.</span><br><
 <span style="font-size:4em">If you want the full story, check out the dollop episode in the comments.“Clay had a reputation as a rebel and a fighter. Due to threats on his life, he had become accustomed to carrying two pistols and a knife for protection. He installed a cannon to protect his home and office.”“In 1845, Clay began publishing an anti-slavery newspaper, True American, in Lexington, Kentucky. Within a month he received death threats, had to arm himself, and regularly barricaded the armored doors of his newspaper office for protection, besides setting up two four-pounder cannons inside.”“ During a political debate in 1843, he survived an assassination attempt by Sam Brown, a hired gun. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138163.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">The scabbard of Clays Bowie knife was tipped with silver, and in jerking the Bowie knife out in retaliation pulled this scabbard up so that it was just over his heart. Sam Browns bullet struck the scabbard and embedded itself in the silver. Despite being shot in the chest, Clay drew his Bowie knife, tackled Brown, cut out his eyes, and finally threw him over an embankment.” This “embankment” was actually the top of the Russell Cave (for which Russell Cave Rd is named after), trivia for any of you native Lexingtonians. It’s on Mt. Brilliant farm just south of Elkhorn Creek, where the event was hosted.“ </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87138164.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">34 Memes That Show Why Dating Sucks</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140181.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140182.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87140213.jpg" style="width:100%"><br>
 
