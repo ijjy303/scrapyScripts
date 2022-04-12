@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/12/2022-01:11:31
+Last updated: 04/12/2022-02:11:31
 <br>
 ## <a href="#linky2" id="linky1">44 Funny Photos to Enrich Your Day</a><br>
 
@@ -91,59 +91,119 @@ Last updated: 04/12/2022-01:11:31
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87143245.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 People Who Technically Aren't Wrong</a><br>
+## <a href="#linky3" id="linky2">30 Comments That Are Just Ridiculous</a><br>
 
-<span style="font-size:4em">1. So would someone with 7 feet be better?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141537.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Im on my oil only diet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141540.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. How can radar stop speech?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141531.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141520.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. And if you burn them, you cant eat them eating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141538.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Give him the points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141521.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Youre not getting away with anything there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141522.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Maybe get off actually</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141539.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. What could go wrong?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141523.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. That would be awkward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141524.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. You know, save the world for a small portion of my wealth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141525.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Im now just calling it the hole bowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141526.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141527.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141528.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141529.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Ill take that with me next time just in case...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141530.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141518.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141532.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141533.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. His dad had a lot of pull, or should I say force...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141519.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Oh deer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141534.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141535.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. At Least</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141517.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141536.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Theyre both a kilogram...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141541.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141106.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">17 Funny Facepalms of Stupidity</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141111.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 People Share the Nastiest Things They've Ever Done</a><br>
+
+<span style="font-size:4em">1. When I was a kid, I went out with my friend and his fathers family. We ate Chinese and after my stomach was hurting. I was the first one outside so I tried to fart and sharted instead. I was about to run to the back of the building to wipe and throw boxers away (it was nighttime) but they came outside already. I didnt know what to do so I got back in the truck. It just happened to be the kind where you open the front to get back door open. I rode all the way home (30mins) with sh*tty pants. They didnt say anything but drove with all windows down. to make it worse, when I got home I had to climb over someone to get out because I was in the middle seat so my ass went right by the daughters face.-u/killing4food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When I was a kid learning to ski, I begged my parents to let me go pee before a run but we were already in line for the chairlift. my oldest sister told me “if you have to pee really bad, that means it’s only a little bit! so just pee!”I trusted her blindly but probably pissed myself for a solid 2 minutes. filled up and flooded my ski boots. my parents were not happy because I was definitely old enough to know better-u/badluckie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Not really my fault, but in second grade, I got a stomach bug and my parents didn’t want to answer the phone, so the stupid nurse sent me back to class. We were at P.E at the time, and I got horribly sick again, just as I finished throwing up a kid had kicked a kickball. The sound it made as it slid through my vom is still with me to this day-u/htxxalxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. When I was about 8, I wanted to see what happened if I took of my pants and ran down the hill while peeing.....Such a bad idea.-u/shiroboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I accidentally sh*t my pants outside at some after-school program at my school, I decided instead of going inside it’d be better to hide in the tube slide, take the sh*t out of my pants and bury it in the sandbox.-u/Prestigious_Pass9599</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Pushing my abdomen back together because the sutures came undone and I could see my insides.-u/SirThatsCuba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When I was in high school, I was so constipated, a poop as wide as an eggs length was stuck inside of me. I strained and pushed to no avail, and eventually had to stick a lubed-up finger inside, trying desperately to work my way around this monster and crack a chunk off. no dice. I ended up laying in the bathtub with my legs up in the air, butthole pointed straight at the hot water blasting from the tub faucet, praying that it would be dislodged. Eventually, enough chunks came off that I was able to poop it out, and it felt like dry, cracked birth.-u/robodook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. When I was about four years old, I was at a video rental store and shook out a little nugget of a turd that fell down my pant leg and was left by the video games.-u/littleallred008</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Pissed myself while I was really drunk and couldnt admit it so poured all my alcohol on myself to make it seem like Id somehow gotten a bunch of liquid spilled on me. Since I was in a club that plan wasnt working, as you can imagine you cant just acquire that much alcohol for free and quickly, so I ended up trying to get into a sink in the bathroom and ended up getting taken away in an ambulance due to slipping. That sounds a lot less funny when I say it like that actually.-u/Haloperi-Doll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I dropped a sandwich on the floor at work and it was covered in sawdust, I was feeling really sad so I just ate it and didn’t care at all-u/Puzzleheaded-Paint64</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Doctor here, at one point in my career I was doing autopsies. Came in one day to the smell of bbq. I thought perhaps potluck or someone was cooking in the kitchen at work. Turned out there was a house fire and that was the smell of the victim. I performed the autopsy and despite my disgust, my mouth watered the entire time. Doing that type of work you learn to compartmentalize and leave your feelings at home, but he smelt so good I couldn’t eat meat for months and every so often I smell burnt meat and it takes me right back to it.-u/aliael14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had to pick through my sh*t with gloves trying to find a push pin I’d swallowed some days prior-u/whydontuwannawork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139795.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Threw up in (yes, in) my pants in the bathroom of the bar and continued drinking.-u/baconpoutine89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Undressing and showering my father because he had gotten blackout drunk and sh*t himself.-u/Lickingyourmomsanus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139797.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Accidentally swallowed the crown on my front tooth after it came loose while I was eating taffy. I had the runs the next day and managed to shit it out while at work - I heard a clink in the toilet and I just knew. However, our toilets at work are automatic/use a motion sensor. I was TERRIFIED that I was going to move too quickly and make it flush, so I slowly crept off of the toilet and onto the bathroom floor - my asshole out in the open, covered in liquid turd - and crawled over to a box of latex gloves that we had in the bathroom. I somehow managed to avoid making the toilet flush, picked the crown out from the toilet, and called my dentist. He ran the crown through the sterilizer and put that $1400 bad boi right back into my mouth. I have no regrets.-u/Preskewl_Prostitewt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My ex had a golf ball-sized cyst on her shoulder. I tried to extract it and it squirted forcefully, a little right into my mouth. I immediately threw up on her leg and cat who chose the absolute worst time to affectionately cuddle her leg.-u/supertoilet99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In 5th grade, I used to sh*t tiny little turds in my pants, discreetly take out the turd and encapsulate it in my hand, get up to blow my nose, then I would put the turd in the tissue and throw it away in the trash can. Teacher then wonders why the classroom stinks and cant find the source. Why did I do this lmao-u/Phantom-A</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139800.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. One morning I was getting ready for work, still naked from just waking up and not feeling too good, either. I made the mistake of trusting a fart and a small bit of liquid hit the floor, I tried to run to the counter to grab paper towels but before I could react my dog was already lapping it up…-u/Scootacus93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I chugged a bottle of maple syrup like in Super Troopers. Drinking syrup is kind of gross, the nastiest parts were the stomach pains and aggressive farts that happened hours later due to the amount of sugar. My buddy was near the bathroom when I was letting them out and he said it sounded like Little Round Top.-u/hankypank3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Was caught in traffic and a construction zone a mile from the truck stop. Had really bad diarrhea in the median between the concrete wall and my truck, straight down my legs while standing. Changed clothes on the catwalk in between the truck and trailer. Oncoming traffic saw it all.-u/FireWireBestWire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I was asleep on the couch in some ghetto house I was renting while in college and a cock roach crawled inside my ear canal and got stuck inside. I woke up and felt it crawling around inside. Went to the emergency room and the doctor extracted. Felt so violated. Got ear f*cked by a roach.-u/assetguru</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I took a drink of my friends Red Bull. Turns out it was his dip spit can for the day.-u/JohnDillinger01</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Prob the time I drunkenly invited a brother and sister to indulge me in a threesome lol-u/IgnoreAndScroll404</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Wiped my ass, didn’t realize the tissue broke then bit my nail before washing my hands…. Needless to say, I don’t bite my nails anymore lmao-u/Duhmoan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139806.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">17 Funny Facepalms of Stupidity</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/015957/87141476/facepalm4.png" style="width:100%"><br>
 
@@ -179,7 +239,7 @@ Last updated: 04/12/2022-01:11:31
 
 <span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/021148/87141491/facepalmog.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">25 Employers Who Are Complete D-bags</a><br>
+## <a href="#linky6" id="linky5">25 Employers Who Are Complete D-bags</a><br>
 
 <span style="font-size:4em">1. Can you pay me fore overtime or time and a half?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142307.jpg" style="width:100%"><br>
 
@@ -231,7 +291,7 @@ Last updated: 04/12/2022-01:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142328.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 People Who Were Glad They Over-Prepared</a><br>
+## <a href="#linky7" id="linky6">30 People Who Were Glad They Over-Prepared</a><br>
 
 <span style="font-size:4em">1. I moved my family from Kyiv to a safe place before the war started in Ukraine. I did this completely independent, not as a company policy or anything, and with my family protesting, not believing a war would begin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143039.jpg" style="width:100%"><br>
 
@@ -403,38 +463,6 @@ HOWEVER, later in the night when some drinks had been had, someone accidentally 
 
 She knew the first one, being glass, might get broken so she had a backup ready.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143055.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">15 Children Of Celebrities All Grown Up</a><br>
-
-<span style="font-size:4em">1. Sylvester Stallone and his daughters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Pamela Anderson and her son, Brandon Thomas Lee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Lionel Richie and Sofia Richie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Leslie Mann and her daughter, Iris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Steve Irwin and his son, Robert</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Michael Douglas and his daughter, Carys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Madonna and her daughter, Lourdes Leon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. David Beckham and his daughter, Harper Seven</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Julianne Moore and her 2 kids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. James Marsden and his son, Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Uma Thurman and her son, Levon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Pierce Brosnan and Dylan Brosnan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jessica Alba and her daughter, Honor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Jamie Foxx and his daughter, Corinne Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Jennifer Lopez and her daughter, Emme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140891.jpg" style="width:100%"><br>
-
 ## <a href="#linky8" id="linky7">32 WTF Ways People Almost Died</a><br>
 
 <span style="font-size:4em">1. I snorkeled too far out into the ocean, and it wasnt because it was a riptide, I just got distracted by pretty fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142864.jpg" style="width:100%"><br>
@@ -521,49 +549,7 @@ No the hole In the center is not for breathing. Life Savers have holes in them b
 
 <span style="font-size:4em">32. Crashed my bike into a parked car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142891.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 Trashy Pics We Found While Dumpster Diving</a><br>
-
-<span style="font-size:4em">1. Some new ankle jewelry...</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032724/87141494/ankle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Breaking out a bong in a bar.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032735/87141495/bong.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Playing Tic Tac Toe with bus seats.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032746/87141496/bus.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Okay you dont have to broadcast it all over the neighborhood.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141497/bed.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. We get it. You hate kids. Pump the breaks a bit.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141498/baby.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Why would someone ever do this to their car?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032757/87141499/car.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Can you people not control your bowels?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032838/87141507/rocks.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This is trashy, and just plain gross.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032805/87141500/dont.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Jesus, dude. Try to be a little discreet.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032808/87141501/horndog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Well okay then. Thats...something.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032816/87141502/mom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I dont care if its your personal mug. Wash it.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032818/87141503/mug.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. So thats the neighbors poop leaking into the downstairs apartment.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032827/87141505/poop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Word of advice, dont do this. Its not cute.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032829/87141506/nyp.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Is anyone surprised that this post came from Facebook?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032840/87141508/steak.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Someone is thirsty AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032848/87141509/stop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. How does one go about doing this TWICE?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032851/87141510/teacher.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Please just make it stop.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032859/87141511/vape.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When you gotta go, you gotta go.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032901/87141512/uber.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Excuse me, can you repeat that?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032910/87141513/wagon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The person who originally did this probably thought they were so clever.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032913/87141514/wipe.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
+## <a href="#linky9" id="linky8">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142710.jpg" style="width:100%"><br>
 
@@ -619,55 +605,7 @@ No the hole In the center is not for breathing. Life Savers have holes in them b
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142738.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">23 People Who Were Banned for the Best Reasons</a><br>
-
-<span style="font-size:4em">1. How many signed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. We know they dont want you to make money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. This is my favorite one in the whole gallery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ballet isnt for everyone I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gotta get your moneys worth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. He must have really made an impression</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Get after it granny!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Wasnt so anonymous. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Canned Ham 1 into the lead!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Well then its a bit more than an accusation right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. What else is there to do at legoland?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Well I dont either</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Is that not what those binders are for? Ive been doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139088.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">31 Real Stories Almost Too Strange To Believe</a><br>
+## <a href="#linky10" id="linky9">31 Real Stories Almost Too Strange To Believe</a><br>
 
 <span style="font-size:4em">1. During my sophomore year of high school, my sister and her friend tried to set me up on a blind date with the guy who mowed her parents lawn. It never worked out, and we never met. Two years later, during senior year, I met and started dating the guy who Id eventually marry. A couple years later, we discovered that we were supposed to have been each other’s blind date sophomore year. Well have been together 17 years this March!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142935.jpg" style="width:100%"><br>
 
@@ -731,119 +669,59 @@ No the hole In the center is not for breathing. Life Savers have holes in them b
 
 <span style="font-size:4em">31. My father was a communist who tried starting a communist revolution multiple times throughout his 20s and 30s, while my mother was an anti-communist refugee from the then Soviet Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142964.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">30 Comments That Are Just Ridiculous</a><br>
+## <a href="#linky11" id="linky10">25 People Who Technically Aren't Wrong</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141105.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. So would someone with 7 feet be better?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141082.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Im on my oil only diet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141083.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. How can radar stop speech?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141084.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141085.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. And if you burn them, you cant eat them eating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141086.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Give him the points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141087.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Youre not getting away with anything there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141088.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Maybe get off actually</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141089.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. What could go wrong?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141090.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. That would be awkward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141091.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. You know, save the world for a small portion of my wealth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141092.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Im now just calling it the hole bowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141093.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141094.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141095.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141096.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Ill take that with me next time just in case...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141097.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141518.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141098.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141099.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141100.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. His dad had a lot of pull, or should I say force...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141101.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Oh deer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141102.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141103.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. At Least</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141104.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141106.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Theyre both a kilogram...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141111.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 People Share the Nastiest Things They've Ever Done</a><br>
-
-<span style="font-size:4em">1. When I was a kid, I went out with my friend and his fathers family. We ate Chinese and after my stomach was hurting. I was the first one outside so I tried to fart and sharted instead. I was about to run to the back of the building to wipe and throw boxers away (it was nighttime) but they came outside already. I didnt know what to do so I got back in the truck. It just happened to be the kind where you open the front to get back door open. I rode all the way home (30mins) with sh*tty pants. They didnt say anything but drove with all windows down. to make it worse, when I got home I had to climb over someone to get out because I was in the middle seat so my ass went right by the daughters face.-u/killing4food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When I was a kid learning to ski, I begged my parents to let me go pee before a run but we were already in line for the chairlift. my oldest sister told me “if you have to pee really bad, that means it’s only a little bit! so just pee!”I trusted her blindly but probably pissed myself for a solid 2 minutes. filled up and flooded my ski boots. my parents were not happy because I was definitely old enough to know better-u/badluckie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not really my fault, but in second grade, I got a stomach bug and my parents didn’t want to answer the phone, so the stupid nurse sent me back to class. We were at P.E at the time, and I got horribly sick again, just as I finished throwing up a kid had kicked a kickball. The sound it made as it slid through my vom is still with me to this day-u/htxxalxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. When I was about 8, I wanted to see what happened if I took of my pants and ran down the hill while peeing.....Such a bad idea.-u/shiroboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I accidentally sh*t my pants outside at some after-school program at my school, I decided instead of going inside it’d be better to hide in the tube slide, take the sh*t out of my pants and bury it in the sandbox.-u/Prestigious_Pass9599</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Pushing my abdomen back together because the sutures came undone and I could see my insides.-u/SirThatsCuba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When I was in high school, I was so constipated, a poop as wide as an eggs length was stuck inside of me. I strained and pushed to no avail, and eventually had to stick a lubed-up finger inside, trying desperately to work my way around this monster and crack a chunk off. no dice. I ended up laying in the bathtub with my legs up in the air, butthole pointed straight at the hot water blasting from the tub faucet, praying that it would be dislodged. Eventually, enough chunks came off that I was able to poop it out, and it felt like dry, cracked birth.-u/robodook</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When I was about four years old, I was at a video rental store and shook out a little nugget of a turd that fell down my pant leg and was left by the video games.-u/littleallred008</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Pissed myself while I was really drunk and couldnt admit it so poured all my alcohol on myself to make it seem like Id somehow gotten a bunch of liquid spilled on me. Since I was in a club that plan wasnt working, as you can imagine you cant just acquire that much alcohol for free and quickly, so I ended up trying to get into a sink in the bathroom and ended up getting taken away in an ambulance due to slipping. That sounds a lot less funny when I say it like that actually.-u/Haloperi-Doll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I dropped a sandwich on the floor at work and it was covered in sawdust, I was feeling really sad so I just ate it and didn’t care at all-u/Puzzleheaded-Paint64</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Doctor here, at one point in my career I was doing autopsies. Came in one day to the smell of bbq. I thought perhaps potluck or someone was cooking in the kitchen at work. Turned out there was a house fire and that was the smell of the victim. I performed the autopsy and despite my disgust, my mouth watered the entire time. Doing that type of work you learn to compartmentalize and leave your feelings at home, but he smelt so good I couldn’t eat meat for months and every so often I smell burnt meat and it takes me right back to it.-u/aliael14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Had to pick through my sh*t with gloves trying to find a push pin I’d swallowed some days prior-u/whydontuwannawork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139795.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Threw up in (yes, in) my pants in the bathroom of the bar and continued drinking.-u/baconpoutine89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Undressing and showering my father because he had gotten blackout drunk and sh*t himself.-u/Lickingyourmomsanus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139797.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Accidentally swallowed the crown on my front tooth after it came loose while I was eating taffy. I had the runs the next day and managed to shit it out while at work - I heard a clink in the toilet and I just knew. However, our toilets at work are automatic/use a motion sensor. I was TERRIFIED that I was going to move too quickly and make it flush, so I slowly crept off of the toilet and onto the bathroom floor - my asshole out in the open, covered in liquid turd - and crawled over to a box of latex gloves that we had in the bathroom. I somehow managed to avoid making the toilet flush, picked the crown out from the toilet, and called my dentist. He ran the crown through the sterilizer and put that $1400 bad boi right back into my mouth. I have no regrets.-u/Preskewl_Prostitewt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My ex had a golf ball-sized cyst on her shoulder. I tried to extract it and it squirted forcefully, a little right into my mouth. I immediately threw up on her leg and cat who chose the absolute worst time to affectionately cuddle her leg.-u/supertoilet99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In 5th grade, I used to sh*t tiny little turds in my pants, discreetly take out the turd and encapsulate it in my hand, get up to blow my nose, then I would put the turd in the tissue and throw it away in the trash can. Teacher then wonders why the classroom stinks and cant find the source. Why did I do this lmao-u/Phantom-A</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139800.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. One morning I was getting ready for work, still naked from just waking up and not feeling too good, either. I made the mistake of trusting a fart and a small bit of liquid hit the floor, I tried to run to the counter to grab paper towels but before I could react my dog was already lapping it up…-u/Scootacus93</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I chugged a bottle of maple syrup like in Super Troopers. Drinking syrup is kind of gross, the nastiest parts were the stomach pains and aggressive farts that happened hours later due to the amount of sugar. My buddy was near the bathroom when I was letting them out and he said it sounded like Little Round Top.-u/hankypank3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Was caught in traffic and a construction zone a mile from the truck stop. Had really bad diarrhea in the median between the concrete wall and my truck, straight down my legs while standing. Changed clothes on the catwalk in between the truck and trailer. Oncoming traffic saw it all.-u/FireWireBestWire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I was asleep on the couch in some ghetto house I was renting while in college and a cock roach crawled inside my ear canal and got stuck inside. I woke up and felt it crawling around inside. Went to the emergency room and the doctor extracted. Felt so violated. Got ear f*cked by a roach.-u/assetguru</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I took a drink of my friends Red Bull. Turns out it was his dip spit can for the day.-u/JohnDillinger01</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Prob the time I drunkenly invited a brother and sister to indulge me in a threesome lol-u/IgnoreAndScroll404</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Wiped my ass, didn’t realize the tissue broke then bit my nail before washing my hands…. Needless to say, I don’t bite my nails anymore lmao-u/Duhmoan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87139806.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">30 Secrets People Kept From Their Parents</a><br>
+## <a href="#linky12" id="linky11">30 Secrets People Kept From Their Parents</a><br>
 
 <span style="font-size:4em">1. My mom is not so good with finances and the internet. I have been paying a significant portion of her bills for the past decade and she has no idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140296.jpg" style="width:100%"><br>
 
@@ -925,7 +803,49 @@ I dont think he would even care now (Im 33) but Ive just never had the right mom
 
 <span style="font-size:4em">30. When I found out they were really Santa Claus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140323.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">14 Times Life Wasn't All Sunshine And Rainbows</a><br>
+## <a href="#linky13" id="linky12">20 Trashy Pics We Found While Dumpster Diving</a><br>
+
+<span style="font-size:4em">1. Some new ankle jewelry...</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032724/87141494/ankle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Breaking out a bong in a bar.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032735/87141495/bong.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Playing Tic Tac Toe with bus seats.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032746/87141496/bus.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Okay you dont have to broadcast it all over the neighborhood.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141497/bed.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. We get it. You hate kids. Pump the breaks a bit.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141498/baby.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Why would someone ever do this to their car?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032757/87141499/car.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Can you people not control your bowels?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032838/87141507/rocks.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This is trashy, and just plain gross.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032805/87141500/dont.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Jesus, dude. Try to be a little discreet.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032808/87141501/horndog.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Well okay then. Thats...something.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032816/87141502/mom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I dont care if its your personal mug. Wash it.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032818/87141503/mug.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. So thats the neighbors poop leaking into the downstairs apartment.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032827/87141505/poop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Word of advice, dont do this. Its not cute.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032829/87141506/nyp.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Is anyone surprised that this post came from Facebook?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032840/87141508/steak.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Someone is thirsty AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032848/87141509/stop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How does one go about doing this TWICE?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032851/87141510/teacher.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Please just make it stop.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032859/87141511/vape.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When you gotta go, you gotta go.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032901/87141512/uber.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Excuse me, can you repeat that?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032910/87141513/wagon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The person who originally did this probably thought they were so clever.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032913/87141514/wipe.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">14 Times Life Wasn't All Sunshine And Rainbows</a><br>
 
 <span style="font-size:4em">1. “Terrible Tom” was the longest serving federal inmate in solitary confinement. He killed two fellow inmates and a guard. Spared execution since it wasn’t an option at the time, Tom spent his last 36 years in complete isolation. Even guards refused to talk to him, out of respect for the slain guard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139816.jpg" style="width:100%"><br>
 
@@ -959,4 +879,84 @@ Bateson appeared as a radiological technologist in a scene from the 1973 horror 
 In 1979, Bateson was convicted of the murder of film industry journalist Addison Verrill and sentenced to a minimum of 20 years in prison; in 2003 he was released on parole, which ended after five years.
 
 Prior to Bateson’s trial, police and prosecutors implicated him in a series of unsolved slayings of gay men in Manhattan, killings he had reportedly boasted about while in jail, bringing it up at his sentencing. However, no additional charges ever were brought against him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139821.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">15 Children Of Celebrities All Grown Up</a><br>
+
+<span style="font-size:4em">1. Sylvester Stallone and his daughters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Pamela Anderson and her son, Brandon Thomas Lee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Lionel Richie and Sofia Richie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Leslie Mann and her daughter, Iris</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Steve Irwin and his son, Robert</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Michael Douglas and his daughter, Carys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Madonna and her daughter, Lourdes Leon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. David Beckham and his daughter, Harper Seven</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Julianne Moore and her 2 kids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. James Marsden and his son, Jack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Uma Thurman and her son, Levon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Pierce Brosnan and Dylan Brosnan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Jessica Alba and her daughter, Honor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Jamie Foxx and his daughter, Corinne Foxx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Jennifer Lopez and her daughter, Emme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140891.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">23 People Who Were Banned for the Best Reasons</a><br>
+
+<span style="font-size:4em">1. How many signed?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. We know they dont want you to make money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This is my favorite one in the whole gallery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ballet isnt for everyone I guess.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gotta get your moneys worth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. He must have really made an impression</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Get after it granny!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wasnt so anonymous. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Canned Ham 1 into the lead!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Well then its a bit more than an accusation right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. What else is there to do at legoland?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Well I dont either</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Is that not what those binders are for? Ive been doing it wrong.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139088.jpg" style="width:100%"><br>
 
