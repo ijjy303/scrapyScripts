@@ -1,59 +1,391 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/12/2022-11:11:31
+Last updated: 04/12/2022-12:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Old School Things Kids Today Would Never Understand</a><br>
+## <a href="#linky2" id="linky1">27 Memes That Will Make You Think "Truth"</a><br>
 
-<span style="font-size:4em">1. Organizing to meet someone on a landline and actually having to turn up on time or they wouldn’t know where you are because you have no way of contacting them.-u/withereddesign</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143599.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Recording music from the radio-u/AndNoc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143600.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Waiting for your friend to get home to call them.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143602.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I recently had to explain what “changing the channel” meant to my small kid because he only knows streaming. We’ve already covered CDs, VCRs, and what it means to roll down a car window. It was a little rough -u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143603.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. It’s not working, cuz it’s not on Channel 3-u/moridin82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143604.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Calling a girl and her dad answers the phone. That sh*t was rough, kids.-u/clydem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143596.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Playing the same level on a game over and over because there are no saves-u/drevilishrjf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143597.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Video rental stores with adult sections-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143606.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Knocking on your friends door to see if they could come out and play.-u/whit3lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143598.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The joys of Saturday morning cartoons-u/GallicPontiff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143607.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Using a road atlas to get somewhere on vacation-u/siriusonbroadripple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143608.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Rewinding VHS or a cassette before returning.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143605.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. That Lite Brite was peak technology-u/shanecdotes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143609.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. TV going off-the-air at night.-u/J_David_Settle_1973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143610.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Getting to be goofy and awkward and not have to worry about it ending up online for everyone to see.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143611.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Walking to Blockbuster and spending an hour trying to pick a movie everyone agrees on-u/sugarfairymagic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143612.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Running to go to the bathroom during a commercial break-u/OptimistPrime527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143613.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. How exciting it was to open a new box of cereal to see which toy you got and trade with your mates, usually pencil toppers or bicycle reflectors, etc, lol-u/WishUponAStar35</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143614.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. How we had to plan our TV watching around a printed schedule. No VHS, no DVR.-u/thorndike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143615.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. You needed a light accessory for your Gameboy because those suckers didnt have back lighting. And to trade Pokemon, you needed to use cables. CABLES.-u/gracefultime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143616.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The sound on the phone when somebody was using the internet.-u/Poops_McClanahan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143617.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Going on road trips as a kid where the only form of entertainment was some sort of game played amongst your siblings in the back seat involving the license plates of other passing cars. On our car trip to Disney/FL from central PA me and my brother had a competition on who could write down the most license plate numbers… we ended in the thousands but for the life of me I can’t remember who “won” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143618.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Columbia House Records club-u/passesopenwindows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143619.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Clackers. They were colorful glass (yes glass) balls at the ends of a piece of rope with a ring in the middle to put your finger through. You would move your hand up and down, and the balls would smack into each other, making a “Clack -Clack-Clack” sound (hence the name). They were eventually taken off the market since the glass balls could shatter and kids were getting injured by the flying glass shards. They were a big fad toy for a while there. They came back later with plastic balls.-u/lanky_planky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143620.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. How much time we spent playing outside, but not in organized sports. Pickup kickball in the street where you yell “CAR!” to break up the game briefly for a car driving through. Coming home covered in dirt after disappearing for five hours. We all made fun of how we were called by our parents. We would explore and poke around. Dig up worms, chase butterflies, freak out over finding a dead baby bird, skin our knees at least twice a summer and entertain ourselves for hours.-u/GoddessOfOddness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143621.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142990.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 People Who Were Glad They Over-Prepared</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142992.png" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">25 People Who Technically Aren't Wrong</a><br>
+
+<span style="font-size:4em">1. So would someone with 7 feet be better?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Im on my oil only diet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. How can radar stop speech?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. And if you burn them, you cant eat them eating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Give him the points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Youre not getting away with anything there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Maybe get off actually</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. What could go wrong?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. That would be awkward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. You know, save the world for a small portion of my wealth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Im now just calling it the hole bowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ill take that with me next time just in case...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. His dad had a lot of pull, or should I say force...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Oh deer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. At Least</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Theyre both a kilogram...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141541.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Employers Who Are Complete D-bags</a><br>
+
+<span style="font-size:4em">1. Can you pay me fore overtime or time and a half?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How not to get your employees excited about returning to the office.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Could you imagine seeing this sign in the work place? It would be my first and last day on the job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Amen! Another lie of the rich was dismantled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Of course, typical hollywood hypocrite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142328.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">30 Secrets People Kept From Their Parents</a><br>
+
+<span style="font-size:4em">1. My mom is not so good with finances and the internet. I have been paying a significant portion of her bills for the past decade and she has no idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My teenage best friend Chester was forbidden to come to our house or call, because they heard he was a bad kid, welp, the friend they liked Raphael, was Chester all along... Used his middle name for around 6 years until mom found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I got married and didn’t tell them until my wife began to show her pregnancy. We had been married for over a year at that point. They did not approve of our relationship because of outdated reasons. We have been married for 37 years now and have 4 kids and 7 grandkids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. While my parents were at work, my older brother started cooking french fries in a cast iron skillet and cranked the heat until the oil was boiling. He left the stove unattended for a few minutes and came back to a raging fire. He took the pan, spilled hot grease on the cheap kitchen tile, opened the sliding back door and tossed it into the yard before hosing it down. The microwave that sat above the stove was completely ruined and two or three floor tiles were badly burned. So my brother goes to Lowes and finds the exact microwave model, overcharging his card to pay for it. Comes home, tosses the old one, installs the new one. We replaced the tiles with a box cutter and super glue and exchanged the burned tiles in the middle of the kitchen with tiles from the back of the pantry. They never suspected a thing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When I was a junior in high school, my mom and I got into a low speed accident with minor damage to both vehicles. Later that month I was so exhausted from school that I decided to ditch. I drove on the backroads for 10 minutes send parked, and then slept.
+
+My mom found out and was furious at me. I lied and said that it was because I wasnt feeling good and I had headaches and some bs like that. She took me to the doctor and they found that my C3 vertebrae was fractured on top of having a tumor growing on it. I ended up having a gnarly 10 hour spinal surgery that honestly completely changed the course of my life.
+
+And we only found out about it because I couldnt think of any other b******t excuse to use</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I got a tattoo on my shoulder blade. Kept it hidden for years after a shower etc. Found out years down the line my brother told them a week after I had the tattoo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I personally dont want to get married or have kids. I just dont want to deal with the stress around raising another life in this world and failing at being the best father that I can be. I would rather be happy alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My mom used to take the power cord to my Xbox when I was grounded. My buddy’s Xbox stopped working so he gave me his power cord and I would hop on when they weren’t home or late at night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I knew about her cancer for 6 months before she told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The really great report card I brought home once was actually a fabrication I made on the home computer while they were sleeping. Mom was so proud, I never told her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My mom raised me in a pretty aggressive christian household. When we finally got tv, I discovered HBO had like a 5 minute preview of movies/shows whatever. Then I saw the late night s**t. Well our tv was locked down with a passcode. I had to be like 11 or 12 but I put a vhs in then hit record. I then told my mom that I wanted to watch a animal documentary but it was locked tv14 for the animal violence. Well, she had me turn around while she scrolled the password in. After she left for work, I rewinded the vhs and got the password. Sorry Mom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I snuck out my window at night to raise hell in the neighborhood when I was a teenager. They brought it up in casual conversation about 20 years later..... yeah. Parents know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. That they are terrible at hiding things or making passwords. Anytime I was in trouble and used a password to lock the tv or computer they always used a significant date so it was just process of elimination.
+
+I also found almost all of the Christmas presents every year because they would just put them in the garage under a giant blanket. Like all of a sudden in mid-December a mountain of stuff covered by a blanket would appear in the garage, dont have to be Sherlock Holmes to figure that one out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I used to drive the family car when they were away at work. Like everytime. Just drive around the neighbourhood. I was 15.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I still talk to the girl they forbade me from speaking to when I was 14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Theres a little entryway off on the side of my mothers house and into the basement. I realized how easy it was to sneak in and out of that thing when I was sixteen, and asked if I could move my room to the basement to feel like I had my own space.
+
+Actually, I snuck people in and out of it constantly. My girlfriend at the time stayed over two or three times a week, and I would sneak friends in constantly to drink and party with me. Either that or Id sneak out on weekends and go party and hang out with people. My mother is a very very conservative Christian, and if she ever found out, she would lose her mind and probably disown me. I think about this sometimes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I never graduated college. Im the youngest so they were pretty over going to graduation ceremonies. I said I got my degree in the mail. I still got a decent job, they never asked for my degree but I said I had one on my resume.
+
+Been 8yrs since I graduated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When I was 14 I stole my dad’s MGB roadster and drove it for about an hour. When I got it home I washed it to cool it down so he wouldn’t notice it was warm, he appreciated the wash so much he took me for my 2nd serving of ice cream that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In high school, the melted floor mats in my moms new car were because I sprayed febreeze on dog c**p that a friends shoe brought in and it reacted like that.
+
+In truth, it was a firecracker that someone tried to chuck out the window and it bounced off the glass and landed inside the car. They forgot the child safety windows didnt go all the way down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I got my drivers license a few days after I turned 16 one summer. I told my mom and dad that a friend and I wanted to drive a 100 miles away to go help my friends grandpa with chores around his house because he was getting to old to do them on his own. My mom and dad thought that was a great idea and even offered their brand new car for us to use the week we would be gone.
+
+Thing is, we didn’t go to my friends grandfathers house, we drove almost a 1000 miles (each way) to Las Vegas. After we had driven a few hundred miles we disconnected the speedometer (gear driven) so they wouldn’t know the real miles we racked up on their new car. Had the time of our life. We slept in the car and cleaned up at truck stops along the way. This was back in the mid 70’s and the strip wasn’t even part of Las Vegas yet. We managed to slip into a casino and put a few nickels in a slot machine right inside the door, but never got caught. It was a road trip that I’ll never forget. Parents never were the wiser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I skipped school once in high school. Forged my dads signature on a note. Im 37 and still think my mom might kill me if she found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Im the one that made all the leprechaun movies disappear throughout my childhood. I took them to granny’s house & made sure they’d never see the light of day again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. That I watched Ben 10. Growing up, I said that Ben 10 was stupid and then I watched an episode and loved it. But not wanting to be a hypocrite, I would put a sign on my door and say don’t come into until 10:30 which was what time Ben 10 ended on Saturday mornings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That it took me 7 years to get my B.S in CS. Because I failed a lot due to anxiety and depression. Im a first Gen american so they dont know how college works and I just lied to them by saying that taking 2 or 3 classes a semester is better than being full time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. When I moved across the country 2 years ago my car broke down in the middle of Texas. I ditched it there and took a rental the rest of the way and bought a used car on Facebook 2 weeks later. They still think I’m driving the same car I had when I left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. That I was a bouncer for a night club for about a year and that I took a personal loan for my classes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I once took my dads motorbike on a 4 hour round trip because I woke up late for a scuba diving trip when I was 18.
+
+I was being picked up by the instructor and just overslept by about 45 min and didnt hear them at the door. My parents were away so I put on all my dads bike gear (we are pretty similar in size) and drove about two hours up the motorway and spent the day diving before driving home. Filled up the tank on the way home to cover my tracks!
+
+I didnt have a license or insurance (although I could drive a bike).
+
+I dont think he would even care now (Im 33) but Ive just never had the right moment to tell him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Back in high-school, we went on a family vacation to Hayward Wisconsin. Me, my brother, and my cousin had these under water fire crackers wed been lighting and throwing in the lake. Well, I convinced my cousin to light one and throw it in the toilet of the cabin we rented. Sure enough, it cracked the bowl and all the water spilled out. When it came time to fess up, none of us had any idea what happened and my uncle had to go buy a new toilet to install. I think we told them the truth about a decade later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Those 20 beers that were stashed under my bed..I was NOT holding them for a friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. When I found out they were really Santa Claus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140323.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">32 WTF Ways People Almost Died</a><br>
+
+<span style="font-size:4em">1. I snorkeled too far out into the ocean, and it wasnt because it was a riptide, I just got distracted by pretty fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Went to go visit a friend in Gloucester Mass in winter back in high school far from my home. I was planning on staying overnight at their house but their mother who I now know has mental health problems wouldn’t even let me in the house because the father wasn’t home working a night shift. Friend said sorry bro and closed the door. Almost froze to death waiting outside in 10 degree F at night. A cab driver saw me slumped on a bench and woke me up. Let me get warm and drive around in the passenger seat while he picked up drunk people out on the town all night. When he finished his shift he dropped me off at the train station and handed me 7 bucks for the fare. Dude probably saved my life and I can’t even remember his name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I walked into a back room freezer of a grocery store. The huge door was designed to close automatically. I knew this and went in and did what I was there to do. After 30 seconds, I couldn’t catch my breath. I thought maybe I was just working to hard so I stopped and took several huge breaths, nothing. I felt like I was drowning out of water. I had to move as quickly as I could back outside of the freezer and feel to my knees gasping when I got out. It was only afterwards I realized for some dumb reason someone kept open dry ice in a cart inside of the freezer.
+
+Dry ice removes oxygen out of the air in enclosed spaces. I almost died from lack of oxygen and would have been an icicle when they found me.
+
+Don’t f**k with dry ice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Being sleepy on the road. Dont. Find a spot and sleep a bit.
+
+Seriously, it happened to me twice. You think you wont fall asleep, but you will.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Went to Grand Canyon and tried to be funny and acted like I was gonna slip,[it was snowing], and ended up almost really slipping and falling. Some random guy scolded me like a little kid because he got more scared than me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Stuck my head out the car window bc I wanted to see why dogs loved it. My grandpa didnt notice, rolled up the window, and I choked. He freaked out when he heard the cat like noises (ironic) I was making while my neck was trying to squeeze through the small opening of the window, but kept raising the window in his panic. Eventually he got it and I was left with a red mark on my neck and no closer to understanding dogs.
+
+My grandpa passed earlier this year so its a nice way to remember him and I know he get a chuckle to know people found it funny.
+
+it was meant to be funny so dont feel bad for laughing. My lil sis was in the seat next to me when this happened and she was laughing too, funny then, funny now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was in 2nd or 3rd grade, I was getting off the school bus and was walking around to the other side to my driveway. Suddenly the bus driver hits the horn, scared the hell out of me and I stopped at the edge of the front of a bus and a dump truck good speeding around. I dunno if the dump truck driver didnt see the lights of the bus or whatever but that driver made a dumb mistake that could have cost me my life. Thinking about it my older sister was up at our driveway waiting for me, probably would have messed her up for life.
+
+After that the school district changed bus routes to avoid students having to cross the road to get on or off the bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Waited too long to go to the hospital (pre-Covid) I thought I just had a cold. Husband said, go to the doctor. I said no. Three days later, still not great. Husband said, go to urgent care. I said I will if I dont feel better tomorrow. Next day, I tell husband, I need to go to the ER. A collapsed lung due to pneumonia.Three days in hospital plus breathing issues for the next year. Moral: Listen to your spouse. And yeah, got a whole lot of I told you sos. Deserved every one of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. While drunk, I sat down outside...to rest for a moment...on a freezing cold Winters night. Fortunately, a passerby noticed me and encouraged me to get inside. I figure I was probably there dozing for several minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I commented on a controversial post on reddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Taking apart a dryer completely to clean it out and get it running smoothly again, dropped a screwdriver onto an exposed wire… huge arc and zap sound. I had left it plugged in (up until I realized the incredibly smooth-brained move I had pulled)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Smoked cigarettes for 23 years. Had a heart attack at 39. Pretty f**kin stupid if you ask me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I almost drowned in the sea as a kid. A current pushed me away from the shore. Lifeguards saved me and were slapping my face. I thought it was a punishment but they were resuscitating me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Started hiccuping with peanut butter in my mouth. Peanut butter went down the wrong tube, I started choking, but couldn’t cough bc these hiccups wouldn’t f**king stop. Finally leaned over and managed to cough it out, but it was a close call</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Im Italian but have been living in the UK for two years
+
+Guess who looked at the wrong side of the road while a Bus was coming trough?
+
+Everytime I went back to Italy I risked my life for the same reason by getting used to drive to the left and viceversa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Swam under a shipyard pier at night (solid concrete above me) and lost my sense of direction. Got lucky and found my way out.
+
+To add more detail - A friend and I were assault swimmers attacking a ship for a training exercise at night. We would swim from pier pylon to pylon underwater. Take a breath, go under, push off, and swim ~20 to the next pylon, surface and repeat. My mask broke and I was doing it with my eyes closed due to having contacts at the time. One time I just kept swimming and felt like I missed the pylon. When I went to slowly broach the surface I found myself under the concrete above. I had no idea the pier was even built like that. Put my hands up and oriented myself. It looked dark in all directions but my gut told me to the right is where I came from. After that, I stayed on the surface! Cheers!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Came very close (about two inches) to backing into a warehouse rack full of two ton coils of sheet metal when I didnt realise that my forklift was in reverse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I stuck my head in a random beaker to sniff something in chem lab, I have been very good about wafting since</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Yelling at someone in the hood, they tried to run me over with their car and then got out and chased me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Grown adult and choked on mozzarella cheese. Was only alone for 20 minutes. Cant imagine the obituary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Drove on an interstate during a hurricane and watched all the cars around me get submerged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Literally today, getting undressed to shower and as my pants fell to my ankles I went to step out of them and tripped, almost walloped my head on the sink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Unplugging the washing machine with wet hands. My hand slipped onto the prongs while they were still partially in the outlet, and I think my heart stopped for a second before I yanked the plug free. Definitely do not recommend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Fell through the ice. The great lakes freeze partially in the winter. Far out there was an ice ridge, and on the other side was this clear glassy ice as far out as I could see. I climbed over the ridge to take a leak in privacy, but it wasnt solid. Went through. Wife had to put down our first infant son to fish me out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Choked on a small potato at the Pizza Hut salad bar. Completely lodged in my throat. I raced to the loo and shoved my fingers down my throat, and it popped out. Walked back to my table and finished my salad. I was with my boyfriend. He did nothing. I grabbed the waitress’s arm. All she did was say “is she okay?” to my boyfriend. Hence running to the loo to deal with it myself!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Choked on a life saver.
+
+No the hole In the center is not for breathing. Life Savers have holes in them because the inventor, Clarence Crace wanted to create a unique candy. Back in 1912 (109 years ago)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Choked on a hamburger in 8th grade beside my old friend who was too busy flirting until someone else saved me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I was very small (probably around 5) and when my mum wasn’t looking I tied some clothes around my neck and hooked it to the stair railings, then tried to jump off the railings to see if they would hold me. Fortunately I was too small to climb over the railings and my mum found me before I would’ve jumped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Almost got my head squashed by a car due to a small pebble making me fall on the main road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I let my anger get the best of me and DID NOT hold the piece of wood against the mitre saw wall. (For those that dont know if you dont do that it will without fail take the wood and catch it on one of the blade parts sending you into it with the wood)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Climbed into one of those power supply units, that supply power to the whole road, whilst retrieving a ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Crashed my bike into a parked car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142891.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142714.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142731.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142733.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142735.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142738.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">30 People Who Were Glad They Over-Prepared</a><br>
 
 <span style="font-size:4em">1. I moved my family from Kyiv to a safe place before the war started in Ukraine. I did this completely independent, not as a company policy or anything, and with my family protesting, not believing a war would begin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143039.jpg" style="width:100%"><br>
 
@@ -225,63 +557,7 @@ HOWEVER, later in the night when some drinks had been had, someone accidentally 
 
 She knew the first one, being glass, might get broken so she had a backup ready.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143055.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142714.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142731.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142733.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142735.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142738.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">31 Real Stories Almost Too Strange To Believe</a><br>
+## <a href="#linky9" id="linky8">31 Real Stories Almost Too Strange To Believe</a><br>
 
 <span style="font-size:4em">1. During my sophomore year of high school, my sister and her friend tried to set me up on a blind date with the guy who mowed her parents lawn. It never worked out, and we never met. Two years later, during senior year, I met and started dating the guy who Id eventually marry. A couple years later, we discovered that we were supposed to have been each other’s blind date sophomore year. Well have been together 17 years this March!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142935.jpg" style="width:100%"><br>
 
@@ -345,227 +621,7 @@ She knew the first one, being glass, might get broken so she had a backup ready.
 
 <span style="font-size:4em">31. My father was a communist who tried starting a communist revolution multiple times throughout his 20s and 30s, while my mother was an anti-communist refugee from the then Soviet Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142964.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">32 WTF Ways People Almost Died</a><br>
-
-<span style="font-size:4em">1. I snorkeled too far out into the ocean, and it wasnt because it was a riptide, I just got distracted by pretty fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Went to go visit a friend in Gloucester Mass in winter back in high school far from my home. I was planning on staying overnight at their house but their mother who I now know has mental health problems wouldn’t even let me in the house because the father wasn’t home working a night shift. Friend said sorry bro and closed the door. Almost froze to death waiting outside in 10 degree F at night. A cab driver saw me slumped on a bench and woke me up. Let me get warm and drive around in the passenger seat while he picked up drunk people out on the town all night. When he finished his shift he dropped me off at the train station and handed me 7 bucks for the fare. Dude probably saved my life and I can’t even remember his name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I walked into a back room freezer of a grocery store. The huge door was designed to close automatically. I knew this and went in and did what I was there to do. After 30 seconds, I couldn’t catch my breath. I thought maybe I was just working to hard so I stopped and took several huge breaths, nothing. I felt like I was drowning out of water. I had to move as quickly as I could back outside of the freezer and feel to my knees gasping when I got out. It was only afterwards I realized for some dumb reason someone kept open dry ice in a cart inside of the freezer.
-
-Dry ice removes oxygen out of the air in enclosed spaces. I almost died from lack of oxygen and would have been an icicle when they found me.
-
-Don’t f**k with dry ice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Being sleepy on the road. Dont. Find a spot and sleep a bit.
-
-Seriously, it happened to me twice. You think you wont fall asleep, but you will.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Went to Grand Canyon and tried to be funny and acted like I was gonna slip,[it was snowing], and ended up almost really slipping and falling. Some random guy scolded me like a little kid because he got more scared than me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Stuck my head out the car window bc I wanted to see why dogs loved it. My grandpa didnt notice, rolled up the window, and I choked. He freaked out when he heard the cat like noises (ironic) I was making while my neck was trying to squeeze through the small opening of the window, but kept raising the window in his panic. Eventually he got it and I was left with a red mark on my neck and no closer to understanding dogs.
-
-My grandpa passed earlier this year so its a nice way to remember him and I know he get a chuckle to know people found it funny.
-
-it was meant to be funny so dont feel bad for laughing. My lil sis was in the seat next to me when this happened and she was laughing too, funny then, funny now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was in 2nd or 3rd grade, I was getting off the school bus and was walking around to the other side to my driveway. Suddenly the bus driver hits the horn, scared the hell out of me and I stopped at the edge of the front of a bus and a dump truck good speeding around. I dunno if the dump truck driver didnt see the lights of the bus or whatever but that driver made a dumb mistake that could have cost me my life. Thinking about it my older sister was up at our driveway waiting for me, probably would have messed her up for life.
-
-After that the school district changed bus routes to avoid students having to cross the road to get on or off the bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Waited too long to go to the hospital (pre-Covid) I thought I just had a cold. Husband said, go to the doctor. I said no. Three days later, still not great. Husband said, go to urgent care. I said I will if I dont feel better tomorrow. Next day, I tell husband, I need to go to the ER. A collapsed lung due to pneumonia.Three days in hospital plus breathing issues for the next year. Moral: Listen to your spouse. And yeah, got a whole lot of I told you sos. Deserved every one of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. While drunk, I sat down outside...to rest for a moment...on a freezing cold Winters night. Fortunately, a passerby noticed me and encouraged me to get inside. I figure I was probably there dozing for several minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I commented on a controversial post on reddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Taking apart a dryer completely to clean it out and get it running smoothly again, dropped a screwdriver onto an exposed wire… huge arc and zap sound. I had left it plugged in (up until I realized the incredibly smooth-brained move I had pulled)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Smoked cigarettes for 23 years. Had a heart attack at 39. Pretty f**kin stupid if you ask me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I almost drowned in the sea as a kid. A current pushed me away from the shore. Lifeguards saved me and were slapping my face. I thought it was a punishment but they were resuscitating me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Started hiccuping with peanut butter in my mouth. Peanut butter went down the wrong tube, I started choking, but couldn’t cough bc these hiccups wouldn’t f**king stop. Finally leaned over and managed to cough it out, but it was a close call</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Im Italian but have been living in the UK for two years
-
-Guess who looked at the wrong side of the road while a Bus was coming trough?
-
-Everytime I went back to Italy I risked my life for the same reason by getting used to drive to the left and viceversa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Swam under a shipyard pier at night (solid concrete above me) and lost my sense of direction. Got lucky and found my way out.
-
-To add more detail - A friend and I were assault swimmers attacking a ship for a training exercise at night. We would swim from pier pylon to pylon underwater. Take a breath, go under, push off, and swim ~20 to the next pylon, surface and repeat. My mask broke and I was doing it with my eyes closed due to having contacts at the time. One time I just kept swimming and felt like I missed the pylon. When I went to slowly broach the surface I found myself under the concrete above. I had no idea the pier was even built like that. Put my hands up and oriented myself. It looked dark in all directions but my gut told me to the right is where I came from. After that, I stayed on the surface! Cheers!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Came very close (about two inches) to backing into a warehouse rack full of two ton coils of sheet metal when I didnt realise that my forklift was in reverse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I stuck my head in a random beaker to sniff something in chem lab, I have been very good about wafting since</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Yelling at someone in the hood, they tried to run me over with their car and then got out and chased me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Grown adult and choked on mozzarella cheese. Was only alone for 20 minutes. Cant imagine the obituary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Drove on an interstate during a hurricane and watched all the cars around me get submerged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Literally today, getting undressed to shower and as my pants fell to my ankles I went to step out of them and tripped, almost walloped my head on the sink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Unplugging the washing machine with wet hands. My hand slipped onto the prongs while they were still partially in the outlet, and I think my heart stopped for a second before I yanked the plug free. Definitely do not recommend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Fell through the ice. The great lakes freeze partially in the winter. Far out there was an ice ridge, and on the other side was this clear glassy ice as far out as I could see. I climbed over the ridge to take a leak in privacy, but it wasnt solid. Went through. Wife had to put down our first infant son to fish me out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Choked on a small potato at the Pizza Hut salad bar. Completely lodged in my throat. I raced to the loo and shoved my fingers down my throat, and it popped out. Walked back to my table and finished my salad. I was with my boyfriend. He did nothing. I grabbed the waitress’s arm. All she did was say “is she okay?” to my boyfriend. Hence running to the loo to deal with it myself!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Choked on a life saver.
-
-No the hole In the center is not for breathing. Life Savers have holes in them because the inventor, Clarence Crace wanted to create a unique candy. Back in 1912 (109 years ago)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Choked on a hamburger in 8th grade beside my old friend who was too busy flirting until someone else saved me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I was very small (probably around 5) and when my mum wasn’t looking I tied some clothes around my neck and hooked it to the stair railings, then tried to jump off the railings to see if they would hold me. Fortunately I was too small to climb over the railings and my mum found me before I would’ve jumped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Almost got my head squashed by a car due to a small pebble making me fall on the main road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I let my anger get the best of me and DID NOT hold the piece of wood against the mitre saw wall. (For those that dont know if you dont do that it will without fail take the wood and catch it on one of the blade parts sending you into it with the wood)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Climbed into one of those power supply units, that supply power to the whole road, whilst retrieving a ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Crashed my bike into a parked car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142891.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">30 Secrets People Kept From Their Parents</a><br>
-
-<span style="font-size:4em">1. My mom is not so good with finances and the internet. I have been paying a significant portion of her bills for the past decade and she has no idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My teenage best friend Chester was forbidden to come to our house or call, because they heard he was a bad kid, welp, the friend they liked Raphael, was Chester all along... Used his middle name for around 6 years until mom found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I got married and didn’t tell them until my wife began to show her pregnancy. We had been married for over a year at that point. They did not approve of our relationship because of outdated reasons. We have been married for 37 years now and have 4 kids and 7 grandkids</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. While my parents were at work, my older brother started cooking french fries in a cast iron skillet and cranked the heat until the oil was boiling. He left the stove unattended for a few minutes and came back to a raging fire. He took the pan, spilled hot grease on the cheap kitchen tile, opened the sliding back door and tossed it into the yard before hosing it down. The microwave that sat above the stove was completely ruined and two or three floor tiles were badly burned. So my brother goes to Lowes and finds the exact microwave model, overcharging his card to pay for it. Comes home, tosses the old one, installs the new one. We replaced the tiles with a box cutter and super glue and exchanged the burned tiles in the middle of the kitchen with tiles from the back of the pantry. They never suspected a thing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When I was a junior in high school, my mom and I got into a low speed accident with minor damage to both vehicles. Later that month I was so exhausted from school that I decided to ditch. I drove on the backroads for 10 minutes send parked, and then slept.
-
-My mom found out and was furious at me. I lied and said that it was because I wasnt feeling good and I had headaches and some bs like that. She took me to the doctor and they found that my C3 vertebrae was fractured on top of having a tumor growing on it. I ended up having a gnarly 10 hour spinal surgery that honestly completely changed the course of my life.
-
-And we only found out about it because I couldnt think of any other b******t excuse to use</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I got a tattoo on my shoulder blade. Kept it hidden for years after a shower etc. Found out years down the line my brother told them a week after I had the tattoo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I personally dont want to get married or have kids. I just dont want to deal with the stress around raising another life in this world and failing at being the best father that I can be. I would rather be happy alone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My mom used to take the power cord to my Xbox when I was grounded. My buddy’s Xbox stopped working so he gave me his power cord and I would hop on when they weren’t home or late at night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I knew about her cancer for 6 months before she told me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The really great report card I brought home once was actually a fabrication I made on the home computer while they were sleeping. Mom was so proud, I never told her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My mom raised me in a pretty aggressive christian household. When we finally got tv, I discovered HBO had like a 5 minute preview of movies/shows whatever. Then I saw the late night s**t. Well our tv was locked down with a passcode. I had to be like 11 or 12 but I put a vhs in then hit record. I then told my mom that I wanted to watch a animal documentary but it was locked tv14 for the animal violence. Well, she had me turn around while she scrolled the password in. After she left for work, I rewinded the vhs and got the password. Sorry Mom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I snuck out my window at night to raise hell in the neighborhood when I was a teenager. They brought it up in casual conversation about 20 years later..... yeah. Parents know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. That they are terrible at hiding things or making passwords. Anytime I was in trouble and used a password to lock the tv or computer they always used a significant date so it was just process of elimination.
-
-I also found almost all of the Christmas presents every year because they would just put them in the garage under a giant blanket. Like all of a sudden in mid-December a mountain of stuff covered by a blanket would appear in the garage, dont have to be Sherlock Holmes to figure that one out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I used to drive the family car when they were away at work. Like everytime. Just drive around the neighbourhood. I was 15.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I still talk to the girl they forbade me from speaking to when I was 14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Theres a little entryway off on the side of my mothers house and into the basement. I realized how easy it was to sneak in and out of that thing when I was sixteen, and asked if I could move my room to the basement to feel like I had my own space.
-
-Actually, I snuck people in and out of it constantly. My girlfriend at the time stayed over two or three times a week, and I would sneak friends in constantly to drink and party with me. Either that or Id sneak out on weekends and go party and hang out with people. My mother is a very very conservative Christian, and if she ever found out, she would lose her mind and probably disown me. I think about this sometimes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I never graduated college. Im the youngest so they were pretty over going to graduation ceremonies. I said I got my degree in the mail. I still got a decent job, they never asked for my degree but I said I had one on my resume.
-
-Been 8yrs since I graduated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When I was 14 I stole my dad’s MGB roadster and drove it for about an hour. When I got it home I washed it to cool it down so he wouldn’t notice it was warm, he appreciated the wash so much he took me for my 2nd serving of ice cream that day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In high school, the melted floor mats in my moms new car were because I sprayed febreeze on dog c**p that a friends shoe brought in and it reacted like that.
-
-In truth, it was a firecracker that someone tried to chuck out the window and it bounced off the glass and landed inside the car. They forgot the child safety windows didnt go all the way down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I got my drivers license a few days after I turned 16 one summer. I told my mom and dad that a friend and I wanted to drive a 100 miles away to go help my friends grandpa with chores around his house because he was getting to old to do them on his own. My mom and dad thought that was a great idea and even offered their brand new car for us to use the week we would be gone.
-
-Thing is, we didn’t go to my friends grandfathers house, we drove almost a 1000 miles (each way) to Las Vegas. After we had driven a few hundred miles we disconnected the speedometer (gear driven) so they wouldn’t know the real miles we racked up on their new car. Had the time of our life. We slept in the car and cleaned up at truck stops along the way. This was back in the mid 70’s and the strip wasn’t even part of Las Vegas yet. We managed to slip into a casino and put a few nickels in a slot machine right inside the door, but never got caught. It was a road trip that I’ll never forget. Parents never were the wiser.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I skipped school once in high school. Forged my dads signature on a note. Im 37 and still think my mom might kill me if she found out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Im the one that made all the leprechaun movies disappear throughout my childhood. I took them to granny’s house & made sure they’d never see the light of day again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. That I watched Ben 10. Growing up, I said that Ben 10 was stupid and then I watched an episode and loved it. But not wanting to be a hypocrite, I would put a sign on my door and say don’t come into until 10:30 which was what time Ben 10 ended on Saturday mornings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. That it took me 7 years to get my B.S in CS. Because I failed a lot due to anxiety and depression. Im a first Gen american so they dont know how college works and I just lied to them by saying that taking 2 or 3 classes a semester is better than being full time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. When I moved across the country 2 years ago my car broke down in the middle of Texas. I ditched it there and took a rental the rest of the way and bought a used car on Facebook 2 weeks later. They still think I’m driving the same car I had when I left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. That I was a bouncer for a night club for about a year and that I took a personal loan for my classes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I once took my dads motorbike on a 4 hour round trip because I woke up late for a scuba diving trip when I was 18.
-
-I was being picked up by the instructor and just overslept by about 45 min and didnt hear them at the door. My parents were away so I put on all my dads bike gear (we are pretty similar in size) and drove about two hours up the motorway and spent the day diving before driving home. Filled up the tank on the way home to cover my tracks!
-
-I didnt have a license or insurance (although I could drive a bike).
-
-I dont think he would even care now (Im 33) but Ive just never had the right moment to tell him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Back in high-school, we went on a family vacation to Hayward Wisconsin. Me, my brother, and my cousin had these under water fire crackers wed been lighting and throwing in the lake. Well, I convinced my cousin to light one and throw it in the toilet of the cabin we rented. Sure enough, it cracked the bowl and all the water spilled out. When it came time to fess up, none of us had any idea what happened and my uncle had to go buy a new toilet to install. I think we told them the truth about a decade later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Those 20 beers that were stashed under my bed..I was NOT holding them for a friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. When I found out they were really Santa Claus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87140323.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">25 People Who Technically Aren't Wrong</a><br>
-
-<span style="font-size:4em">1. So would someone with 7 feet be better?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Im on my oil only diet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. How can radar stop speech?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. True</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And if you burn them, you cant eat them eating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Give him the points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Youre not getting away with anything there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Maybe get off actually</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. What could go wrong?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. That would be awkward</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. You know, save the world for a small portion of my wealth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Im now just calling it the hole bowl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ill take that with me next time just in case...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. His dad had a lot of pull, or should I say force...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Oh deer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. At Least</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Theyre both a kilogram...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141541.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">17 Funny Facepalms of Stupidity</a><br>
+## <a href="#linky10" id="linky9">17 Funny Facepalms of Stupidity</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/015957/87141476/facepalm4.png" style="width:100%"><br>
 
@@ -601,101 +657,263 @@ I dont think he would even care now (Im 33) but Ive just never had the right mom
 
 <span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/021148/87141491/facepalmog.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">20 Trashy Pics We Found While Dumpster Diving</a><br>
+## <a href="#linky11" id="linky10">15 Random Facts To Fill Your Head With</a><br>
 
-<span style="font-size:4em">1. Some new ankle jewelry...</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032724/87141494/ankle.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Breaking out a bong in a bar.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032735/87141495/bong.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Playing Tic Tac Toe with bus seats.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032746/87141496/bus.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Okay you dont have to broadcast it all over the neighborhood.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141497/bed.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. We get it. You hate kids. Pump the breaks a bit.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032754/87141498/baby.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Why would someone ever do this to their car?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032757/87141499/car.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Can you people not control your bowels?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032838/87141507/rocks.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This is trashy, and just plain gross.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032805/87141500/dont.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Jesus, dude. Try to be a little discreet.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032808/87141501/horndog.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Well okay then. Thats...something.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032816/87141502/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I dont care if its your personal mug. Wash it.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032818/87141503/mug.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. So thats the neighbors poop leaking into the downstairs apartment.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032827/87141505/poop.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Word of advice, dont do this. Its not cute.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032829/87141506/nyp.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Is anyone surprised that this post came from Facebook?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032840/87141508/steak.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Someone is thirsty AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032848/87141509/stop.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. How does one go about doing this TWICE?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032851/87141510/teacher.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">30 Trashy Things People Have Seen At Weddings</a><br>
 
-<span style="font-size:4em">17. Please just make it stop.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032859/87141511/vape.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I was actually the bartender but it was a hoot. 1st, wedding was outside and it stormed violently. Groom was hammered pre wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women in the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When you gotta go, you gotta go.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032901/87141512/uber.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The best man screwed the grooms mother between the meal and the dancing. The groom finds out and punches the best man, breaking his hand. The best man drives away and gets stopped by the police for drunk driving.
+
+Being a wedding photographer is awesome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Excuse me, can you repeat that?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032910/87141513/wagon.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Camo print wedding dress that was borderline see-through. Walked down the aisle to the Scooby Doo theme. No, nobody knows why they chose that song, including the couple themselves. They divorced a few months later after they both stopped cleaning the house in an act of defiance against one another.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The person who originally did this probably thought they were so clever.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/08/032913/87141514/wipe.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My own. In a Mississippi judges office with a bag of Cheetos on her desk. She wiped her hands on a napkin, grabbed a Bible, and did her thing with orange crumbs on her lips. Her work heels were not on because she was in her office. It was extremely rush. I understand that she was on her break but we didnt mind waiting. Idk why they rushed us thru.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143685.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Employers Who Are Complete D-bags</a><br>
+<span style="font-size:4em">5. A wedding where they had a flag that said “I had my wedding on Friday because Saturdays are for the boys”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Can you pay me fore overtime or time and a half?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142307.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The mother in law took a swing at the bride on the dance floor. Still blows my mind thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. How not to get your employees excited about returning to the office.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142323.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A wedding on the beach behind Hooters. The officiant stood next to a trash bin. As if it was planned, the trash collector pulled up during the vows. Did he wait to change the bag? Absolutely not. Children at the wedding swarmed the couple like the flies around the trash can just after the kiss, stepping all over her dress. She bent over to adjust her sandal and a pack of Marlboro reds fell out of the bust along with her right breast.
+
+It felt like we were rubber necking instead witnessing a marriage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Could you imagine seeing this sign in the work place? It would be my first and last day on the job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142310.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I don’t even know where to begin.. ceremony was comprised of immediate family then followed by a reception with all guests in a relatively nice hotel banquet hall. An hour in at 7pm the open bar was completely closed down because MULTIPLE guests were throwing up in the bathroom sinks causing flooding, the groom was so wasted even before the ceremony but was blackout by the time of reception. During the first dance he kept his hands in his cargo pant khakis the entire time and ate dinner sitting on the floor in a corner of the hall while the bride sat at the head table alone. About two hours in, the groom randomly left and slept at their house while the bride stayed in the newlywed suite by herself.. they are now separated as you may have assumed by this point.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142306.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Grooms best man went around with a naked photo of the groom. Showed everyone including the bride and grooms family. The worst part was there were kids at the wedding including the brides very young son and it wasnt a small photo either like on his phone it was a huge canvas of the groom nude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142309.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I used to work at a place that had a very large tent-like building that was often used for weddings, receptions, celebration of life events, etc. It was on a local lake in a beautiful area. It was very expensive to rent out ($3,000-$5,000 depending on how much work from staff is required). Well one family rented it out for the trashiest wedding I had encountered there.
+
+The wedding was peacock themed and the decorations consisted of black and teal paper plates, random peacock feathers, and teal paper cups. They wanted to put all this stuff out the night before the wedding. The owner warned them that this is basically a tent on the lake and things left out will get dirty and spider webbed overnight. They ignored this advice and then pitched a fit when they returned the next morning.
+
+Next, the bride had neglected to try her dress on since she purchased it and had gained weight. She couldnt zip it. She ended up buying a white tank top to wear under it and left it unzipped.
+
+Then after the ceremony, everyone was very inebriated and the brides mother set up a chair on the middle of the dance floor had the groom sit there and cheered her daughter on as the bride gave the groom a very very vigorous lap dance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Amen! Another lie of the rich was dismantled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142311.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Wedding was in a suburban driveway. The maid of honour stole the bouquet from someone’s garden and the best man proudly announced he had shoplifted the rings. The groom wore a button-down shirt that said ‘f**k off’ in fancy lettering. The bride stopped in the middle of the vows to tell her mother to ‘get that [friggin] kid out of here.’ It was her second kid by the previous bloke.
+
+When it was over, we apologized to the celebrant. He said he’d seen worse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142312.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A friend of the family is a wedding photographer. We went to dinner with her family a few weeks ago and she explained the most bizarre wedding she had ever been to (which happened to be that same day, and involved someone we all know)
+
+Wedding was behind a trailer in a trailer park
+
+Folding chairs clearly labeled Property of [school], there were two church pews, and several 5 gallon buckets turned upside down
+
+Some of the wedding party arrived on riding mowers
+
+The bride was wearing some screen-printed t-shirt, jeans, and a veil made from cheesecloth
+
+The groom was wearing a jean vest with no shirt underneath and torn jeans
+
+The bride had met the groom just over 3 months prior, as the groom was still married to his 1st wife at the time. Divorce takes 90 days here. Do the math.
+
+Most of the guests were dressed like they were in the middle of doing yard work
+
+Reception was in the same area. Several cases of PBR and Miller Lite, supermarket pre-boxed cheese and cracker spreads, and a few Bojangles fried chicken boxes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142313.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A family member of mines 2ND wedding reception was held INSIDE a indoor gun range. The groom was obviously an avid hunter because the entire wedding party was wearing camouflage suits and the bonus was the open bar consisting on two kegs of coors light sitting trash cans filled with ice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142314.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Both of my middle sisters weddings.
+
+Dont get me wrong, shes the sane one of my sisters and I actually really love her, but she has a, shall we say, unique sense of style.
+
+Wedding #1 was while she was working as a carnie, and was held after closing time on the midway at some podunk county fair. I may well have been the only sober person there, and there were definitely more tattoos than teeth in attendance. She wound up leaving him when he turned out to be an abusive self-centered twat who contributed nothing to taking care of their kid.
+
+Wedding #2 (just last year) was mostly okay, and BIL is a really stand-up guy. But yall, the whole wedding theme was camo. My sister wore a camouflage wedding dress and matching crocs. BIL wore jeans and a dress shirt with a camo vest. The frigging cake was covered in camo-patterned ribbons and IDK where the hell she got camo patterned silk roses but the cake had a pile of those too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142305.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Ceremony was in a park - not booked or decorated, just showed up and found a spot.
+
+Reception was at a scout hall. No decorations again, and for catering the brides family went through Red Rooster drive thru and got a bunch of whole chickens and chips. Like, 5 different cars went through one after the other and ordered, they didnt even pre order.
+
+Groom and all his friends were high as kites and only reason bride wasnt is because she announced she was knocked up.
+
+Groom and his mates bought their dirt bikes and after eating went out and rode them around the hall. Was so loud and muddy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142315.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The bride made a speech thanking her in laws for financial assistance for the event. Her mother was not thanked and she was furious. There was a long head table for bridal party and parents. It was made out of small tables pushed together covered by one long tablecloth. The mother pulled a small table out of the arrangement, catching the table cloth, and nearly destroying the head table set up. Now the bride got angry and there was much back and forth with various family members attempting to make peace. The mother refused to push back her table and began to invite others to sit with her, all people who were not meant to be seated at the front. Mother of bride continued to sit there and talk s**t about her daughter, the bride, to anyone who would listen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Of course, typical hollywood hypocrite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142308.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The bride and her sisters did a strip tease/lap dance on the groom immediately following dinner. In front of his grandmother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142316.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My friend group and I talk about this wedding to this day, and probably will for the rest of our lives. The bride and groom decided to do things on a very, very small budget. Thats fine! Frugal weddings and budget weddings can be beautiful and nice! There is a difference between a frugal wedding and a cheap wedding, however, and this was cheap. For instance:
+
+- The wedding was in July. They decided to hold it in a non-air conditioned park shelter.
+
+- The decorations were actual trash. The bride decided me and the other bridesmaids needed tiny top hats, which she made from discarded styrofoam cups. Mine had ants in it.
+
+- She asked me to be the MOH. I was flattered but confused. Shed had three MOHs before me, and they all quit for various reasons, mostly baby daddy drama related.
+
+- She wanted live music but wouldnt pay a pianist. My friend Stephens sister said shed play the wedding march on a keyboard for 50 bucks. Said sister couldnt actually play the piano, but she did the prerecorded wedding march song. Nobody could tell the difference because the woman in charge of baking the cake got [drunk] the day before and was baking the cake in the non-air conditioned park shelters little kitchen while listening to the radio. Very loudly.
+
+- The bride and groom tried to write their own vows, got in a fight over it, and didnt tell the officiant until the day of that there were no vows. Fortunately, he was on it and had backup vows ready to go.
+
+- The bride hadnt tried on her dress, which shed bought from aliexpress, until the day of. It was way too small and we had to rip out the back and safety-pin in some satiny white fabric... which would have been great, if the dress hadnt been off-white. The groom made comments and it turned out that the whole dress thing was based on his mom offering to pay for the dress, then rescinding because she had to bail out his brother. My friend, instead of going to an actual store and buying a dress, picked one off of aliexpress.
+
+This would have been less weird if I hadnt been dress shopping with her like, three times because her mom couldnt/wouldnt pick out a mother of the bride dress.
+
+- The grooms ENTIRE FAMILY including his best man and his two groomsmen left right after the meal (spaghetti, green beans, and McDonalds orange drink) was served. The DJ (my friend Stephen and his Bose speakers) didnt know this and tried to announce the grooms dance with his mom... his mom had left. Apparently his family was furious that it was a dry venue. The only member of the family left was the ring bearer... who it turns out was forgotten. We had to take him home because his family wouldnt come get him.
+
+- The groom slept through the rehearsal and showed up to the wedding drunk.
+
+- We had to put another friend on bouncer duty because two of the brides aunts tried to walk away with the cash envelope. We gave him the envelope because he was the tallest and we figured he could outrun the aunts.
+
+- The brides brother was originally on envelope duty but we caught him taking a 50 out of the envelope, so we had to take it from him.
+
+- We had to politely inform the best man he couldnt smoke in the portajohn.
+
+- We had portajohns instead of actual working bathrooms.
+
+The worst, though, was the photographer. As MOH, I was informed day of that I had to keep the photographer 100 feet away from the ring bearer and flower girls at all times. He was a registered sex offender, but also the brides uncle, and he volunteered to do the pictures for free, so... he ended up using a telephoto lens. Because he couldnt get close enough to the wedding party to take the pictures.
+
+They divorced a couple months later after the house they were staying in burned to the ground. I have no idea to this day why they even got married.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142304.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. It was at a Holiday Inn, the groomsmen all were brightly colored prom vests and jeans. I was a +1 to one of the bridesmaids, I just wore a regular suit, nothing fancy. I was still dressed better than the groom and I got dirty looks for it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143699.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142317.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. I worked at a high-end golf club in Seattle that held extravagant weddings on a regular basis. This wedding in Samoa is perhaps my favourite:
+
+-All of the guys wore lime green vests and snapbacks that matched.
+
+-As mentioned in the contract, the wedding party must order food from the golf clubs restaurant. Instead, they order Dominos, and the pizza delivery man serves them pizza while they sit in a beautiful restaurant.
+
+-Right before the marriage, the bride and broom groom had a fistfight, which caused the ceremony to be postponed until bruises could be concealed with cosmetics.
+
+-A live band was engaged to perform at the event, but they were not fed. The lead vocalist decides to speed down the hill during their first break to fetch a drink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142318.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. There were no tables and chairs. Like none. They had an open bar but no chairs. Everyone had to put their drink on the ground and hold their plate to eat. It was crazy.
+
+Everyone just assumed that some sort of terrible thing happened where the tables and chair people didnt bring them but afterwards I asked her (the bride) what happened and she just said Oh we would have had to pay extra for that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143701.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142319.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. A friends wedding. She was walking down the aisle and had to pause to put out her cigarette. It was a small wedding and her friends thought it was hilarious. Married less than 2 years. She married him because he was in the military and she thought she was getting cash for life. He chose deployment to a war zone over staying with her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142320.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. I had one of my friends from highschool get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo wild wings and she had also invited the whole family (they where in on it) and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party) The even trashier part is they didnt like reserve the restaurant or anything so in his wedding photos (standing in front of the bathrooms by the way) you can see complete strangers coming out of the bathrooms.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142321.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. a coworker of mine got married in her driveway. on the invitation it said that everyone had to wear the color purple and they served KFC and hostess cupcakes for dessert. music was a boom box with the local light rock station playing. the worst part was that she let her dogs crap all over the driveway during the reception so no one ever picked up the poop. we all just kinda weirdly hopped around it in our variety of purple hues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143704.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142322.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Half Mormon half not Mormon wedding. The Mormon half was ultra Mormon, the non-Mormon half was a good amount recovering addicts. The mother got her daughters attention by just standing in front of whatever she was looking at including the groom, the photographer, the DJ, didn’t matter. Mom was also pretty high most of the wedding. 22 people in the bridal party, only 2 girls were the brides bridesmaids from before she met the Mormons. They kept getting frustrated because the Mormon bridesmaids kept pulling the bride away from them whenever they saw them all together alone. No alcohol served so the non-Mormon side went to the liquor store across the street and served their own. Cake smash fail, went straight into the bride’s hair. Mormon side started to talk crap about the drinkers and so the drinkers tried to pick fights with the Mormons. Wedding ended early, lots of tears. Such a hot mess wedding. The couple are both dentists.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142324.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. I went to a wedding in a funeral home once. Drove by it three times before realizing that is was in fact the correct address for the venue. Reception and ceremony were there.. completely dry wedding too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142325.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. I went to a wedding that had a Matrix theme. The groomsmen all wore floor length leather jackets and tiny sunglasses. The MC made a slideshow of images from the movie with the groomsmen’s faces badly photoshopped on. They insisted on calling each other “Neo” and “Amorpheous” while high-fiving each other. It was painful.
+
+There was a lot of tension at the wedding and it turned out that the groom had cheated on the bride a few weeks earlier but she had still decided to marry him. His family was really trashy and took the view that their son had cheated because the bride wasn’t good enough for him. The bride’s family was not trashy but pissed that she took him back and obviously hated the groom and his [lousy] family. The sister was the maid of honour and her speech was very sarcastic “just so glad to welcome you to the family… Greg” but it went over the head’s of the groom’s relatives. Everyone who knew the story was cringing.
+
+The groom’s Dad was loaded. He stood up and told a long and convoluted story about a wife giving teaspoons of sugar to God which made no sense and seemed to have very sexist undertones. They cut quickly to the music and the drunk groom’s father hit the dance floor and started grinding with some woman who wasn’t his wife. His wife sees and has a s**t fit and starts screaming at him. They won’t stop fighting so they cut the music and have the four piece, high school band play classical music badly. It includes a squeaky clarinet.
+
+Like a terrible foreshadowing from above, it starts pissing with rain and people start trying to politely leave. Last thing I see, is the groomsmen running to their cars with their trench coats folded up over their heads to protect their tiny sunglasses, while the band plays the squeaky Matrix theme song. It was amazing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142326.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. The bride had a little too much to drink. She was on her hands and knees throwing up on the front lawn of the reception hall while people were arriving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142327.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. I got married at a drive through in Las Vegas. The only photo I still had my seat belt on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142328.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Im so glad I can share this story again.
+
+In my early 20s a childhood friends sister was getting married. I was friendly with the family and all the siblings so I agreed to go. When I got the invitation it said on the invitation no gifts please just money. This didnt seem like the bride. She would be fine with either. I then get contacted by brides mother who tells me to get them a physical gift because the grooms mother is planning on taking any money they get as compensation for planning the wedding.
+
+I get to the venue which is a church but the wedding is not actually in the main part of the church. It is in the church basement. So bizarre. It looks like the set up of a high school dance. My friend whos sister is getting married tells me that her sister never got her dress altered so they had to use safety pins. They walk down the aisle to a Metallica song playing on a boom box.
+
+The ceremony was quick thankfully. No alcohol at the wedding. Ok, it is what it is. There was sparkling 99 cent grape juice at each table. I know it was 99 cents because the stickers were left on the bottles. Brides mother comes over to me and said I wouldnt eat the food. It was actually food that was supposed to be for meals on wheels and some of it was frozen leftovers of food that wasnt used. This was the grooms mothers idea since she was paying for the wedding.
+
+I gave the bride and groom my gift. They said thank you and seemed perfectly happy with getting a physical gift. Grooms mother comes over to me and asks me why I didnt get them cash or a check for a gift. That it said that right on the invitation. I played dumb and said I must have missed that. She was pissed.
+
+Lastly there was a guy there who took a liking to me. He was dressed in a white tank top, backwards hat and sweatpants. You know, some proper wedding attire... He told me he just got out of jail for drugs and that the bloods and the crips wanted him in their gangs. I told him thats interesting because hes white and I thought they didnt usually recruit white guys. He said they just really wanted him and that he hung out with black people all the time. He then told me that you could cure AIDS by injecting dish soap. It cleans out the blood. He asked for my phone number. I declined. Shockingly the marriage only lasted a few years. Groom has full custody of their two kids because bride is not capable of taking care of their children. She had social services called on her multiple times.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143710.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">44 Funny Photos to Enrich Your Day</a><br>
+## <a href="#linky13" id="linky12">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">44 Funny Photos to Enrich Your Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87143202.jpg" style="width:100%"><br>
 
@@ -785,97 +1003,7 @@ I dont think he would even care now (Im 33) but Ive just never had the right mom
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87143245.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">15 Random Facts To Fill Your Head With</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143075.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">Dead Dad Gets Last Laugh over Bill Collectors</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/034328/87143297/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043045/87143300/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043120/87143301/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043150/87143304/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043131/87143302/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043143/87143303/6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043155/87143305/7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043201/87143306/8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043213/87143308/9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043207/87143307/10.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">17 Pictures That Really Make you Think</a><br>
-
-<span style="font-size:4em">1. Picture of a man with Schizophrenia before and after his Lobotomy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Inside the bowl of the Stanley Cup, names engraved are members of the 1907 Montreal Wanderers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The back of the Great Sphinx of Giza’s head</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Inside airplane cargo hold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. shark meat sold at Japanese supermarket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Whale of a Problem” by Phillipines Greenpeace, rubbish & plastic waste, life-size, 2017</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143282.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. A Amur Tiger was spotted in Alaska in 2016. It likely walked from Russian to the United States using the Bering strait pass during winter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This Indian woman, who was born in Mumbai to typical Indian parents, has a ginger hair, freckles and white skin. She looks like a typical Gaelic woman and has spent her life being shunned and bullied because people think she’s diseased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. 19-year-old DJ Shipley during his time in ST10. A member of BUD/S Class 246 and one of the youngest men to ever graduate at 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Each of the 8 stadiums at the World Cup, in Qatar, will have large arrays of gigantic air conditioners to battle the very hot temperatures</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. People offering prayers at the Yamuna River, India, which is frothing from industrial waste</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Body riddled with parasites as a result of eating raw pork for 10 years</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The body of a murder victim prepared to look alive at his funeral.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Kamna Shastri is an Indian-American woman who was born with Albinism, pictured with her parents and brother. She has talked in detail that due to similar facial features with white people she and other Albino Indians pass as white and that she is treated as a white person in both America and India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143290.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. A Razer Kraken gaming headset have saved its wearer’s life by deflecting a stray bullet that came through their window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143291.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Guard armed with suppressed PKP during Boris Johnson’s visit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143292.png" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">22 Times Life Flipped People the Bird</a><br>
+## <a href="#linky15" id="linky14">22 Times Life Flipped People the Bird</a><br>
 
 <span style="font-size:4em">1. “Well this happened at work last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142337.jpg" style="width:100%"><br>
 
@@ -921,63 +1049,113 @@ I dont think he would even care now (Im 33) but Ive just never had the right mom
 
 <span style="font-size:4em">22. “I drove my phone over.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142358.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">29 Things You Definitely Don’t Want</a><br>
+## <a href="#linky16" id="linky15">17 Pictures That Really Make you Think</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141902.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Picture of a man with Schizophrenia before and after his Lobotomy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141877.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Inside the bowl of the Stanley Cup, names engraved are members of the 1907 Montreal Wanderers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141878.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The back of the Great Sphinx of Giza’s head</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141879.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Inside airplane cargo hold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141880.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. shark meat sold at Japanese supermarket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141881.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Whale of a Problem” by Phillipines Greenpeace, rubbish & plastic waste, life-size, 2017</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143282.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141883.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A Amur Tiger was spotted in Alaska in 2016. It likely walked from Russian to the United States using the Bering strait pass during winter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141882.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This Indian woman, who was born in Mumbai to typical Indian parents, has a ginger hair, freckles and white skin. She looks like a typical Gaelic woman and has spent her life being shunned and bullied because people think she’s diseased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141876.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. 19-year-old DJ Shipley during his time in ST10. A member of BUD/S Class 246 and one of the youngest men to ever graduate at 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143284.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141884.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Each of the 8 stadiums at the World Cup, in Qatar, will have large arrays of gigantic air conditioners to battle the very hot temperatures</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143285.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141885.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. People offering prayers at the Yamuna River, India, which is frothing from industrial waste</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143286.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141886.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Body riddled with parasites as a result of eating raw pork for 10 years</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143287.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141887.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143288.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141888.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The body of a murder victim prepared to look alive at his funeral.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143289.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141875.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Kamna Shastri is an Indian-American woman who was born with Albinism, pictured with her parents and brother. She has talked in detail that due to similar facial features with white people she and other Albino Indians pass as white and that she is treated as a white person in both America and India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143290.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141889.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. A Razer Kraken gaming headset have saved its wearer’s life by deflecting a stray bullet that came through their window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143291.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141890.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Guard armed with suppressed PKP during Boris Johnson’s visit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143292.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141891.jpg" style="width:100%"><br>
+## <a href="#linky17" id="linky16">Dead Dad Gets Last Laugh over Bill Collectors</a><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141892.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/034328/87143297/1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141893.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043045/87143300/2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141894.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043120/87143301/3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141895.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043150/87143304/4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141896.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043131/87143302/5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141897.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043143/87143303/6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141898.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043155/87143305/7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141899.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043201/87143306/8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141900.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043213/87143308/9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141901.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043207/87143307/10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141903.jpg" style="width:100%"><br>
+## <a href="#linky18" id="linky17">25 Old School Things Kids Today Would Never Understand</a><br>
+
+<span style="font-size:4em">1. Organizing to meet someone on a landline and actually having to turn up on time or they wouldn’t know where you are because you have no way of contacting them.-u/withereddesign</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Recording music from the radio-u/AndNoc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Waiting for your friend to get home to call them.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I recently had to explain what “changing the channel” meant to my small kid because he only knows streaming. We’ve already covered CDs, VCRs, and what it means to roll down a car window. It was a little rough -u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. It’s not working, cuz it’s not on Channel 3-u/moridin82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Calling a girl and her dad answers the phone. That sh*t was rough, kids.-u/clydem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Playing the same level on a game over and over because there are no saves-u/drevilishrjf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Video rental stores with adult sections-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Knocking on your friends door to see if they could come out and play.-u/whit3lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The joys of Saturday morning cartoons-u/GallicPontiff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Using a road atlas to get somewhere on vacation-u/siriusonbroadripple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Rewinding VHS or a cassette before returning.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143605.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. That Lite Brite was peak technology-u/shanecdotes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. TV going off-the-air at night.-u/J_David_Settle_1973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Getting to be goofy and awkward and not have to worry about it ending up online for everyone to see.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Walking to Blockbuster and spending an hour trying to pick a movie everyone agrees on-u/sugarfairymagic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Running to go to the bathroom during a commercial break-u/OptimistPrime527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. How exciting it was to open a new box of cereal to see which toy you got and trade with your mates, usually pencil toppers or bicycle reflectors, etc, lol-u/WishUponAStar35</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. How we had to plan our TV watching around a printed schedule. No VHS, no DVR.-u/thorndike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. You needed a light accessory for your Gameboy because those suckers didnt have back lighting. And to trade Pokemon, you needed to use cables. CABLES.-u/gracefultime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The sound on the phone when somebody was using the internet.-u/Poops_McClanahan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Going on road trips as a kid where the only form of entertainment was some sort of game played amongst your siblings in the back seat involving the license plates of other passing cars. On our car trip to Disney/FL from central PA me and my brother had a competition on who could write down the most license plate numbers… we ended in the thousands but for the life of me I can’t remember who “won” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Columbia House Records club-u/passesopenwindows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143619.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. Clackers. They were colorful glass (yes glass) balls at the ends of a piece of rope with a ring in the middle to put your finger through. You would move your hand up and down, and the balls would smack into each other, making a “Clack -Clack-Clack” sound (hence the name). They were eventually taken off the market since the glass balls could shatter and kids were getting injured by the flying glass shards. They were a big fad toy for a while there. They came back later with plastic balls.-u/lanky_planky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. How much time we spent playing outside, but not in organized sports. Pickup kickball in the street where you yell “CAR!” to break up the game briefly for a car driving through. Coming home covered in dirt after disappearing for five hours. We all made fun of how we were called by our parents. We would explore and poke around. Dig up worms, chase butterflies, freak out over finding a dead baby bird, skin our knees at least twice a summer and entertain ourselves for hours.-u/GoddessOfOddness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143621.jpg" style="width:100%"><br>
 
