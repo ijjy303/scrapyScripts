@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/13/2022-04:11:31
+Last updated: 04/13/2022-05:11:31
 <br>
 ## <a href="#linky2" id="linky1">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
 
@@ -67,129 +67,241 @@ Last updated: 04/13/2022-04:11:31
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">32 WTF Ways People Almost Died</a><br>
+## <a href="#linky3" id="linky2">Dead Dad Gets Last Laugh over Bill Collectors</a><br>
 
-<span style="font-size:4em">1. I snorkeled too far out into the ocean, and it wasnt because it was a riptide, I just got distracted by pretty fish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142864.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/034328/87143297/1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Went to go visit a friend in Gloucester Mass in winter back in high school far from my home. I was planning on staying overnight at their house but their mother who I now know has mental health problems wouldn’t even let me in the house because the father wasn’t home working a night shift. Friend said sorry bro and closed the door. Almost froze to death waiting outside in 10 degree F at night. A cab driver saw me slumped on a bench and woke me up. Let me get warm and drive around in the passenger seat while he picked up drunk people out on the town all night. When he finished his shift he dropped me off at the train station and handed me 7 bucks for the fare. Dude probably saved my life and I can’t even remember his name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142859.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043045/87143300/2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I walked into a back room freezer of a grocery store. The huge door was designed to close automatically. I knew this and went in and did what I was there to do. After 30 seconds, I couldn’t catch my breath. I thought maybe I was just working to hard so I stopped and took several huge breaths, nothing. I felt like I was drowning out of water. I had to move as quickly as I could back outside of the freezer and feel to my knees gasping when I got out. It was only afterwards I realized for some dumb reason someone kept open dry ice in a cart inside of the freezer.
-
-Dry ice removes oxygen out of the air in enclosed spaces. I almost died from lack of oxygen and would have been an icicle when they found me.
-
-Don’t f**k with dry ice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142860.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043120/87143301/3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Being sleepy on the road. Dont. Find a spot and sleep a bit.
-
-Seriously, it happened to me twice. You think you wont fall asleep, but you will.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142861.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043150/87143304/4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Went to Grand Canyon and tried to be funny and acted like I was gonna slip,[it was snowing], and ended up almost really slipping and falling. Some random guy scolded me like a little kid because he got more scared than me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142862.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043131/87143302/5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Stuck my head out the car window bc I wanted to see why dogs loved it. My grandpa didnt notice, rolled up the window, and I choked. He freaked out when he heard the cat like noises (ironic) I was making while my neck was trying to squeeze through the small opening of the window, but kept raising the window in his panic. Eventually he got it and I was left with a red mark on my neck and no closer to understanding dogs.
-
-My grandpa passed earlier this year so its a nice way to remember him and I know he get a chuckle to know people found it funny.
-
-it was meant to be funny so dont feel bad for laughing. My lil sis was in the seat next to me when this happened and she was laughing too, funny then, funny now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142863.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043143/87143303/6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I was in 2nd or 3rd grade, I was getting off the school bus and was walking around to the other side to my driveway. Suddenly the bus driver hits the horn, scared the hell out of me and I stopped at the edge of the front of a bus and a dump truck good speeding around. I dunno if the dump truck driver didnt see the lights of the bus or whatever but that driver made a dumb mistake that could have cost me my life. Thinking about it my older sister was up at our driveway waiting for me, probably would have messed her up for life.
-
-After that the school district changed bus routes to avoid students having to cross the road to get on or off the bus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142865.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043155/87143305/7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Waited too long to go to the hospital (pre-Covid) I thought I just had a cold. Husband said, go to the doctor. I said no. Three days later, still not great. Husband said, go to urgent care. I said I will if I dont feel better tomorrow. Next day, I tell husband, I need to go to the ER. A collapsed lung due to pneumonia.Three days in hospital plus breathing issues for the next year. Moral: Listen to your spouse. And yeah, got a whole lot of I told you sos. Deserved every one of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142866.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043201/87143306/8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. While drunk, I sat down outside...to rest for a moment...on a freezing cold Winters night. Fortunately, a passerby noticed me and encouraged me to get inside. I figure I was probably there dozing for several minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142867.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043213/87143308/9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I commented on a controversial post on reddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142868.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043207/87143307/10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Taking apart a dryer completely to clean it out and get it running smoothly again, dropped a screwdriver onto an exposed wire… huge arc and zap sound. I had left it plugged in (up until I realized the incredibly smooth-brained move I had pulled)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142869.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">25 Old School Things Kids Today Would Never Understand</a><br>
 
-<span style="font-size:4em">12. Smoked cigarettes for 23 years. Had a heart attack at 39. Pretty f**kin stupid if you ask me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142870.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Organizing to meet someone on a landline and actually having to turn up on time or they wouldn’t know where you are because you have no way of contacting them.-u/withereddesign</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I almost drowned in the sea as a kid. A current pushed me away from the shore. Lifeguards saved me and were slapping my face. I thought it was a punishment but they were resuscitating me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142871.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Recording music from the radio-u/AndNoc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Started hiccuping with peanut butter in my mouth. Peanut butter went down the wrong tube, I started choking, but couldn’t cough bc these hiccups wouldn’t f**king stop. Finally leaned over and managed to cough it out, but it was a close call</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142872.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Waiting for your friend to get home to call them.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Im Italian but have been living in the UK for two years
-
-Guess who looked at the wrong side of the road while a Bus was coming trough?
-
-Everytime I went back to Italy I risked my life for the same reason by getting used to drive to the left and viceversa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142873.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I recently had to explain what “changing the channel” meant to my small kid because he only knows streaming. We’ve already covered CDs, VCRs, and what it means to roll down a car window. It was a little rough -u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Swam under a shipyard pier at night (solid concrete above me) and lost my sense of direction. Got lucky and found my way out.
-
-To add more detail - A friend and I were assault swimmers attacking a ship for a training exercise at night. We would swim from pier pylon to pylon underwater. Take a breath, go under, push off, and swim ~20 to the next pylon, surface and repeat. My mask broke and I was doing it with my eyes closed due to having contacts at the time. One time I just kept swimming and felt like I missed the pylon. When I went to slowly broach the surface I found myself under the concrete above. I had no idea the pier was even built like that. Put my hands up and oriented myself. It looked dark in all directions but my gut told me to the right is where I came from. After that, I stayed on the surface! Cheers!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142874.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. It’s not working, cuz it’s not on Channel 3-u/moridin82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Came very close (about two inches) to backing into a warehouse rack full of two ton coils of sheet metal when I didnt realise that my forklift was in reverse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142875.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Calling a girl and her dad answers the phone. That sh*t was rough, kids.-u/clydem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I stuck my head in a random beaker to sniff something in chem lab, I have been very good about wafting since</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142876.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Playing the same level on a game over and over because there are no saves-u/drevilishrjf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Yelling at someone in the hood, they tried to run me over with their car and then got out and chased me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142877.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Video rental stores with adult sections-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Grown adult and choked on mozzarella cheese. Was only alone for 20 minutes. Cant imagine the obituary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142879.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Knocking on your friends door to see if they could come out and play.-u/whit3lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Drove on an interstate during a hurricane and watched all the cars around me get submerged</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142880.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The joys of Saturday morning cartoons-u/GallicPontiff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Literally today, getting undressed to shower and as my pants fell to my ankles I went to step out of them and tripped, almost walloped my head on the sink</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142881.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Using a road atlas to get somewhere on vacation-u/siriusonbroadripple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Unplugging the washing machine with wet hands. My hand slipped onto the prongs while they were still partially in the outlet, and I think my heart stopped for a second before I yanked the plug free. Definitely do not recommend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142882.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Rewinding VHS or a cassette before returning.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143605.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. Fell through the ice. The great lakes freeze partially in the winter. Far out there was an ice ridge, and on the other side was this clear glassy ice as far out as I could see. I climbed over the ridge to take a leak in privacy, but it wasnt solid. Went through. Wife had to put down our first infant son to fish me out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142883.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. That Lite Brite was peak technology-u/shanecdotes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143609.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Choked on a small potato at the Pizza Hut salad bar. Completely lodged in my throat. I raced to the loo and shoved my fingers down my throat, and it popped out. Walked back to my table and finished my salad. I was with my boyfriend. He did nothing. I grabbed the waitress’s arm. All she did was say “is she okay?” to my boyfriend. Hence running to the loo to deal with it myself!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142884.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. TV going off-the-air at night.-u/J_David_Settle_1973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Choked on a life saver.
-
-No the hole In the center is not for breathing. Life Savers have holes in them because the inventor, Clarence Crace wanted to create a unique candy. Back in 1912 (109 years ago)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142885.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Getting to be goofy and awkward and not have to worry about it ending up online for everyone to see.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143611.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Choked on a hamburger in 8th grade beside my old friend who was too busy flirting until someone else saved me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142886.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Walking to Blockbuster and spending an hour trying to pick a movie everyone agrees on-u/sugarfairymagic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. I was very small (probably around 5) and when my mum wasn’t looking I tied some clothes around my neck and hooked it to the stair railings, then tried to jump off the railings to see if they would hold me. Fortunately I was too small to climb over the railings and my mum found me before I would’ve jumped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142887.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Running to go to the bathroom during a commercial break-u/OptimistPrime527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Almost got my head squashed by a car due to a small pebble making me fall on the main road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142888.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. How exciting it was to open a new box of cereal to see which toy you got and trade with your mates, usually pencil toppers or bicycle reflectors, etc, lol-u/WishUponAStar35</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. I let my anger get the best of me and DID NOT hold the piece of wood against the mitre saw wall. (For those that dont know if you dont do that it will without fail take the wood and catch it on one of the blade parts sending you into it with the wood)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142889.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. How we had to plan our TV watching around a printed schedule. No VHS, no DVR.-u/thorndike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. Climbed into one of those power supply units, that supply power to the whole road, whilst retrieving a ball.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142890.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. You needed a light accessory for your Gameboy because those suckers didnt have back lighting. And to trade Pokemon, you needed to use cables. CABLES.-u/gracefultime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. Crashed my bike into a parked car</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142891.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. The sound on the phone when somebody was using the internet.-u/Poops_McClanahan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143617.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">17 Pictures That Really Make you Think</a><br>
+<span style="font-size:4em">22. Going on road trips as a kid where the only form of entertainment was some sort of game played amongst your siblings in the back seat involving the license plates of other passing cars. On our car trip to Disney/FL from central PA me and my brother had a competition on who could write down the most license plate numbers… we ended in the thousands but for the life of me I can’t remember who “won” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Picture of a man with Schizophrenia before and after his Lobotomy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143280.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Columbia House Records club-u/passesopenwindows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143619.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Inside the bowl of the Stanley Cup, names engraved are members of the 1907 Montreal Wanderers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143277.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Clackers. They were colorful glass (yes glass) balls at the ends of a piece of rope with a ring in the middle to put your finger through. You would move your hand up and down, and the balls would smack into each other, making a “Clack -Clack-Clack” sound (hence the name). They were eventually taken off the market since the glass balls could shatter and kids were getting injured by the flying glass shards. They were a big fad toy for a while there. They came back later with plastic balls.-u/lanky_planky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The back of the Great Sphinx of Giza’s head</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143278.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. How much time we spent playing outside, but not in organized sports. Pickup kickball in the street where you yell “CAR!” to break up the game briefly for a car driving through. Coming home covered in dirt after disappearing for five hours. We all made fun of how we were called by our parents. We would explore and poke around. Dig up worms, chase butterflies, freak out over finding a dead baby bird, skin our knees at least twice a summer and entertain ourselves for hours.-u/GoddessOfOddness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Inside airplane cargo hold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143279.jpg" style="width:100%"><br>
+## <a href="#linky5" id="linky4">27 Memes That Will Make You Think "Truth"</a><br>
 
-<span style="font-size:4em">5. shark meat sold at Japanese supermarket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143281.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Whale of a Problem” by Phillipines Greenpeace, rubbish & plastic waste, life-size, 2017</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143282.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A Amur Tiger was spotted in Alaska in 2016. It likely walked from Russian to the United States using the Bering strait pass during winter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143283.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This Indian woman, who was born in Mumbai to typical Indian parents, has a ginger hair, freckles and white skin. She looks like a typical Gaelic woman and has spent her life being shunned and bullied because people think she’s diseased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143276.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. 19-year-old DJ Shipley during his time in ST10. A member of BUD/S Class 246 and one of the youngest men to ever graduate at 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143284.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Each of the 8 stadiums at the World Cup, in Qatar, will have large arrays of gigantic air conditioners to battle the very hot temperatures</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143285.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. People offering prayers at the Yamuna River, India, which is frothing from industrial waste</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143286.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Body riddled with parasites as a result of eating raw pork for 10 years</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143287.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143288.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The body of a murder victim prepared to look alive at his funeral.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143289.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Kamna Shastri is an Indian-American woman who was born with Albinism, pictured with her parents and brother. She has talked in detail that due to similar facial features with white people she and other Albino Indians pass as white and that she is treated as a white person in both America and India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143290.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A Razer Kraken gaming headset have saved its wearer’s life by deflecting a stray bullet that came through their window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143291.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Guard armed with suppressed PKP during Boris Johnson’s visit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143292.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142977.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">44 Funny Photos to Enrich Your Day</a><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142990.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142992.png" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">29 Things You Definitely Don’t Want</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141892.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141894.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141895.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141896.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141897.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141898.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141903.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">21 Ruthless Facebook Comments</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143736.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">44 Funny Photos to Enrich Your Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87143202.jpg" style="width:100%"><br>
 
@@ -279,167 +391,145 @@ No the hole In the center is not for breathing. Life Savers have holes in them b
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87143245.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">27 Memes That Will Make You Think "Truth"</a><br>
+## <a href="#linky9" id="linky8">Dudes Post Their Wins Online and We Love to See It</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142974.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015750/87144024/brain.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142967.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015753/87144025/coffee.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142968.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015801/87144026/cup.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142969.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015805/87144027/dad.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142970.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015812/87144028/dog.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142971.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015816/87144029/duck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142972.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015918/87144040/swim.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142966.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015823/87144030/egg.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142978.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015828/87144031/elden.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142973.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015834/87144032/garfield.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142975.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015839/87144033/gator.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142976.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015845/87144034/hospital.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142977.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015851/87144035/kanye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142979.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015856/87144036/macho.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142980.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015902/87144037/river.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142981.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015907/87144038/safe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142982.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015913/87144039/skate.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142983.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015924/87144041/taco.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142984.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015929/87144042/vet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142985.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015936/87144043/wwe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142986.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">15 Random Facts To Fill Your Head With</a><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142987.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142988.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142989.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142990.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142991.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142992.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143066.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">29 Things You Definitely Don’t Want</a><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141902.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141877.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141878.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141879.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141880.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141881.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141883.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141882.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141876.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">31 Real Stories Almost Too Strange To Believe</a><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141884.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. During my sophomore year of high school, my sister and her friend tried to set me up on a blind date with the guy who mowed her parents lawn. It never worked out, and we never met. Two years later, during senior year, I met and started dating the guy who Id eventually marry. A couple years later, we discovered that we were supposed to have been each other’s blind date sophomore year. Well have been together 17 years this March!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142935.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141885.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My father had a heart attack many years ago, and I showed up to the hospital at 3 a.m. Given the time and the fact that he was in ICU, I initially wasn’t allowed in. However, I was finally let in by a nurse who calmed me down and allowed me to see my father. He was so kind to our family throughout my dads hospital stay. About six months later, my paternal grandmother was in the ICU for a medical issue, and again, we were cared for by this nurse. About a year later, I received a call from my dad telling me to turn on CNN. Turns out, the nurse was Charles Cullen, who famously confessed to murdering up to 40 patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141886.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My boyfriend and I moved into the same apartment my grandparents had lived in after World War II. We didn’t know until my mum was going through their old stuff to make a Remembrance Day piece for her front hall and found an old letter addressed to them at my address.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142937.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141887.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I accidentally set my best friend up on a blind date with her ex-husband. I was going out on a first date with a guy, and he asked if I had a friend for his friend, so I invited my best friend along...and then the guys showed up, their jaws dropped, and we had many margaritas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142938.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141888.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My brain associates people with colors when I first meet them. The only color I ever pay attention to is yellow. Yellow people are usually really s**y people that I dont like. Its alarmingly accurate.Edit: RIP my inbox. I tried to answer some questions today but cant get to all of them. To answer the repeating ones: I only get colors in person unless Im watching videos or seeing pictures of myself. Im purple. Generally I gravitate towards people in the cooler color spectrum. My wife is coral and is only one of two corals Ive met. My mom is most unique in that I pick up earth tones with her and shes the only person Ive met that I get multiple colors from. Yes to a certain extent there could be some self-fulfilling prophecy going on with my assumptions, though the color pairing is very real and annoying. I realize my comment was accidentally racist, but we all know what Im meaning lol. Thanks for all the interest, glad Im not as weird as I thought!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142939.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141875.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. When I was around 8, my dog followed my dad to wait with me for my school bus. While they were waiting, my dad saw Fluffy get hit by a truck, so he took him and buried him. We then went out of town for the weekend. But on Sunday evening when we got home, Fluffy was standing on our porch! Dad couldn’t believe it and told us, I buried him on Friday! Turns out, Fluffy had just been knocked out cold, so he rose from the dead and waited on us to come home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142940.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141889.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I have full-spectrum synaesthesia, meaning that all of my senses are crossed with one another. As a result, I can quite literally taste the rainbow, I can see why kids love the flavor of Cinnamon Toast Crunch, and whenever The Rock flexes, I can smell what hes cooking.No, it doesnt make life more interesting for me. Keep in mind, Ive never known anything different.Yes, it does have some small benefits. The condition often helps me with any writing that I do.No, it isnt a superpower, despite what you might have seen on whatever show that got it wrong.Yes, I get asked these questions whenever I mention having the condition.TL;DR: According to some, my life is a permanent acid trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142941.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141890.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I was eating lunch at Wendys when Bill Murray sat down at my table, stole a fry, dipped it into my Frosty, and ate it. He then looked at me and said, Nobodys gonna believe you, and walked away.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/015138/87143193/QG2eBXsl.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141891.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I can change my eye color between brown and green at will. Takes a minute but I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142942.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141892.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The first time I ever went to the casino, on the first slot machine I ever touched, I bet 80 cents and won a jackpot of $800. It paid rent that month.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142943.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141893.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I went to the hospital once with, what felt like, really bad period cramps. They cut me open and pulled out an 8lb human being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142944.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141894.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I went from homeless drug addict to a director position at a tech company in a span of 15 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142945.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141895.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A couple of years ago, I was flat broke and in a store spending my last couple of bucks on ramen to get me through pay day. The lottery happened to be high, so I decided to spend my literal last $2 on a ticket. Well, this little old lady walked up behind me, and since the store was packed, I let her go ahead of me in the line. She purchased one quick pick lottery ticket. I then purchased my lottery ticket and ramen and went home. A couple of days later, I saw her on the news: She was the only winner of a $90 million jackpot. If I hadnt let her in front of me, I wouldve purchased that ticket, and Id be millionaire right now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142946.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141896.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. I drove 14 hours one way just to go to the International SPAM Museum. Like that was the entire point of the trip. Nothing else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141897.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I can’t get brain freeze. Not sure how unbelievable that is, but most people are pretty confused by it. I have some extra bone growth, called a torus, that presses up against my soft palate and prevents me from getting brain freeze.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141898.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. I have seen my own intestine.Since somebody asked: Semi-Truck blew a red light as I was pulling out of the hospital I worked at. The ED crew ran out, shoveled me off the asphalt, and ran me inside. If it had been anywhere else Id have bled out before an ambulance arrived. It broke my left everything, including ten ribs, many if which wound up in my lung, one of which is still unaccounted for. I was fortunate enough not to suffer any spinal damage, but I did lose my left leg below the knee. Ive made a mostly full recovery, less the.leg and significant lung functionality.If you think about how a grape splits open when you squeeze it too hard youll have the right idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141899.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I am completely unable to create new images in my head and everything I picture I have to relate to something I know. Usually when reading a book I picture characters as famous people that they remind me of and sometimes they do not fit remotely. The weirdest example is when reading A Song of Ice and Fire I can only picture Wyman Manderly as Hedonismbot from Futurama.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141900.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I used to be blind. I was not born blind, I am not blind now (although my eyesight does suck), but - due to a medical procedure, no less - I was for a while completely blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141901.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. I was born blind but now I’m a pretty successful painter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141903.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. I was once in a casino on a boat on a skyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142953.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">21 Ruthless Facebook Comments</a><br>
+<span style="font-size:4em">21. I have been struck by lightning, bitten by a copper head, burned in a house fire, broken six ribs, lost most of my left lung, and dislocated my eyeball. All in the same year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143738.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. I was once picked up by a large bird when I was younger. (Around 3 ) Lifted me at least 4 feet off the ground then dropped me and flew away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143718.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. I once achieved over 300,000 point score (not lines) on Tetris, on the original Gameboy. The little winning rocket gets bigger every 50,000 points over 150,000 and after 300,000 it looks like a giant p**is soaring up the screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143726.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I once walked over a mile during a snow storm at night down a dark country road while being pursued by a pack of coyotes with only a whistle and a road flare to protect myself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143719.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I can name the first 493 pokemon in order and have quite literally caught them all. After black and white came out I was too old to dedicate that much time into knowing the rest lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143720.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. My grandmother was traveling to the Philippines with her sister who was ill. When they got off the plane and went into JFK airport, Harry Connick Jr. helped pick her up after she collapsed onto the floor. My grandmother looked up and said, You look a lot like Harry Connick Jr. He responded, Thats because I am Harry Connick Jr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143721.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. My wife is a childcare provider, and some years ago one of her clients was a couple with a little girl about 2 years old. They dressed her up as a prisoner in an orange jumpsuit with makeup eyebrows and scars on her face. She became the non-crying half of the timeout changes a man meme. The crying boy in the picture is a neighbor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143722.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. When I was a baby, I was run over by a car. Not just hit, but completely run over. The wheel went up my body and thankfully veered off before running over my skull.I have some scars and possibly my epilepsy was caused by this. Not sure though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143723.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. I was eating at Burger King with my Dad in early 1986 when I saw Herb. I missed out on winning $5,000 for two reasons:I was 15, so they would have given the prize to my Dad anyway.My Dad was a malignant narcissist, and he would have kept the money.Also one bonus reason:I was too chicken to say, Hey, are you Herb? He stopped and stood there for a while, then he turned and left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143724.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. My uncle is Bill Gotez. Its pronounced Gates. I told some people at my elementary school and one of the teachers called a parent teacher meeting to talk about me lying all the time. My mom came in and backed up my story. At the time I didnt even know who Bill Gates was and didnt understand why no one believed me.Uncle Bill isnt very good with computers. In my early teens I would give him tech support.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143717.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. My father was a communist who tried starting a communist revolution multiple times throughout his 20s and 30s, while my mother was an anti-communist refugee from the then Soviet Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143736.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">30 Trashy Things People Have Seen At Weddings</a><br>
+## <a href="#linky12" id="linky11">30 Trashy Things People Have Seen At Weddings</a><br>
 
 <span style="font-size:4em">1. I was actually the bartender but it was a hoot. 1st, wedding was outside and it stormed violently. Groom was hammered pre wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women in the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143683.jpg" style="width:100%"><br>
 
@@ -597,213 +687,43 @@ I gave the bride and groom my gift. They said thank you and seemed perfectly hap
 
 Lastly there was a guy there who took a liking to me. He was dressed in a white tank top, backwards hat and sweatpants. You know, some proper wedding attire... He told me he just got out of jail for drugs and that the bloods and the crips wanted him in their gangs. I told him thats interesting because hes white and I thought they didnt usually recruit white guys. He said they just really wanted him and that he hung out with black people all the time. He then told me that you could cure AIDS by injecting dish soap. It cleans out the blood. He asked for my phone number. I declined. Shockingly the marriage only lasted a few years. Groom has full custody of their two kids because bride is not capable of taking care of their children. She had social services called on her multiple times.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143710.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">15 Random Facts To Fill Your Head With</a><br>
+## <a href="#linky13" id="linky12">17 Pictures That Really Make you Think</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143076.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Picture of a man with Schizophrenia before and after his Lobotomy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143062.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Inside the bowl of the Stanley Cup, names engraved are members of the 1907 Montreal Wanderers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143063.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The back of the Great Sphinx of Giza’s head</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143064.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Inside airplane cargo hold</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143065.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. shark meat sold at Japanese supermarket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143066.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Whale of a Problem” by Phillipines Greenpeace, rubbish & plastic waste, life-size, 2017</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143282.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143067.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A Amur Tiger was spotted in Alaska in 2016. It likely walked from Russian to the United States using the Bering strait pass during winter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143068.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This Indian woman, who was born in Mumbai to typical Indian parents, has a ginger hair, freckles and white skin. She looks like a typical Gaelic woman and has spent her life being shunned and bullied because people think she’s diseased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143069.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. 19-year-old DJ Shipley during his time in ST10. A member of BUD/S Class 246 and one of the youngest men to ever graduate at 17</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143284.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143070.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Each of the 8 stadiums at the World Cup, in Qatar, will have large arrays of gigantic air conditioners to battle the very hot temperatures</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143285.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143071.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. People offering prayers at the Yamuna River, India, which is frothing from industrial waste</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143286.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143072.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Body riddled with parasites as a result of eating raw pork for 10 years</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143287.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143073.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143288.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143074.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The body of a murder victim prepared to look alive at his funeral.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143289.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143075.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Kamna Shastri is an Indian-American woman who was born with Albinism, pictured with her parents and brother. She has talked in detail that due to similar facial features with white people she and other Albino Indians pass as white and that she is treated as a white person in both America and India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143290.png" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Dudes Post Their Wins Online and We Love to See It</a><br>
+<span style="font-size:4em">16. A Razer Kraken gaming headset have saved its wearer’s life by deflecting a stray bullet that came through their window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143291.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015750/87144024/brain.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Guard armed with suppressed PKP during Boris Johnson’s visit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143292.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015753/87144025/coffee.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015801/87144026/cup.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015805/87144027/dad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015812/87144028/dog.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015816/87144029/duck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015918/87144040/swim.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015823/87144030/egg.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015828/87144031/elden.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015834/87144032/garfield.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015839/87144033/gator.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015845/87144034/hospital.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015851/87144035/kanye.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015856/87144036/macho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015902/87144037/river.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015907/87144038/safe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015913/87144039/skate.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015924/87144041/taco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015929/87144042/vet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015936/87144043/wwe.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">31 Real Stories Almost Too Strange To Believe</a><br>
-
-<span style="font-size:4em">1. During my sophomore year of high school, my sister and her friend tried to set me up on a blind date with the guy who mowed her parents lawn. It never worked out, and we never met. Two years later, during senior year, I met and started dating the guy who Id eventually marry. A couple years later, we discovered that we were supposed to have been each other’s blind date sophomore year. Well have been together 17 years this March!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My father had a heart attack many years ago, and I showed up to the hospital at 3 a.m. Given the time and the fact that he was in ICU, I initially wasn’t allowed in. However, I was finally let in by a nurse who calmed me down and allowed me to see my father. He was so kind to our family throughout my dads hospital stay. About six months later, my paternal grandmother was in the ICU for a medical issue, and again, we were cared for by this nurse. About a year later, I received a call from my dad telling me to turn on CNN. Turns out, the nurse was Charles Cullen, who famously confessed to murdering up to 40 patients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My boyfriend and I moved into the same apartment my grandparents had lived in after World War II. We didn’t know until my mum was going through their old stuff to make a Remembrance Day piece for her front hall and found an old letter addressed to them at my address.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I accidentally set my best friend up on a blind date with her ex-husband. I was going out on a first date with a guy, and he asked if I had a friend for his friend, so I invited my best friend along...and then the guys showed up, their jaws dropped, and we had many margaritas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My brain associates people with colors when I first meet them. The only color I ever pay attention to is yellow. Yellow people are usually really s**y people that I dont like. Its alarmingly accurate.Edit: RIP my inbox. I tried to answer some questions today but cant get to all of them. To answer the repeating ones: I only get colors in person unless Im watching videos or seeing pictures of myself. Im purple. Generally I gravitate towards people in the cooler color spectrum. My wife is coral and is only one of two corals Ive met. My mom is most unique in that I pick up earth tones with her and shes the only person Ive met that I get multiple colors from. Yes to a certain extent there could be some self-fulfilling prophecy going on with my assumptions, though the color pairing is very real and annoying. I realize my comment was accidentally racist, but we all know what Im meaning lol. Thanks for all the interest, glad Im not as weird as I thought!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When I was around 8, my dog followed my dad to wait with me for my school bus. While they were waiting, my dad saw Fluffy get hit by a truck, so he took him and buried him. We then went out of town for the weekend. But on Sunday evening when we got home, Fluffy was standing on our porch! Dad couldn’t believe it and told us, I buried him on Friday! Turns out, Fluffy had just been knocked out cold, so he rose from the dead and waited on us to come home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I have full-spectrum synaesthesia, meaning that all of my senses are crossed with one another. As a result, I can quite literally taste the rainbow, I can see why kids love the flavor of Cinnamon Toast Crunch, and whenever The Rock flexes, I can smell what hes cooking.No, it doesnt make life more interesting for me. Keep in mind, Ive never known anything different.Yes, it does have some small benefits. The condition often helps me with any writing that I do.No, it isnt a superpower, despite what you might have seen on whatever show that got it wrong.Yes, I get asked these questions whenever I mention having the condition.TL;DR: According to some, my life is a permanent acid trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I was eating lunch at Wendys when Bill Murray sat down at my table, stole a fry, dipped it into my Frosty, and ate it. He then looked at me and said, Nobodys gonna believe you, and walked away.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/015138/87143193/QG2eBXsl.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I can change my eye color between brown and green at will. Takes a minute but I can.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The first time I ever went to the casino, on the first slot machine I ever touched, I bet 80 cents and won a jackpot of $800. It paid rent that month.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I went to the hospital once with, what felt like, really bad period cramps. They cut me open and pulled out an 8lb human being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I went from homeless drug addict to a director position at a tech company in a span of 15 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A couple of years ago, I was flat broke and in a store spending my last couple of bucks on ramen to get me through pay day. The lottery happened to be high, so I decided to spend my literal last $2 on a ticket. Well, this little old lady walked up behind me, and since the store was packed, I let her go ahead of me in the line. She purchased one quick pick lottery ticket. I then purchased my lottery ticket and ramen and went home. A couple of days later, I saw her on the news: She was the only winner of a $90 million jackpot. If I hadnt let her in front of me, I wouldve purchased that ticket, and Id be millionaire right now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I drove 14 hours one way just to go to the International SPAM Museum. Like that was the entire point of the trip. Nothing else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I can’t get brain freeze. Not sure how unbelievable that is, but most people are pretty confused by it. I have some extra bone growth, called a torus, that presses up against my soft palate and prevents me from getting brain freeze.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I have seen my own intestine.Since somebody asked: Semi-Truck blew a red light as I was pulling out of the hospital I worked at. The ED crew ran out, shoveled me off the asphalt, and ran me inside. If it had been anywhere else Id have bled out before an ambulance arrived. It broke my left everything, including ten ribs, many if which wound up in my lung, one of which is still unaccounted for. I was fortunate enough not to suffer any spinal damage, but I did lose my left leg below the knee. Ive made a mostly full recovery, less the.leg and significant lung functionality.If you think about how a grape splits open when you squeeze it too hard youll have the right idea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I am completely unable to create new images in my head and everything I picture I have to relate to something I know. Usually when reading a book I picture characters as famous people that they remind me of and sometimes they do not fit remotely. The weirdest example is when reading A Song of Ice and Fire I can only picture Wyman Manderly as Hedonismbot from Futurama.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I used to be blind. I was not born blind, I am not blind now (although my eyesight does suck), but - due to a medical procedure, no less - I was for a while completely blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I was born blind but now I’m a pretty successful painter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I was once in a casino on a boat on a skyscraper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I have been struck by lightning, bitten by a copper head, burned in a house fire, broken six ribs, lost most of my left lung, and dislocated my eyeball. All in the same year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I was once picked up by a large bird when I was younger. (Around 3 ) Lifted me at least 4 feet off the ground then dropped me and flew away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I once achieved over 300,000 point score (not lines) on Tetris, on the original Gameboy. The little winning rocket gets bigger every 50,000 points over 150,000 and after 300,000 it looks like a giant p**is soaring up the screen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I once walked over a mile during a snow storm at night down a dark country road while being pursued by a pack of coyotes with only a whistle and a road flare to protect myself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I can name the first 493 pokemon in order and have quite literally caught them all. After black and white came out I was too old to dedicate that much time into knowing the rest lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My grandmother was traveling to the Philippines with her sister who was ill. When they got off the plane and went into JFK airport, Harry Connick Jr. helped pick her up after she collapsed onto the floor. My grandmother looked up and said, You look a lot like Harry Connick Jr. He responded, Thats because I am Harry Connick Jr.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My wife is a childcare provider, and some years ago one of her clients was a couple with a little girl about 2 years old. They dressed her up as a prisoner in an orange jumpsuit with makeup eyebrows and scars on her face. She became the non-crying half of the timeout changes a man meme. The crying boy in the picture is a neighbor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. When I was a baby, I was run over by a car. Not just hit, but completely run over. The wheel went up my body and thankfully veered off before running over my skull.I have some scars and possibly my epilepsy was caused by this. Not sure though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I was eating at Burger King with my Dad in early 1986 when I saw Herb. I missed out on winning $5,000 for two reasons:I was 15, so they would have given the prize to my Dad anyway.My Dad was a malignant narcissist, and he would have kept the money.Also one bonus reason:I was too chicken to say, Hey, are you Herb? He stopped and stood there for a while, then he turned and left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My uncle is Bill Gotez. Its pronounced Gates. I told some people at my elementary school and one of the teachers called a parent teacher meeting to talk about me lying all the time. My mom came in and backed up my story. At the time I didnt even know who Bill Gates was and didnt understand why no one believed me.Uncle Bill isnt very good with computers. In my early teens I would give him tech support.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. My father was a communist who tried starting a communist revolution multiple times throughout his 20s and 30s, while my mother was an anti-communist refugee from the then Soviet Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142964.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">Dead Dad Gets Last Laugh over Bill Collectors</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/034328/87143297/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043045/87143300/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043120/87143301/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043150/87143304/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043131/87143302/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043143/87143303/6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043155/87143305/7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043201/87143306/8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043213/87143308/9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/11/043207/87143307/10.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">22 Times Life Flipped People the Bird</a><br>
-
-<span style="font-size:4em">1. “Well this happened at work last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Someone left their bike under the wrong tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Local “home artist” posted this and quickly realized his mistake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I guess I’m not Microwaving today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “This is the road I’m supposed to drive on my final driving test this morning. Fog my life!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Found out I’m allergic to old spice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “I let my roommate use my ps5 when I’m not home. This is what I come back to.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Airbag randomly deployed two minutes after id parked my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “When life gives you lemons, you make lemon bars and then drop them on the kitchen floor.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Can that wedged itself in my sink drain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My wheel fell off my car on my way to work.. fml.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Recently tried an expensive rental clothing subscription. UPS threw the package of clothes/bags into my backyard. I have two puppies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Being a Clint at Starbucks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Second bite of my Chipotle burrito and it had a piece of glass in it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I hastily chose the wrong bottle of the fridge and just covered my smoked salmon with caramel instead of dill dressing….”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Thought my roommates pulled an April Fools’ prank on me. They didn’t.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I just want to give my students some damn snacks without going broke.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “What a lovely way to wake up this morning! Nothing beats opening my eyes and seeing my dog spewing waterfalls onto my carpet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I use the gym at 2am you need an access card to get in and out. mine stopped working i have been trapped for 2hrs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Sofa made it from California to London, only to get stuck in the entryway.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “My honey jar opened in my bag.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “I drove my phone over.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142358.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
+## <a href="#linky14" id="linky13">29 Dank Memes We Obtained Through the Freedom of Dankness Act</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142710.jpg" style="width:100%"><br>
 
@@ -859,55 +779,49 @@ Lastly there was a guy there who took a liking to me. He was dressed in a white 
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142738.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">25 Old School Things Kids Today Would Never Understand</a><br>
+## <a href="#linky15" id="linky14">22 Times Life Flipped People the Bird</a><br>
 
-<span style="font-size:4em">1. Organizing to meet someone on a landline and actually having to turn up on time or they wouldn’t know where you are because you have no way of contacting them.-u/withereddesign</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143599.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Well this happened at work last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Recording music from the radio-u/AndNoc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143600.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Someone left their bike under the wrong tree.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Waiting for your friend to get home to call them.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143602.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Local “home artist” posted this and quickly realized his mistake.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I recently had to explain what “changing the channel” meant to my small kid because he only knows streaming. We’ve already covered CDs, VCRs, and what it means to roll down a car window. It was a little rough -u/Proper-Emu1558</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143603.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “I guess I’m not Microwaving today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142340.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. It’s not working, cuz it’s not on Channel 3-u/moridin82</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143604.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “This is the road I’m supposed to drive on my final driving test this morning. Fog my life!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Calling a girl and her dad answers the phone. That sh*t was rough, kids.-u/clydem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143596.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Found out I’m allergic to old spice.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Playing the same level on a game over and over because there are no saves-u/drevilishrjf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143597.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “I let my roommate use my ps5 when I’m not home. This is what I come back to.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Video rental stores with adult sections-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143606.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Airbag randomly deployed two minutes after id parked my car.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Knocking on your friends door to see if they could come out and play.-u/whit3lightning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143598.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “When life gives you lemons, you make lemon bars and then drop them on the kitchen floor.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The joys of Saturday morning cartoons-u/GallicPontiff</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143607.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Can that wedged itself in my sink drain.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Using a road atlas to get somewhere on vacation-u/siriusonbroadripple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143608.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My wheel fell off my car on my way to work.. fml.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Rewinding VHS or a cassette before returning.-u/est1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143605.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Recently tried an expensive rental clothing subscription. UPS threw the package of clothes/bags into my backyard. I have two puppies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. That Lite Brite was peak technology-u/shanecdotes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143609.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Being a Clint at Starbucks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. TV going off-the-air at night.-u/J_David_Settle_1973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143610.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Second bite of my Chipotle burrito and it had a piece of glass in it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Getting to be goofy and awkward and not have to worry about it ending up online for everyone to see.-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143611.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I hastily chose the wrong bottle of the fridge and just covered my smoked salmon with caramel instead of dill dressing….”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Walking to Blockbuster and spending an hour trying to pick a movie everyone agrees on-u/sugarfairymagic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143612.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “Thought my roommates pulled an April Fools’ prank on me. They didn’t.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Running to go to the bathroom during a commercial break-u/OptimistPrime527</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143613.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I just want to give my students some damn snacks without going broke.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. How exciting it was to open a new box of cereal to see which toy you got and trade with your mates, usually pencil toppers or bicycle reflectors, etc, lol-u/WishUponAStar35</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143614.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “What a lovely way to wake up this morning! Nothing beats opening my eyes and seeing my dog spewing waterfalls onto my carpet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. How we had to plan our TV watching around a printed schedule. No VHS, no DVR.-u/thorndike</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143615.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “I use the gym at 2am you need an access card to get in and out. mine stopped working i have been trapped for 2hrs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. You needed a light accessory for your Gameboy because those suckers didnt have back lighting. And to trade Pokemon, you needed to use cables. CABLES.-u/gracefultime</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143616.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Sofa made it from California to London, only to get stuck in the entryway.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The sound on the phone when somebody was using the internet.-u/Poops_McClanahan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143617.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “My honey jar opened in my bag.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Going on road trips as a kid where the only form of entertainment was some sort of game played amongst your siblings in the back seat involving the license plates of other passing cars. On our car trip to Disney/FL from central PA me and my brother had a competition on who could write down the most license plate numbers… we ended in the thousands but for the life of me I can’t remember who “won” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Columbia House Records club-u/passesopenwindows</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143619.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. Clackers. They were colorful glass (yes glass) balls at the ends of a piece of rope with a ring in the middle to put your finger through. You would move your hand up and down, and the balls would smack into each other, making a “Clack -Clack-Clack” sound (hence the name). They were eventually taken off the market since the glass balls could shatter and kids were getting injured by the flying glass shards. They were a big fad toy for a while there. They came back later with plastic balls.-u/lanky_planky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. How much time we spent playing outside, but not in organized sports. Pickup kickball in the street where you yell “CAR!” to break up the game briefly for a car driving through. Coming home covered in dirt after disappearing for five hours. We all made fun of how we were called by our parents. We would explore and poke around. Dig up worms, chase butterflies, freak out over finding a dead baby bird, skin our knees at least twice a summer and entertain ourselves for hours.-u/GoddessOfOddness</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143621.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “I drove my phone over.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87142358.jpg" style="width:100%"><br>
 
