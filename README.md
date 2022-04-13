@@ -1,341 +1,63 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/13/2022-17:11:31
+Last updated: 04/13/2022-18:11:31
 <br>
-## <a href="#linky2" id="linky1">16 Odd Items With Simple Explanations</a><br>
+## <a href="#linky2" id="linky1">What The F**k Is Going On In These Pictures?</a><br>
 
-<span style="font-size:4em">1. “What is this type of clamp used for?”
-
-Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “What is this thing?”
-
-Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Could anyone help me identify this object?”
-
-Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
-
-Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
-
-Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I need some help identifying this object.”
-
-Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “What could this be?”
-
-Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
-
-Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
-
-Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
-
-Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “What is this object?”
-
-Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
-
-Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
-
-Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
-
-Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
-
-Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
-
-Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Dudes Post Their Wins Online and We Love to See It</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015750/87144024/brain.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015753/87144025/coffee.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015801/87144026/cup.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015805/87144027/dad.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015812/87144028/dog.png" style="width:100%"><br>
+<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015816/87144029/duck.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015918/87144040/swim.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015823/87144030/egg.png" style="width:100%"><br>
+<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015828/87144031/elden.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015834/87144032/garfield.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015839/87144033/gator.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015845/87144034/hospital.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015851/87144035/kanye.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015856/87144036/macho.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015902/87144037/river.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015907/87144038/safe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015913/87144039/skate.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015924/87144041/taco.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015929/87144042/vet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015936/87144043/wwe.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">27 Memes That Will Make You Think "Truth"</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142968.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142990.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87142992.png" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
-
-<span style="font-size:4em">1. I think theyll be okay, they are professional (actors) after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Well, this will be haunting my dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Its always nice to see a celebrity embracing memes about themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">29 Things You Definitely Don’t Want</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141891.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141892.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141893.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141894.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141903.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">21 Ruthless Facebook Comments</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143736.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">21 Cool Designs That Really Need to Catch On </a><br>
+## <a href="#linky3" id="linky2">21 Cool Designs That Really Need to Catch On </a><br>
 
 <span style="font-size:4em">1. “This parking garage has a slide.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143631.jpg" style="width:100%"><br>
 
@@ -379,7 +101,59 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">21. “This amazing bench in Alexandria’s library, Egypt”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143648.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 Trashy Things People Have Seen At Weddings</a><br>
+## <a href="#linky4" id="linky3">25 Things We Are Sick and Tired of Explaining</a><br>
+
+<span style="font-size:4em">1. Silicone and latex are two completely different materials.-u/MajorHotLips </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. That I need time for myself. Like, its not that I need time away from you. I just need time with me.-u/R0ttenHeimer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My eyes are insanely sensitive to light. Sunlight & fluorescent. LED, CFL, & incandescent above maybe 40 watts. Phones, computer screens, TVs.So I’m not wearing the sunglasses inside because I’m hungover or on drugs or trying to look super cool. I’m wearing them inside so I don’t think about gouging my eyes out every 3 minutes.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. That the animals in my care are rescues, and that I did not inflict the injuries/illnesses they have on them.-u/LizardPossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143655.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. The difference between a debit card vs. a credit card. Yea I have to explain this to adults on a daily basis.-u/Ihavenogoodusername</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you require five years of experience, it isnt entry-level-u/SoFastMuchFurious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Surrounds and rears are 2 different speaker locations and neither of them go into the ceiling.-u/Anbucleric</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Before I got my current job a month ago, I only had about 6 other interviews over the course of 5 months. At most of them, the recruiter would always be so confused about why Ive lived in so many places and it was so annoying and weird. I was a military kid, my parents moved when I was in college and now I live in a completely different state from them because thats where my fiance ended up. I dont really understand why thats confusing. People move more often now than they ever have.-u/cihojuda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143659.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. That I can produce quick work, or quality work. You can’t have both. Got sick of explaining this to the same people over and over… so I quit my job and got a better one.-u/AutoCAD_Bane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143660.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Red Green color blindness. Now when it comes up instead of playing the “what color is this?” game I have a picture on my phone that illustrates how different color visions see things.-u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That just because I dont talk to people, doesnt mean Im lonely. Im perfectly fine being alone with myself. Alone does not equal lonely.-u/Eh_Its_Ok_I_Guess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143661.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. That you can be young and still have chronic illnesses/disabilities.-u/alexadb123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143662.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Yes, I can code, but no I cant fix your PC that wont turn on for some reason.-u/YARR1N</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Why we need to stop planting exotic plant species.-u/TheCharles510</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The difference between type 1 and type 2 diabetes. As a type 1 diabetic, I get asked this all the time or people confuse type 1 with type 2. They’re very different diseases.-u/Dumbledore27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That depression and anxiety take a toll on me more than people realize. I can’t do some things due to it and that’s that.-u/frostysushituna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why I’m deaf. Or how I became deaf. Or having to repeatedly explain that using your mouth to communicate doesn’t work.-u/Wit-Hoid6674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Why we dont have kids.Whether or not we want kids is no ones business, and the fact that were probably not able to is even less so.-u/candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That being neat and organized, or being “germaphobic” does not equal having OCD.-u/SnickasTheRaccoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Correlation is NOT causation!!!!!!!!!!!!!!!-u/LockDue9383</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143670.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. The logical fallacy of denying the antecedent.(Basically, if A then B does not mean if B then A - it means if not B then not A.)-u/Cyborg_Ninja_Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Let the water boil, THEN add spaghetti-u/Poorly-Drawn-Beagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Introverted means that you get mentally exhausted around people, but energized when on your own. It DOES NOT mean that you are shy or socially anxious.-u/Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That evolution is simply a change in allele frequency over time and that there is no “end goal”. So many people don’t understand the basic concept but choose not to believe it.-u/good_god_lemon1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Vaccines do not cause autism.-u/LaAndala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143675.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">30 Trashy Things People Have Seen At Weddings</a><br>
 
 <span style="font-size:4em">1. I was actually the bartender but it was a hoot. 1st, wedding was outside and it stormed violently. Groom was hammered pre wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women in the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143683.jpg" style="width:100%"><br>
 
@@ -537,101 +311,219 @@ I gave the bride and groom my gift. They said thank you and seemed perfectly hap
 
 Lastly there was a guy there who took a liking to me. He was dressed in a white tank top, backwards hat and sweatpants. You know, some proper wedding attire... He told me he just got out of jail for drugs and that the bloods and the crips wanted him in their gangs. I told him thats interesting because hes white and I thought they didnt usually recruit white guys. He said they just really wanted him and that he hung out with black people all the time. He then told me that you could cure AIDS by injecting dish soap. It cleans out the blood. He asked for my phone number. I declined. Shockingly the marriage only lasted a few years. Groom has full custody of their two kids because bride is not capable of taking care of their children. She had social services called on her multiple times.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143710.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Things We Are Sick and Tired of Explaining</a><br>
+## <a href="#linky6" id="linky5">Dudes Post Their Wins Online and We Love to See It</a><br>
 
-<span style="font-size:4em">1. Silicone and latex are two completely different materials.-u/MajorHotLips </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143652.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015750/87144024/brain.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. That I need time for myself. Like, its not that I need time away from you. I just need time with me.-u/R0ttenHeimer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143653.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015753/87144025/coffee.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My eyes are insanely sensitive to light. Sunlight & fluorescent. LED, CFL, & incandescent above maybe 40 watts. Phones, computer screens, TVs.So I’m not wearing the sunglasses inside because I’m hungover or on drugs or trying to look super cool. I’m wearing them inside so I don’t think about gouging my eyes out every 3 minutes.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143650.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015801/87144026/cup.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. That the animals in my care are rescues, and that I did not inflict the injuries/illnesses they have on them.-u/LizardPossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143655.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015805/87144027/dad.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The difference between a debit card vs. a credit card. Yea I have to explain this to adults on a daily basis.-u/Ihavenogoodusername</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143656.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015812/87144028/dog.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you require five years of experience, it isnt entry-level-u/SoFastMuchFurious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143657.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015816/87144029/duck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Surrounds and rears are 2 different speaker locations and neither of them go into the ceiling.-u/Anbucleric</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143658.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015918/87144040/swim.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Before I got my current job a month ago, I only had about 6 other interviews over the course of 5 months. At most of them, the recruiter would always be so confused about why Ive lived in so many places and it was so annoying and weird. I was a military kid, my parents moved when I was in college and now I live in a completely different state from them because thats where my fiance ended up. I dont really understand why thats confusing. People move more often now than they ever have.-u/cihojuda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143659.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015823/87144030/egg.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. That I can produce quick work, or quality work. You can’t have both. Got sick of explaining this to the same people over and over… so I quit my job and got a better one.-u/AutoCAD_Bane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143660.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015828/87144031/elden.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Red Green color blindness. Now when it comes up instead of playing the “what color is this?” game I have a picture on my phone that illustrates how different color visions see things.-u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143651.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015834/87144032/garfield.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. That just because I dont talk to people, doesnt mean Im lonely. Im perfectly fine being alone with myself. Alone does not equal lonely.-u/Eh_Its_Ok_I_Guess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143661.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015839/87144033/gator.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. That you can be young and still have chronic illnesses/disabilities.-u/alexadb123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143662.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015845/87144034/hospital.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Yes, I can code, but no I cant fix your PC that wont turn on for some reason.-u/YARR1N</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143663.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015851/87144035/kanye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Why we need to stop planting exotic plant species.-u/TheCharles510</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143664.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015856/87144036/macho.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The difference between type 1 and type 2 diabetes. As a type 1 diabetic, I get asked this all the time or people confuse type 1 with type 2. They’re very different diseases.-u/Dumbledore27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143665.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015902/87144037/river.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. That depression and anxiety take a toll on me more than people realize. I can’t do some things due to it and that’s that.-u/frostysushituna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143666.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015907/87144038/safe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why I’m deaf. Or how I became deaf. Or having to repeatedly explain that using your mouth to communicate doesn’t work.-u/Wit-Hoid6674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143667.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015913/87144039/skate.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Why we dont have kids.Whether or not we want kids is no ones business, and the fact that were probably not able to is even less so.-u/candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143668.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015924/87144041/taco.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. That being neat and organized, or being “germaphobic” does not equal having OCD.-u/SnickasTheRaccoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143669.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015929/87144042/vet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Correlation is NOT causation!!!!!!!!!!!!!!!-u/LockDue9383</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143670.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015936/87144043/wwe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. The logical fallacy of denying the antecedent.(Basically, if A then B does not mean if B then A - it means if not B then not A.)-u/Cyborg_Ninja_Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143671.jpg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">29 Things You Definitely Don’t Want</a><br>
 
-<span style="font-size:4em">22. Let the water boil, THEN add spaghetti-u/Poorly-Drawn-Beagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143672.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Introverted means that you get mentally exhausted around people, but energized when on your own. It DOES NOT mean that you are shy or socially anxious.-u/Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143673.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. That evolution is simply a change in allele frequency over time and that there is no “end goal”. So many people don’t understand the basic concept but choose not to believe it.-u/good_god_lemon1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143674.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Vaccines do not cause autism.-u/LaAndala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143675.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141879.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 Minor Injuries That Actually Hurt like B*tch</a><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Canker sores. Holy smokes…. Turns out I get them when I drink soda and energy drinks. I don’t drink them anymore, I rarely get canker sores now, and I’m healthier than ever! -u/Tomb5t0ne</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050439/87144865/canker.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When you bite something like a chip but the angle wasnt quite right and it gets the roof of your mouth. -u/EnvironmentalYak4715</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050451/87144866/chip.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Leg cramps. -u/PegasoZ102</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050502/87144867/cramp.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When you hit your head on the bottom of an open cabinet door. -u/R12356 </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144868/cabinet.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Getting hit in the ankle by a skateboard. -u/Gregbot3000</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144869/board.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Eyelash in eyeball. -u/papachon</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050513/87144870/eyelash.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Gas pains. -u/chrs_trnr</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050521/87144871/fart.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141886.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Not really an injury but trying to walk after your foot fell asleep. -u/LowCheesecake5275</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050524/87144872/fellasleep.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Pinching your finger in the door. -u/LurkingAintEazy</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050531/87144873/finger.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Funnybone. Not so funny. -u/purenergy12</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050535/87144874/funny.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Hangnail. -u/ZealousidealAd5679</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050543/87144875/hang.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141889.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. When you tell a joke and nobody laughs. -u/Ordinary-Freedom7193</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050546/87144876/joker.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141890.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Hitting your knee on a table. The pain crescendo is real and then it goes away. -u/soline</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050553/87144877/knee.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141891.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Sleeping in a weird position and waking up with a stiff painful neck. -u/44pennystocks</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050557/87144878/neck.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141892.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. That f**king ingrown hair or zit or whatever right inside the tip of your nose. -u/rfs103181</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050605/87144879/nose.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141893.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Hitting your shin bone on anything. -u/Feels2old</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050608/87144880/shin.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141894.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Stubbing your toe. -u/I_Lick_Bananas</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050616/87144881/toe.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141895.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Falling on your butt and hitting your tailbone thingy. -u/Respond2406</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050619/87144882/tail.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141896.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Biting your tongue. -u/Keithninety</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050627/87144883/tongue.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141897.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Paper cuts. -u/Velocity9876</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/051149/87144884/paper.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141898.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">27 Fresh Memes of the Dankest Kind</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141899.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141900.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141901.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87141903.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">21 Ruthless Facebook Comments</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143736.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
+
+<span style="font-size:4em">1. I think theyll be okay, they are professional (actors) after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Well, this will be haunting my dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Its always nice to see a celebrity embracing memes about themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">27 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. Oh you better bet your sweet ass I can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143450.png" style="width:100%"><br>
 
@@ -687,155 +579,73 @@ Lastly there was a guy there who took a liking to me. He was dressed in a white 
 
 <span style="font-size:4em">27. This is not what we had intended they would do with this power, but okay, you do you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143475.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">37 of the Most Awesome Randoms You'll See All Day</a><br>
+## <a href="#linky11" id="linky10">16 Odd Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144102.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “What is this type of clamp used for?”
+
+Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144103.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “What is this thing?”
+
+Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144104.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Could anyone help me identify this object?”
+
+Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144105.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
+
+Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144106.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
+
+Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144107.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. “I need some help identifying this object.”
+
+Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144108.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. “What could this be?”
+
+Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144109.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
+
+Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144110.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
+
+Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144111.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
+
+Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144112.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. “What is this object?”
+
+Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144113.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
+
+Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144114.png" style="width:100%"><br>
+<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
+
+Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144115.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
+
+Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144116.gif" style="width:100%"><br>
+<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
+
+Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144117.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
+
+Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144119.gif" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. https://www.nasa.gov/mission_pages/sunearth/news/gallery/earth-scale.html</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144122.gif" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144123.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144132.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144133.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87144138.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
-
-<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">50 Fun Randoms to Obliterate Boredom</a><br>
+## <a href="#linky12" id="linky11">50 Fun Randoms to Obliterate Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143894.jpg" style="width:100%"><br>
 
@@ -937,7 +747,79 @@ Lastly there was a guy there who took a liking to me. He was dressed in a white 
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143943.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
+## <a href="#linky13" id="linky12">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
+
+<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
 
 <span style="font-size:4em">1. Q - Who is your favorite character in all of literature and film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043143/87144050/east-of-eden.jpg" style="width:100%"><br>
 
