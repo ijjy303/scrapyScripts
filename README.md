@@ -1,115 +1,47 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/14/2022-13:11:31
+Last updated: 04/14/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">24 Saddest Encounters With Celebrities</a><br>
+## <a href="#linky2" id="linky1">20 Fresh Memes of Unspeakable Dankness</a><br>
 
-<span style="font-size:4em">1. My brother met Gene Simmons back stage at a show he was playing in. Gene complimented my brother highly on his guitar playing but then said too bad youll never make it and just walked away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144451.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144184.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. I work for an airline, so I see some celebs from time to time. One time Tom Cruise cussed me out because I wouldnt violate federal law and bring his checked bags to him planeside. Made him go to baggage claim like everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144455.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Went and saw Steve-O do his stand up tour. After his show, he said he would meet everybody there. We waited in line, and he was being super nice, laughing and taking pictures with everyone. Right before we got to the stage some fat, redneck asshole told him that he was funnier back when he was on drugs. It killed his whole vibe. When we got to him he just took a picture with us and said thanks for coming, but he was clearly in a bad mood. I dont blame him at all, he was still extremely nice, but he was clearly irritated. It was cool that he still met us and took a picture with us though. Seemed like a really cool dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144454.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Organized a good sized comic con, so Ive worked with quite a few. But the saddest was really subtle:
-
-Peter Mayhew (chewbacca), was in the green room for lunch on the 2nd day. He looks very tired and is almost totally wheelchair bound because of his terrible joint problems. Im sitting across from him while we eat and his assistant asks if his hand is feeling alright to sign more autographs (terrible arthritis).
-
-He closes his eyes and nods his head and whispers out how much longer will this go today? To which his assistant delicately replies just 5 more hours.
-
-And he whimpers a little and sheds a few tears as they wheel him away from the table and back out to the fans.
-
-The saddest part is that hes the nicest guy and never denies a fan while hes at the con and always smiles even though hes in loads of physical pain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144444.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I used to go to a small gym. The owners were laid back and had their cats roam around all the time. It was never an issue and people who went regularly would pet them in between sets. My husband and I go to the gym one day. Were the only ones there aside from a trainer in the corner with someone. My husband (a very observant man) tells me to go do some kettle bell swings. I thought it was weird but headed over to the kettle bell section. There is the trainer with Ben Affleck (training for Batman). I didnt want to disturb him, so I completely ignored him. Except its a small gym. So Im working out on the bench next to nice guy Ben, and I can feel him trying to acknowledge me. Suddenly I notice one of the cats starts to pee in the corner next to Ben. I shout NO! to stop the cat, and scoop him up. Ben turns to me and says Hey, is that your cat? Clearly trying to start conversation. I look at him and awkwardly say Its not my cat and walk away. I had an opportunity to talk to Batman and instead became the crazy cat lady. My husband was watching from afar, dying laughing. Now whenever I do something awkward my husband will scream Its not my cat!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144446.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I became interested in evolution and physical anthropology in high school after exploring the topic in books and discovered Richard Dawkins. I was in the process of reading another of his recent books when I found out he was doing a signing in the city. So I went to his talk and waiting in line to get an autograph.
-
-All through the Q&A session, people had great complex questions for him about his theories and ideas on evolution or certain species. I thought I would be clever and ask a simple and fun question. So in the cover of the book, I wrote, What is your favorite animal? I expected this to be refreshing when he went to sign my book.
-
-I got to the front and as he opened my book to sign it, he was a little thrown off. He gave me a look like I was mentally impaired and just signed his name.
-
-I was crushed and felt really embarrassed that my recent idol thought I was stupid. I wandered off through the racks of books and found a small group of 5 people huddled around one man speaking.
-
-I was curious and still trying to forget my last encounter, so I listened to this energetic man speak about the universe to this impromptu gathering. He was very knowledgeable and interactive. When I got a chance I asked him the same question, Whats your favorite animal? He was very happy with the question and went on a long explanation of why the wolf was his favorite and when he first encountered one in Yellowstone.
-
-I learned later that man was Neil Degrasse Tyson. What a day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144447.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144189.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Been waiting for a moment to tell this one. When I worked at a restaurant in Florida a few years ago Muhammad Ali and his family came in to eat. Me being a fanboy and knowing who Ali was kept staring from a distance, and eventually ran next-door to Books A Million to buy his biography King of the World and have him sign it.
-
-As he was leaving I stood and held the door open for them.
-
-His wife was helping him out of the door. He was looking at the ground. No speaking. Slow walking. Shaking from the Parkinsons.
-
-He got to the car and his wife was helping him in. I asked her if I could meet him and have him take a photo and an autograph.
-
-She was delighted and said sure! Cassius, this young man would like to meet you she said. I held out my hand and shook the hand of the greatest Boxer to ever live. The hand that knocked out Fraiser. That mighty right hook.
-
-I immediately started crying. (And tearing up right now). She said dont cry, its okay! I had to explain that its surreal to meet the famous Ali.
-
-She handed him the book and the sharpie and said Cassius he wants your autograph and she opened the book for him and put the pen in his hand. He took at least (no joke) 2 full minutes to sign his name. And it was at that point that it killed me. This was Cassius Clay. Muhammad Ali. The most charismatic, float like a butterfly sting like a bee, man in boxing history. And he was such a shell of his former self because of the Parkinsons. It was so heartbreaking. It really was.
-
-She then took a photo of us together and I thanked him, and her and went on my way.
-
-But god damn that will be the saddest moment meeting a celebrity I think Ill have face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144448.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I got c*ckblocked by Brad Pitt.
-
-I was an extra in World War Z and I met this girl there and we were talking and all was great until one time Brad Pitt walks by.
-
-Was very friendly to her... totally blanked me.
-
-His stunt double was a cool dude though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144449.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Betty White. It was right after the Golden Girls (and Golden Palace) had ended. Her career was not in the best place at the time. I was at the Beverly Center in Los Angeles and saw a poster promoting Betty White signing her latest book about how much she loves animals. I liked the Golden Girls so I thought I would swing by the bookstore to take a gander at Betty White. It was so sad. Ill always remember she was sitting alone at a big table with a stack of books in front of her. People were in the bookstore shopping but no one was buying her book or really acknowledging her. She just sat there, pen in hand, waiting. She would occasionally wipe off some imaginary dust to look busy. Im getting the chills just remembering it. Of course, I was such a self-involved college kid that I just stared at her from far away. I should have just gone up and talked to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144450.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I was drunk at a friends bachelor party in vegas in 95. We are walking through the casino, and I see this glorious man with what can only be described as the aura of a movie star around him. I immediately recognize him as Sammy Davis Jr. I run up and say Sammy can I get an autograph?! and he just turns around like he didnt hear me and starts walking. Thinking he couldnt hear me I kind of yell Sammy Davis Jr!. He turns around, looks right at me, and says Youre a real asshole.
-
-I was pretty oblivious and had no idea why Sammy Davis Jr. was treating me like I had slapped his little sisters ass. For a few years after that every time his name came up I told people how big of a jerk Sammy David Jr. was. Fast forward to a few years later and Im watching the movie Renaissance Man with Danny Devito and Im like wait I didnt know Sammy David Jr was in this movie ....which caused me to imdb it ...and it all finally clicked.
-
-I had called Gregory Hines Sammy Davis Jr. to his face 5 years after Sammy died. It was probably the most delayed embarrassment Ive ever felt in my life.
-
-tldr: I have no idea what Sammy Davis jr. looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144452.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I met George R. R. Martin at the Blaze Pizza in Evanston a couple of months back when he was in town to accept an award from Northwestern University. At the time, I was listening to the audiobook of A Clash of Kings, and he very excitedly told me, Youve got a ways to go to catch up! When I told him that Ive already read what hes published three times, and am listening to the audiobook as a new way to experience the story, he just kind of ... deflated. He let out a big sigh, and just said, Yeah, I need to finish the next book. People wont stop bothering me about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144453.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. After Katrina, my now-wife and her then-boyfriend were in Whole Foods in New Orleans, shopping. There was a guy there who looked like Laurence Fishburne, and the boyfriend turns my wife and says, loudly, Damn! Laurence Fishburne got fat!
-
-The man turns around slowly and just stands there, looking at them, forlorn. It was Laurence Fishburne.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144456.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Saw Robin Williams in a bar downtown Toronto. he was so hammered and non coherent. My girlfriend and I tried to speak to him but only slurs and spit bubbles came out of his mouth, he fell on the dance floor twice and looked ready to pass out. To see My childhood hero in such a mess made me really sad. Some girl at the bar was hitting on him then after my gf asked him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144457.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I was working as a concierge at a high end resort in Park City, Utah. Justin Timberlake was staying with us for Sundance, and one of his entourage called the front desk and let us know their internet was being flaky. I was the go-to tech guy, so I ran up to his room and restarted the router for them, and I was hero of the night to everyone in the room. Literally, high fives and chest bumps. As I was riding the elevator down, I heard Timberlake in the garage (great acoustics) BELTING out one of his songs as he was waiting on the lift. The door opened, and we were standing face to face, and I said I dig your sound, man. He looked at me dismissively and said You should. I get paid for it. and walked past me like a schoolyard bully, complete with shoulder bump.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144458.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Met Vince Vaughn in a bar in Hollywood. He was with his entourage or whatever, and had quite a few drinks. He hit on a (girl) friend of mine, and I was amazed to see her totally blow him off. Not that she should have gone for it, but it was pretty incredible to see a multi-millionaire movie star get rejected by an accountant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144459.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My saddest celebrity encounter was also my greatest. When I was in college I was an extra in a few scenes of We Were Soldiers, a Vietnam movie with Mel Gibson and Sam Elliott. While I was waiting for a bus to take me back to wardrobe one of the casting guys came up and picked me out of the crowd and asked me if I wanted to be in another scene with Sam Elliott. Of course I was ecstatic. I sat in this van waiting for Sam to come out and it was going to drive us to the scene.
-
-Finally he comes out looking all pissed off and sits in the front seat. Against my better judgement I said something to the effect of, Mr Elliott Im a huge fan of yours and its an honor to be in a scene with you. He snaps back: Shut the f*ck up kid. Needless to say when Sam Elliott tells you to STFU, you do it. So thats the sad part, though getting cussed out by a guy who typically plays the badass in movies was cool in some way.
-
-We film the scene which is a short scene where he walks by Chris Klein and cusses at him about something. We film it over and over and Im just some soldier walking by in the background. Occasionally between takes Sam would look over at me and scowl. After its done we get back in the van to head back and Sam is again in the van. He turns around and says, Sorry about earlier kid, I just didnt want to f*ck up my mood for the scene. I appreciate the compliment. Suddenly it dawned on me that when he cussed at me he was trying to stay in character for the upcoming scene. Pretty cool experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144445.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Rachel Weisz. I never let on that I knew who she was and just chatted happily with her as the conversation dwindled and she became more sullen and withdrawn. Finally she snapped at me about something and I immediately sat back and went silent. A couple minutes after, she got up to use the restroom and her nanny leaned over and said simply and quietly, She gets upset if you dont acknowledge who she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144460.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Well, I once wanted to get Daryl Hannahs autograph for my friend who had been crushing on her since FOREVER. I couldnt summon up my courage to approach her directly, so I just asked the dude sitting next to her. He put me off very politely.
-
-I went back to my friends emptyhanded and was complimentary of Mr. Nobodys manners. They told me Id just asked JFK Jr for Daryls autograph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144461.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144202.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. My mom found Paris Hilton incognito in an airport, came to find me, brought me to a tiny lady in a hoodie and big sunglasses in the middle of the airport, goes hi are you Paris Hilton? Then pushed me in front of her and said here, say hi to my son! Like I was a weird birthday gift or something.
-
-She said sup. I said sup then she did this weird little laugh. Then my mom goes okay bye!
-
-That was my sad and awkward meeting with Paris Hilton in an airport.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144462.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. DMX very graciously held a door open for me recently. It was a nice encounter until I saw in the news the next day that he had been found unconscious in the parking lot later that evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Met Samuel L. Jackson at a celebrity golf pro am. Shook his hand after I found his ball in the rough and asked him to sign my wallet the one that says BAD MOTHER F*CKER Id bought off eBay since I love Pulp Fiction so much. Had the marker and all. He just said No chance. That feeling of disappointment will be forever with me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I was at a cheese shop in the West Village (I realize how douchey this sounds) when I noticed James Spader was at the counter. I was in the middle of a massive Boston Legal binge at the time and absolutely adored his work. So I went to the counter and started looking at the cheese (this is casual, its a cheese shop for f*cks sake). He was sampling cheeses and I just looked at this man whose work I so admired and respected and said hows the Gouda? Apparently its delicious. Stupid. Stupid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Eminem. I just think its F*CKED UP he dont answer fans If he didnt wanna talk to me outside his concert he didnt have to, but he coulda signed an autograph for Matthew Thats my little brother man, hes only six years old We waited in the blistering cold for him, four hours and he just said, No.
-
-Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Aziz Ansari hit on me years ago and I was too starstruck to remember how to talk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144467.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144205.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">27 Fresh Memes of the Dankest Kind</a><br>
 
@@ -278,61 +210,71 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">What The F**k Is Going On In These Pictures?</a><br>
+## <a href="#linky6" id="linky5">16 Odd Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “What is this type of clamp used for?”
+
+Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “What is this thing?”
+
+Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Could anyone help me identify this object?”
+
+Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
+
+Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
+
+Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I need some help identifying this object.”
+
+Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “What could this be?”
+
+Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
+
+Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
+
+Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
+
+Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “What is this object?”
+
+Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
+
+Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
+
+Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
+
+Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
+
+Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
+
+Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">32 Photos that Might Make You Question Reality</a><br>
 
@@ -576,411 +518,7 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">87. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031249/87144775/87141654.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">70 Heavenly Pics to Pique Your Interest</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113219/87145438/87145217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113229/87145440/87145222.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144935.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87144952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113050/87145423/87144362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113101/87145424/87144375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113113/87145425/87144376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113120/87145426/87144374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113120/87145427/87144359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113124/87145428/87144385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113131/87145429/87144386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113135/87145430/87144392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113142/87145431/87144397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113146/87145432/87144396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113153/87145433/87144399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113157/87145434/87144404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113204/87145435/87145202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113208/87145436/87145204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113215/87145437/87145210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113226/87145439/87145218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113237/87145441/87145226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113241/87145442/87145229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">67. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113249/87145443/87145235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">68. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113251/87145444/87145239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113300/87145445/87145247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">70. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/113302/87145446/87145241.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">30 Disturbing Things House Guests Did</a><br>
-
-<span style="font-size:4em">1. Had a former friend visit me from overseas and literally disappear overnight to go and f**k some guy shed been talking to online...leaving me to field a call from her husband, who wanted to know why his wife wasnt answering her mobile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I threw a New Years party once. ONCE. Someone I invited brought a group of people who I knew, but didn’t exactly enjoy the company of.
-
-Sometime around 1am, I noticed that my keepsake urn necklace containing my brother’s ashes was missing. Then, I discover a couple of small lines of powder-like material in lines on my bathroom counter. The f**kers had tried to snort my brother and stole the necklace his remains were in. I was livid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gave my dog drugs because, and i quote she looked sad so i thought some molly would cheer her up... looking back though i tried to be patient at first, after hearing his attempts at defending himself my reaction was pretty harsh, and i do not regret a f**king thing i said or did. F**k that piece of s**t. He gave mdma to a f**king 3 pound chihuahua and almost killed the only reliably good thing in my life and the only thing that gave me any real sense of happiness and he couldnt understand why i was so angry and had the nerve to try and press charges on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Wiped their a** on the white sink hand towel after taking a s**t. Had plenty of available toilet paper. Called them out for it, they denied it, so I never invited them over again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A grown man in our house for the first and last time (college academic team gathering. This was not a family friend) marked his height on our children’s wooden growth chart…in permanent Sharpie marker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ate the dogs pellets. The bag was nearly full before she came and was half full when she left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I recently had a grown-a** man snort a line of Parmesan cheese like it was cocaine. He was completely sober and this was totally unprompted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I had some work people over for a dinner party at my house. We purposely shut off the lights leading upstairs to sort of let the guests know that the party is downstairs...i.e. there is nothing for you upstairs.
-
-Throughout the night I would see one of my coworkers taking out the dip from his lip with his index finger and scraping it into his solo cup.
-
-A bit later I went upstairs to check on my dog and hear some noises from the master bedroom.
-
-I walked in and saw the same dude using my toothbrush to get dip out from in between his teeth.
-
-He doesnt get invited to parties anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Wasnt my house was a friends, we had been invited over to drink and stay the night. We sat in the garden talked and drank and then one of our friends excused himself to the bathroom he was gone for about 20 minutes until another friend said he will go check on him. He came back down 5 minutes later laughing his a** off. The dude had gone upstairs and ran a bubble bath for himself, lit a few candles and even had a floating duck. The friend hosting was a cool guy and wasnt angry as we were all friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Back when I was a freshman in university, I invited some of my mates to our place for dinner because mom wanted to meet the people I went to university with. When dinner was laid out, my mom was like, go ahead, feel free to grab anything. Which obviously, she meant anything on the table or any of the food that was served.
-
-One of the guys who came over proceeded to go to our pantry door, open it, look around for a few seconds, and then went and took some of the canned items inside (think sausages, spam, etc.)
-
-It was the most unusual thing. I think my mom was also properly dumbfounded that she just didnt mention it. Guy didnt mention it either after he did so (he took around 3-4 cans).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. He said he needed to look up something on internet so i lended him my laptop. He then proceeds to watch p**n on my couch while i am 6 ft away from him. I took the laptop back..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Friend of a friend was on mushrooms and decided to do some amateur electrical work during a party at my house. Thats a direct quote btw, overheard by multiple people.
-
-If that statement terrifies you, thats because those are not words that should ever be in the same sentence let alone a sentence that amounts to a thing you are about to do at someone elses house.
-
-Ya so, not being an electrician I cant tell you exactly what he did or what he was trying to do, all I can tell you is that 800 dollars and 24 hours later the problem he created was solved by a professional.
-
-He wound up in the hospital and exited the party in an ambulance.
-
-lol, amateur electrical work.
-
-Hes fine and paid me back. All in all pretty good dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Took the sample Mach 5 razor ( it was new and they had sent the whole neighborhood a full size sample) out of my mailbox, then shaved all his pubes with it and leave them in my shower drain, then proceeded to lie to my face about it as if the pubes magically appeared on the very same day everyone in the neighborhood got a new free razor in the mail except for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My uncle, aunt, and my mom travelled from another country to visit while I was in college, they stayed in my place. I had to leave for a class in the morning and left them in the house to chill. When I came back from my class, my uncle had shaved my shin-poo’s legs down thinking he did me a favor. My fluffy cute dog looked so ugly with naked legs. What’s worse? He somehow only shaved three and forgot the fourth leg.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. An old neighbor got drunk at a poker game at my house. She then went into my bathroom, left the door open and peed on the bath mat. My friend walked in on it and the neighbor said it was because she couldn’t find the light switch. The hall light was on, which fully lit up this tiny bathroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Threw a steak at a window.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A friend was drunk and drank water out of the cat bowl because he couldnt find any. The cat water bowl is right under the sink in the bathroom and where I live, water from the sink is drinkable and very good. We laugh about it now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My friend treated my house like it was his own hotel room. I thought was coming to visit me and wed coordinate for stuff to do, but it turns out he just wanted to save money on a place to sleep.
-
-He had his own plans and didnt tell me about any of them until he got to my place. And he even tried getting his other friends in the area to sleep at my place.
-
-I hadnt seen him in years, too. So I was disappointed that I planned my holiday weekend around my friend but he had other plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. It was me.
-
-I was visiting my brother and sis in law at their fancy new apartment and I took a smelly s**t. They had candles in there for just that sort of thing so I lit 2 and hung around while the scent worked its magic. Not sure how, but I didnt notice the black smoke coming from the candles was leaving black streaks on the walls. I blew out the candles and tried to clean the walls. TP didnt work, so I used their white fancy towels. It still didnt work but I ruined those towels trying.
-
-Eventually there was no escape but to fess up so I did and was mortified.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When I was an older teen, my little bro (young teen) had the worst friends. I walked in to the bathroom once, and two of his friends (both straight males) were shaving each other’s butts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. First college party. A girl drank one--one!--beer and started acting like she was sOoOo wasted. Got fully naked and sat on my papasan chair. One of the most embarrassingly attention-seeking people Ive ever met lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. An (ex)gf and I had an apartment years ago. She was still in touch with an ex. The Ex and his gf wanted to come to the area and we invited him and his gf to stay with us for the weekend.
-
-We all hit it off at dinner, great conversation and laughs, and was a great Friday night. We had a spare bedroom and thats where the two of them slept. FYI: We used this spare room also to store a few things, and to put our dirty clothes in hampers.
-
-I got up in the middle of the night to the both of them snacking in the kitchen. No biggie, I do it too and I told them to make themselves at home.
-
-Well, after chatting and having some chips/dip I caught on to what they both were wearing. Our clothes. Um what? Now I know that people sometimes offer up clothes like pjs/misc clothing to a guest that isnt prepared but they brought bags with them. What in the heck was in their bags that they needed to wear our clothes?
-
-Worse part was the shorts and tshirts that they both had on were dirty and visibly so. I told them we had clean clothes and offered that up but they said they were fine. They ended up leaving the next morning.
-
-But who stays at someones place and wears their dirty clothes? Wtf? Yeah, we laughed about it after they left but I couldnt help but be creeped out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Give people free tattoos. No he doesnt do tattoos, the kit was from Amazon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I used to have a friend who would always come over to take a shower. When I asked him about it, he told me he preferred my bathroom over his.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I have this friend who told me she smelled my shampoo when she went in the bathroom. Apparently she does this to every house she visits, she smells their shampoo and body wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I was the guest in this case.
-
-I was maybe 8 at the time and I was sleeping over at a friends house. I wake up to find I have wet the bed. Super embarrassing.
-
-I try to find spare clothes and cannot find anything no matter where I look.
-
-I cannot keep wearing my pjs because they are footed pjs.
-
-Because its in the middle of the night, I run upstairs (naked) to try to find literally anything that could cover me. A blanket, anything. I have no luck.
-
-SOMEHOW, someone is awake at 2 am, and they are looking for me. I figure out its my friends mom.
-
-She comes around the corner to see me huddled down on the floor looking like gollum from lord of the rings with only a tiny pillow to hid my shame.
-
-They gave me some clothes and I want to say that was the last time I ever slept at their house again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Licked the door of my snacks closet. The door. Not the snacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. He took off ALL of his clothes when I pointed him towards the sofa and said, “Make yourself comfortable.” He’d always been a bit of a joker but that was, perhaps, going a bit too far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. We went on holiday, hired local old lady cat sitter to mind the cats for the 10 days we were away. Nothing unusual with the cats care, we have plenty of extra food and water bowls, bags of litter, litter bags and scoop all left out.
-
-We get back, cats are good, house is fine, but next to the litter tray is the spaghetti scoop, you know that weird kitchen implement you never actually use - thats what she had been using to scoop their poop for the time we were away, the actual scoop which was right there, was unused.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I was a kid and invited another kid to my house (</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145292.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">Females Posting Their L’s Online Is the Karma We like to See</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 Dank Memes From Another Timeline </a><br>
-
-<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">22 Pics Proving Influencers Are the Worst</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">28 Facts That Might Be Revolutionary</a><br>
+## <a href="#linky9" id="linky8">28 Facts That Might Change Your Perspective </a><br>
 
 <span style="font-size:4em">1. The Earths crust is so thin, that it can be compared to the skin of an apple, with a thickness-to-diameter ratio of about .4%.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143256.jpg" style="width:100%"><br>
 
@@ -1034,7 +572,51 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">26. The women in this army were known for being ruthless, stopping at nothing to protect their kingdom. An Italian priest recounted a training exercise during which he watched the Amazons scale 120 meter-high thorn bushes. He said that not a single one complained during the exercise. The Amazons went on to inspire the Dora Milaje, the all-women army in the Black Panther franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143274.gif" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">31 People Who Lack Common Sense</a><br>
+## <a href="#linky10" id="linky9">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">31 People Who Lack Common Sense</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
 
@@ -1097,6 +679,274 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">24 Saddest Encounters With Celebrities</a><br>
+
+<span style="font-size:4em">1. My brother met Gene Simmons back stage at a show he was playing in. Gene complimented my brother highly on his guitar playing but then said too bad youll never make it and just walked away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I work for an airline, so I see some celebs from time to time. One time Tom Cruise cussed me out because I wouldnt violate federal law and bring his checked bags to him planeside. Made him go to baggage claim like everyone else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Went and saw Steve-O do his stand up tour. After his show, he said he would meet everybody there. We waited in line, and he was being super nice, laughing and taking pictures with everyone. Right before we got to the stage some fat, redneck asshole told him that he was funnier back when he was on drugs. It killed his whole vibe. When we got to him he just took a picture with us and said thanks for coming, but he was clearly in a bad mood. I dont blame him at all, he was still extremely nice, but he was clearly irritated. It was cool that he still met us and took a picture with us though. Seemed like a really cool dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Organized a good sized comic con, so Ive worked with quite a few. But the saddest was really subtle:
+
+Peter Mayhew (chewbacca), was in the green room for lunch on the 2nd day. He looks very tired and is almost totally wheelchair bound because of his terrible joint problems. Im sitting across from him while we eat and his assistant asks if his hand is feeling alright to sign more autographs (terrible arthritis).
+
+He closes his eyes and nods his head and whispers out how much longer will this go today? To which his assistant delicately replies just 5 more hours.
+
+And he whimpers a little and sheds a few tears as they wheel him away from the table and back out to the fans.
+
+The saddest part is that hes the nicest guy and never denies a fan while hes at the con and always smiles even though hes in loads of physical pain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I used to go to a small gym. The owners were laid back and had their cats roam around all the time. It was never an issue and people who went regularly would pet them in between sets. My husband and I go to the gym one day. Were the only ones there aside from a trainer in the corner with someone. My husband (a very observant man) tells me to go do some kettle bell swings. I thought it was weird but headed over to the kettle bell section. There is the trainer with Ben Affleck (training for Batman). I didnt want to disturb him, so I completely ignored him. Except its a small gym. So Im working out on the bench next to nice guy Ben, and I can feel him trying to acknowledge me. Suddenly I notice one of the cats starts to pee in the corner next to Ben. I shout NO! to stop the cat, and scoop him up. Ben turns to me and says Hey, is that your cat? Clearly trying to start conversation. I look at him and awkwardly say Its not my cat and walk away. I had an opportunity to talk to Batman and instead became the crazy cat lady. My husband was watching from afar, dying laughing. Now whenever I do something awkward my husband will scream Its not my cat!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I became interested in evolution and physical anthropology in high school after exploring the topic in books and discovered Richard Dawkins. I was in the process of reading another of his recent books when I found out he was doing a signing in the city. So I went to his talk and waiting in line to get an autograph.
+
+All through the Q&A session, people had great complex questions for him about his theories and ideas on evolution or certain species. I thought I would be clever and ask a simple and fun question. So in the cover of the book, I wrote, What is your favorite animal? I expected this to be refreshing when he went to sign my book.
+
+I got to the front and as he opened my book to sign it, he was a little thrown off. He gave me a look like I was mentally impaired and just signed his name.
+
+I was crushed and felt really embarrassed that my recent idol thought I was stupid. I wandered off through the racks of books and found a small group of 5 people huddled around one man speaking.
+
+I was curious and still trying to forget my last encounter, so I listened to this energetic man speak about the universe to this impromptu gathering. He was very knowledgeable and interactive. When I got a chance I asked him the same question, Whats your favorite animal? He was very happy with the question and went on a long explanation of why the wolf was his favorite and when he first encountered one in Yellowstone.
+
+I learned later that man was Neil Degrasse Tyson. What a day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Been waiting for a moment to tell this one. When I worked at a restaurant in Florida a few years ago Muhammad Ali and his family came in to eat. Me being a fanboy and knowing who Ali was kept staring from a distance, and eventually ran next-door to Books A Million to buy his biography King of the World and have him sign it.
+
+As he was leaving I stood and held the door open for them.
+
+His wife was helping him out of the door. He was looking at the ground. No speaking. Slow walking. Shaking from the Parkinsons.
+
+He got to the car and his wife was helping him in. I asked her if I could meet him and have him take a photo and an autograph.
+
+She was delighted and said sure! Cassius, this young man would like to meet you she said. I held out my hand and shook the hand of the greatest Boxer to ever live. The hand that knocked out Fraiser. That mighty right hook.
+
+I immediately started crying. (And tearing up right now). She said dont cry, its okay! I had to explain that its surreal to meet the famous Ali.
+
+She handed him the book and the sharpie and said Cassius he wants your autograph and she opened the book for him and put the pen in his hand. He took at least (no joke) 2 full minutes to sign his name. And it was at that point that it killed me. This was Cassius Clay. Muhammad Ali. The most charismatic, float like a butterfly sting like a bee, man in boxing history. And he was such a shell of his former self because of the Parkinsons. It was so heartbreaking. It really was.
+
+She then took a photo of us together and I thanked him, and her and went on my way.
+
+But god damn that will be the saddest moment meeting a celebrity I think Ill have face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I got c*ckblocked by Brad Pitt.
+
+I was an extra in World War Z and I met this girl there and we were talking and all was great until one time Brad Pitt walks by.
+
+Was very friendly to her... totally blanked me.
+
+His stunt double was a cool dude though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Betty White. It was right after the Golden Girls (and Golden Palace) had ended. Her career was not in the best place at the time. I was at the Beverly Center in Los Angeles and saw a poster promoting Betty White signing her latest book about how much she loves animals. I liked the Golden Girls so I thought I would swing by the bookstore to take a gander at Betty White. It was so sad. Ill always remember she was sitting alone at a big table with a stack of books in front of her. People were in the bookstore shopping but no one was buying her book or really acknowledging her. She just sat there, pen in hand, waiting. She would occasionally wipe off some imaginary dust to look busy. Im getting the chills just remembering it. Of course, I was such a self-involved college kid that I just stared at her from far away. I should have just gone up and talked to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I was drunk at a friends bachelor party in vegas in 95. We are walking through the casino, and I see this glorious man with what can only be described as the aura of a movie star around him. I immediately recognize him as Sammy Davis Jr. I run up and say Sammy can I get an autograph?! and he just turns around like he didnt hear me and starts walking. Thinking he couldnt hear me I kind of yell Sammy Davis Jr!. He turns around, looks right at me, and says Youre a real asshole.
+
+I was pretty oblivious and had no idea why Sammy Davis Jr. was treating me like I had slapped his little sisters ass. For a few years after that every time his name came up I told people how big of a jerk Sammy David Jr. was. Fast forward to a few years later and Im watching the movie Renaissance Man with Danny Devito and Im like wait I didnt know Sammy David Jr was in this movie ....which caused me to imdb it ...and it all finally clicked.
+
+I had called Gregory Hines Sammy Davis Jr. to his face 5 years after Sammy died. It was probably the most delayed embarrassment Ive ever felt in my life.
+
+tldr: I have no idea what Sammy Davis jr. looks like.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I met George R. R. Martin at the Blaze Pizza in Evanston a couple of months back when he was in town to accept an award from Northwestern University. At the time, I was listening to the audiobook of A Clash of Kings, and he very excitedly told me, Youve got a ways to go to catch up! When I told him that Ive already read what hes published three times, and am listening to the audiobook as a new way to experience the story, he just kind of ... deflated. He let out a big sigh, and just said, Yeah, I need to finish the next book. People wont stop bothering me about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. After Katrina, my now-wife and her then-boyfriend were in Whole Foods in New Orleans, shopping. There was a guy there who looked like Laurence Fishburne, and the boyfriend turns my wife and says, loudly, Damn! Laurence Fishburne got fat!
+
+The man turns around slowly and just stands there, looking at them, forlorn. It was Laurence Fishburne.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Saw Robin Williams in a bar downtown Toronto. he was so hammered and non coherent. My girlfriend and I tried to speak to him but only slurs and spit bubbles came out of his mouth, he fell on the dance floor twice and looked ready to pass out. To see My childhood hero in such a mess made me really sad. Some girl at the bar was hitting on him then after my gf asked him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I was working as a concierge at a high end resort in Park City, Utah. Justin Timberlake was staying with us for Sundance, and one of his entourage called the front desk and let us know their internet was being flaky. I was the go-to tech guy, so I ran up to his room and restarted the router for them, and I was hero of the night to everyone in the room. Literally, high fives and chest bumps. As I was riding the elevator down, I heard Timberlake in the garage (great acoustics) BELTING out one of his songs as he was waiting on the lift. The door opened, and we were standing face to face, and I said I dig your sound, man. He looked at me dismissively and said You should. I get paid for it. and walked past me like a schoolyard bully, complete with shoulder bump.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Met Vince Vaughn in a bar in Hollywood. He was with his entourage or whatever, and had quite a few drinks. He hit on a (girl) friend of mine, and I was amazed to see her totally blow him off. Not that she should have gone for it, but it was pretty incredible to see a multi-millionaire movie star get rejected by an accountant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My saddest celebrity encounter was also my greatest. When I was in college I was an extra in a few scenes of We Were Soldiers, a Vietnam movie with Mel Gibson and Sam Elliott. While I was waiting for a bus to take me back to wardrobe one of the casting guys came up and picked me out of the crowd and asked me if I wanted to be in another scene with Sam Elliott. Of course I was ecstatic. I sat in this van waiting for Sam to come out and it was going to drive us to the scene.
+
+Finally he comes out looking all pissed off and sits in the front seat. Against my better judgement I said something to the effect of, Mr Elliott Im a huge fan of yours and its an honor to be in a scene with you. He snaps back: Shut the f*ck up kid. Needless to say when Sam Elliott tells you to STFU, you do it. So thats the sad part, though getting cussed out by a guy who typically plays the badass in movies was cool in some way.
+
+We film the scene which is a short scene where he walks by Chris Klein and cusses at him about something. We film it over and over and Im just some soldier walking by in the background. Occasionally between takes Sam would look over at me and scowl. After its done we get back in the van to head back and Sam is again in the van. He turns around and says, Sorry about earlier kid, I just didnt want to f*ck up my mood for the scene. I appreciate the compliment. Suddenly it dawned on me that when he cussed at me he was trying to stay in character for the upcoming scene. Pretty cool experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Rachel Weisz. I never let on that I knew who she was and just chatted happily with her as the conversation dwindled and she became more sullen and withdrawn. Finally she snapped at me about something and I immediately sat back and went silent. A couple minutes after, she got up to use the restroom and her nanny leaned over and said simply and quietly, She gets upset if you dont acknowledge who she is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Well, I once wanted to get Daryl Hannahs autograph for my friend who had been crushing on her since FOREVER. I couldnt summon up my courage to approach her directly, so I just asked the dude sitting next to her. He put me off very politely.
+
+I went back to my friends emptyhanded and was complimentary of Mr. Nobodys manners. They told me Id just asked JFK Jr for Daryls autograph.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My mom found Paris Hilton incognito in an airport, came to find me, brought me to a tiny lady in a hoodie and big sunglasses in the middle of the airport, goes hi are you Paris Hilton? Then pushed me in front of her and said here, say hi to my son! Like I was a weird birthday gift or something.
+
+She said sup. I said sup then she did this weird little laugh. Then my mom goes okay bye!
+
+That was my sad and awkward meeting with Paris Hilton in an airport.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. DMX very graciously held a door open for me recently. It was a nice encounter until I saw in the news the next day that he had been found unconscious in the parking lot later that evening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Met Samuel L. Jackson at a celebrity golf pro am. Shook his hand after I found his ball in the rough and asked him to sign my wallet the one that says BAD MOTHER F*CKER Id bought off eBay since I love Pulp Fiction so much. Had the marker and all. He just said No chance. That feeling of disappointment will be forever with me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I was at a cheese shop in the West Village (I realize how douchey this sounds) when I noticed James Spader was at the counter. I was in the middle of a massive Boston Legal binge at the time and absolutely adored his work. So I went to the counter and started looking at the cheese (this is casual, its a cheese shop for f*cks sake). He was sampling cheeses and I just looked at this man whose work I so admired and respected and said hows the Gouda? Apparently its delicious. Stupid. Stupid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Eminem. I just think its F*CKED UP he dont answer fans If he didnt wanna talk to me outside his concert he didnt have to, but he coulda signed an autograph for Matthew Thats my little brother man, hes only six years old We waited in the blistering cold for him, four hours and he just said, No.
+
+Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Aziz Ansari hit on me years ago and I was too starstruck to remember how to talk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144467.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">16 Mildly Annoying Irritations</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Dank Memes From Another Timeline </a><br>
+
+<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
+
+<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
 
 ## <a href="#linky16" id="linky15">50 Fun Randoms to Obliterate Boredom</a><br>
 
@@ -1200,141 +1050,105 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143943.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
+## <a href="#linky17" id="linky16">22 Pics Proving Influencers Are the Worst</a><br>
 
-<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
+## <a href="#linky18" id="linky17">What The F**k Is Going On In These Pictures?</a><br>
 
-<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">16 Odd Items With Simple Explanations</a><br>
+<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “What is this type of clamp used for?”
-
-Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “What is this thing?”
-
-Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Could anyone help me identify this object?”
-
-Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
-
-Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
-
-Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I need some help identifying this object.”
-
-Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “What could this be?”
-
-Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
-
-Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
-
-Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
-
-Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “What is this object?”
-
-Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
-
-Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
-
-Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
-
-Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
-
-Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
-
-Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
