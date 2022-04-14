@@ -1,159 +1,139 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/14/2022-08:11:31
+Last updated: 04/14/2022-09:11:31
 <br>
-## <a href="#linky2" id="linky1">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+## <a href="#linky2" id="linky1">32 Photos that Might Make You Question Reality</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Accidental twins!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144528.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “I need an exterminator!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “I didn’t even notice the boots at first, even though I read the title.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Too much cat”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144524.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My car looks like it’s missing the back wheel at this angle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144526.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Pants aren’t the only camouflage going on in the picture. A couple of snugging pups on a Sunday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144527.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Four legs vs no legs”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144523.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Reversed leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144529.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “My campus has a sign begging us to step on the grass.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “After I poured milk into my coffee, I found Snoopy on the doghouse under the moon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My friend has a levitating dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144532.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Hi there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144533.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “This truck carrying a heavy load”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144534.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Flower lady”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144521.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I match the bathroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “My husband has really, really short legs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I found a 2-headed duck!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A building near my house looks like a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Watched Obsessive Compulsive Cleaners when I spotted this fine gentleman wearing a little fancy hat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144525.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Mirror or window?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Floating trailer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144540.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">27 Fresh Memes of the Dankest Kind</a><br>
+<span style="font-size:4em">22. “A dog-chicken centaur”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Oh you better bet your sweet ass I can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143450.png" style="width:100%"><br>
+<span style="font-size:4em">23. “My left hand is built different.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Ha, jokes on me then. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143451.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Is he inside or beside the car?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Not gonna lie, they had us in the first. half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143452.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Weird headless creature, or a dog enjoying the start of spring?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Johnny Bravo was the original Chad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143453.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. “Is the pole going through the table?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hes got potential! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143454.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. “Which paw goes with which leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Why would you do that? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143455.png" style="width:100%"><br>
+<span style="font-size:4em">28. “These stairs at a restaurant I went to look like a painting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Any day now, any day now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143456.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “The dunes of Namibia on a duvet cover”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. You couldnt live with my comment, and look where that brought you, back to me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143457.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. These reflections on a glass building</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The fourth dimension is chalk full of lids and left socks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143458.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. This roof that extends for way too long</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. And if you cant carry ten bags at one time, you arent trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143459.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. “Transparent mountains”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Do you know what the hell this guy is talking about? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143460.png" style="width:100%"><br>
+## <a href="#linky3" id="linky2">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
 
-<span style="font-size:4em">12. If you know, you know. And if you dont then your childhood was a wash. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143463.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I think theyll be okay, they are professional (actors) after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143461.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Well, this will be haunting my dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The date may change but dad jokes have always remained the same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143462.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Its always nice to see a celebrity embracing memes about themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143464.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Its my lucky day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143465.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143313.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Okay, now Grandma is spitting. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143466.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143467.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Too early? Okay you got me, Ill stay an extra hour. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143468.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. *AI is going to take over* -  AI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143449.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143469.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. I see a fish, what do you see? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143470.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Schools: Am I the problem? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143471.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. HA, jokes on them, me who hasnt grown since 5th grade. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143472.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143473.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143323.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143474.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143324.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. This is not what we had intended they would do with this power, but okay, you do you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143475.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143325.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Things We Are Sick and Tired of Explaining</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143326.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Silicone and latex are two completely different materials.-u/MajorHotLips </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143652.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. That I need time for myself. Like, its not that I need time away from you. I just need time with me.-u/R0ttenHeimer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143653.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My eyes are insanely sensitive to light. Sunlight & fluorescent. LED, CFL, & incandescent above maybe 40 watts. Phones, computer screens, TVs.So I’m not wearing the sunglasses inside because I’m hungover or on drugs or trying to look super cool. I’m wearing them inside so I don’t think about gouging my eyes out every 3 minutes.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143650.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. That the animals in my care are rescues, and that I did not inflict the injuries/illnesses they have on them.-u/LizardPossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143655.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The difference between a debit card vs. a credit card. Yea I have to explain this to adults on a daily basis.-u/Ihavenogoodusername</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143656.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143331.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you require five years of experience, it isnt entry-level-u/SoFastMuchFurious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143657.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Surrounds and rears are 2 different speaker locations and neither of them go into the ceiling.-u/Anbucleric</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143658.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Before I got my current job a month ago, I only had about 6 other interviews over the course of 5 months. At most of them, the recruiter would always be so confused about why Ive lived in so many places and it was so annoying and weird. I was a military kid, my parents moved when I was in college and now I live in a completely different state from them because thats where my fiance ended up. I dont really understand why thats confusing. People move more often now than they ever have.-u/cihojuda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143659.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143334.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. That I can produce quick work, or quality work. You can’t have both. Got sick of explaining this to the same people over and over… so I quit my job and got a better one.-u/AutoCAD_Bane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143660.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Red Green color blindness. Now when it comes up instead of playing the “what color is this?” game I have a picture on my phone that illustrates how different color visions see things.-u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143651.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. That just because I dont talk to people, doesnt mean Im lonely. Im perfectly fine being alone with myself. Alone does not equal lonely.-u/Eh_Its_Ok_I_Guess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143661.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. That you can be young and still have chronic illnesses/disabilities.-u/alexadb123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143662.jpeg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Yes, I can code, but no I cant fix your PC that wont turn on for some reason.-u/YARR1N</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143663.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Why we need to stop planting exotic plant species.-u/TheCharles510</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143664.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143340.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The difference between type 1 and type 2 diabetes. As a type 1 diabetic, I get asked this all the time or people confuse type 1 with type 2. They’re very different diseases.-u/Dumbledore27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143665.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. That depression and anxiety take a toll on me more than people realize. I can’t do some things due to it and that’s that.-u/frostysushituna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Why I’m deaf. Or how I became deaf. Or having to repeatedly explain that using your mouth to communicate doesn’t work.-u/Wit-Hoid6674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Why we dont have kids.Whether or not we want kids is no ones business, and the fact that were probably not able to is even less so.-u/candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. That being neat and organized, or being “germaphobic” does not equal having OCD.-u/SnickasTheRaccoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Correlation is NOT causation!!!!!!!!!!!!!!!-u/LockDue9383</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143670.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. The logical fallacy of denying the antecedent.(Basically, if A then B does not mean if B then A - it means if not B then not A.)-u/Cyborg_Ninja_Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Let the water boil, THEN add spaghetti-u/Poorly-Drawn-Beagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Introverted means that you get mentally exhausted around people, but energized when on your own. It DOES NOT mean that you are shy or socially anxious.-u/Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. That evolution is simply a change in allele frequency over time and that there is no “end goal”. So many people don’t understand the basic concept but choose not to believe it.-u/good_god_lemon1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Vaccines do not cause autism.-u/LaAndala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143675.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">16 Odd Items With Simple Explanations</a><br>
+## <a href="#linky4" id="linky3">16 Odd Items With Simple Explanations</a><br>
 
 <span style="font-size:4em">1. “What is this type of clamp used for?”
 
@@ -219,7 +199,7 @@ Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot wat
 
 Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">What The F**k Is Going On In These Pictures?</a><br>
+## <a href="#linky5" id="linky4">What The F**k Is Going On In These Pictures?</a><br>
 
 <span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
 
@@ -275,53 +255,63 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">22 Pics Proving Influencers Are the Worst</a><br>
+## <a href="#linky6" id="linky5">27 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Oh you better bet your sweet ass I can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143450.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Ha, jokes on me then. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Not gonna lie, they had us in the first. half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Johnny Bravo was the original Chad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Hes got potential! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Why would you do that? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143455.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Any day now, any day now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. You couldnt live with my comment, and look where that brought you, back to me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The fourth dimension is chalk full of lids and left socks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. And if you cant carry ten bags at one time, you arent trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Do you know what the hell this guy is talking about? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143460.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. If you know, you know. And if you dont then your childhood was a wash. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The date may change but dad jokes have always remained the same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Its my lucky day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Okay, now Grandma is spitting. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Too early? Okay you got me, Ill stay an extra hour. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. *AI is going to take over* -  AI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. I see a fish, what do you see? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143470.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">31 People Who Lack Common Sense</a><br>
+<span style="font-size:4em">23. Schools: Am I the problem? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. HA, jokes on them, me who hasnt grown since 5th grade. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143473.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143474.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. This is not what we had intended they would do with this power, but okay, you do you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143475.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">31 People Who Lack Common Sense</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
 
@@ -385,7 +375,7 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 Small Movie Details With Big Implications </a><br>
+## <a href="#linky8" id="linky7">20 Small Movie Details With Big Implications </a><br>
 
 <span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
 
@@ -427,76 +417,149 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
+## <a href="#linky9" id="linky8">22 Pics Proving Influencers Are the Worst</a><br>
 
-<span style="font-size:4em">1. Q - Who is your favorite character in all of literature and film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043143/87144050/east-of-eden.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-A - That is so hard to answer. I will say that James Dean’s performance as Cal in East of Eden is largely the reason I became a film actor. His role in that is one of my favorite characters in cinema. But then we can go all the way to Rasputin or we can go to Dmitri Karamazov. Dmitri Karamazov is one my favorite characters in literature. I love him so much because he’s so happy and he has no money. He’s just living it up. He spent all his money trying to get the girl. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043715/87144052/download.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-
-I did the same thing once. I was very Dmitri Karamazov in high school. The most beautiful girl in high school who was a grade older than me invited me to the prom but I had no money. My grandmother gave each of us a little bond. My older brother bought a car. My second oldest brother bought some stereo equipment. And I splashed out on a chauffeur-driven limousine, a tuxedo and a four course meal at Le Dome on Sunset blvd. The car was $2000, the stereo was $2000, and my prom night was $2000 and man, that was money well spent. THAT’s Dmitri Karamazov.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043835/87144053/34017122-8807887-image-m-131_1601929849363.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Q: I have a 2 regarding the movie Willys Wonderland. Did you or the director decide that you would not say a single word the whole movie, and 2, every time you went to recharge (grab a can from 6 pack) was it secretly filled with alcohol or anything like that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044016/87144055/image.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-A: The dialogue for my character in Willy’s Wonderland was very sparse, so I decided with Kevin, the director, to go full Harpo Marx and take all the dialogue out because I thought that would be a fun acting challenge to see how much I could communicate without words and only with movement and facial expressions. I’m very happy with the results of Willy’s Wonderland. It was a good experiment. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044156/87144056/the_unbearable_weight_of_massive_talent_229253.0.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-The can question is an interesting one, and I hesitate to answer it for you because your relationship with the movie is far more important than my relationship with the movie and so you as the audience member can imagine and surmise whatever you want to be in that can. That is a far better answer and reason for the can than anything I could tell you. I want YOUR opinion as to what was in the can, because that was the right opinion.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044416/87144058/merlin_190797741_3bd42c19-5686-46c9-b90d-99f6c84d2c13-mobileMasterAt3x.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Q: You and Pedro seemed like you had so much fun making this movie; what is one story you don’t mind sharing that you haven’t yet about your experience with filming and working with Pedro? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044521/87144059/EB20040425REVIEWS08404250302AR.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-A: First and foremost, Pedro Pascal is a genuinely nice man. You couldn’t ask for a nicer more pleasant person to work with. Second, he has a very unique sense of humor. It’s the kind of sense of humor where I don’t know if he’s really making a joke or he isn’t making a joke. Such as comment about the appearance of a cabbage in a cabbage field. And it made me wonder if he was a method actor and was in character and adding a kind of confused dimension to the Javi role, or if he genuinely thought the cabbage was amusing. I am still confounded by this. I mean who makes a joke about cabbage, except him? It’s just not funny!
-
-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044628/87144064/3000.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Q: What has been your most challenging role to get into character each day to film? What is your favorite character that youve ever portrayed? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044732/87144065/1498576162376-cage12.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-A: I would say that Nick Cage in Massive Talent was the most challenging role I had to get into character for because I had the added component of trying to protect a person named Nick Cage and also facilitating the director’s absurdist vision of so-called Nick Cage and it was a highwire act every day. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044931/87144066/343423131441.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-Again, Pig is my favorite performance of mine, and I think that movie, along with Scorsese’s Bringing Out The Dead are arguably my two best movies as a whole</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045052/87144067/MV5BMTMzNzA0MTUzNF5BMl5BanBnXkFtZTcwNTEyNzkwNQ@@._V1_.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Q: I know you have a love of the silent era, especially the German expressionist stuff. What’s your favorite silent film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045208/87144068/52744-posts.facebook_lg.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-A: Boy that’s a hard list to conjure up because there are so many memorable ones but I would say that Lon Chaney in Phantom of the Opera comes to mind but Nosferatu, Schreck, his performance, and even Barrymore in Jekyll and Hyde. I think that Barrymore did more to inspire Schreck’s performance than the other way around. Oh, and anything Chaplin did was magic: City Lights, Modern Times. It depends on the season!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045410/87144069/05a.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Q: Pig was an absolutely incredible film, what drew you to that project, and why do you think that it struck a cord with so many people? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045541/87144092/1308201.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-A: Thank you. I was interested in returning to a more quiet, naturalistic style of film performance, having done a series of more operatic performance styles. The movie feels rather like a folk song to me or a poem, and the character of Rob was contending with tremendous grief and self imposed isolation and I think we as a group of people experiencing a pandemic in 2020-21 we’re probably also having similar feelings of loss and isolation and it communicated to a nerve we were all experiencing. Its one of my favorite movies, and its probably my best work.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045655/87144093/wild-at-heart-slide-1.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Q: Have you seen Leaving Las Vegas recently? I think that is my all time favorite Nicolas Cage performance. How do you feel thinking back on Leaving Las Vegas and your performance in it? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045942/87144094/types-of-pasta-1581024990.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-A: Thank you. I think Leaving Las Vegas, Pig and Bringing Out The Dead are my three favorite performances of my own body of work. I have not seen Leaving Las Vegas recently, however that movie and Elizabeth Shue’s work in that movie are what I aspire to continue towards, and did continue towards with Pig, which is why I am always going to be up for small budget, independent, dramas.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050203/87144095/1500386626-credit-melinda-sue-gordon.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Q: Ethan Hawke said that youre the first actor since Marlon Brando to do something new with the art of acting. Any thoughts on that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050341/87144096/nationaltreasure_niccage1.gif" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> 
-
-A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with Ethan in Lord of War and have always been spellbound by his talent. I think many of the choices I’ve made have been inspired by film stars from the silent era as well as cultural expression of performance like Kabuki and some of the Golden Age actors like Cagney so I don’t know how to say I’ve done something new because those elements are always on my mind
-
-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050509/87144097/nic-cage-ghost-rider.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Q: Do you like bees? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050649/87144098/d4c2dea5-9622-4d81-badd-6c051488dd3e-national-treasure.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">25 Things We Are Sick and Tired of Explaining</a><br>
+
+<span style="font-size:4em">1. Silicone and latex are two completely different materials.-u/MajorHotLips </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. That I need time for myself. Like, its not that I need time away from you. I just need time with me.-u/R0ttenHeimer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My eyes are insanely sensitive to light. Sunlight & fluorescent. LED, CFL, & incandescent above maybe 40 watts. Phones, computer screens, TVs.So I’m not wearing the sunglasses inside because I’m hungover or on drugs or trying to look super cool. I’m wearing them inside so I don’t think about gouging my eyes out every 3 minutes.-u/ghosts-go-boo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. That the animals in my care are rescues, and that I did not inflict the injuries/illnesses they have on them.-u/LizardPossum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143655.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. The difference between a debit card vs. a credit card. Yea I have to explain this to adults on a daily basis.-u/Ihavenogoodusername</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you require five years of experience, it isnt entry-level-u/SoFastMuchFurious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Surrounds and rears are 2 different speaker locations and neither of them go into the ceiling.-u/Anbucleric</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Before I got my current job a month ago, I only had about 6 other interviews over the course of 5 months. At most of them, the recruiter would always be so confused about why Ive lived in so many places and it was so annoying and weird. I was a military kid, my parents moved when I was in college and now I live in a completely different state from them because thats where my fiance ended up. I dont really understand why thats confusing. People move more often now than they ever have.-u/cihojuda</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143659.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. That I can produce quick work, or quality work. You can’t have both. Got sick of explaining this to the same people over and over… so I quit my job and got a better one.-u/AutoCAD_Bane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143660.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Red Green color blindness. Now when it comes up instead of playing the “what color is this?” game I have a picture on my phone that illustrates how different color visions see things.-u/firenamedgabe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That just because I dont talk to people, doesnt mean Im lonely. Im perfectly fine being alone with myself. Alone does not equal lonely.-u/Eh_Its_Ok_I_Guess</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143661.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. That you can be young and still have chronic illnesses/disabilities.-u/alexadb123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143662.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Yes, I can code, but no I cant fix your PC that wont turn on for some reason.-u/YARR1N</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Why we need to stop planting exotic plant species.-u/TheCharles510</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The difference between type 1 and type 2 diabetes. As a type 1 diabetic, I get asked this all the time or people confuse type 1 with type 2. They’re very different diseases.-u/Dumbledore27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That depression and anxiety take a toll on me more than people realize. I can’t do some things due to it and that’s that.-u/frostysushituna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why I’m deaf. Or how I became deaf. Or having to repeatedly explain that using your mouth to communicate doesn’t work.-u/Wit-Hoid6674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Why we dont have kids.Whether or not we want kids is no ones business, and the fact that were probably not able to is even less so.-u/candlecrusher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. That being neat and organized, or being “germaphobic” does not equal having OCD.-u/SnickasTheRaccoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Correlation is NOT causation!!!!!!!!!!!!!!!-u/LockDue9383</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143670.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. The logical fallacy of denying the antecedent.(Basically, if A then B does not mean if B then A - it means if not B then not A.)-u/Cyborg_Ninja_Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Let the water boil, THEN add spaghetti-u/Poorly-Drawn-Beagle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Introverted means that you get mentally exhausted around people, but energized when on your own. It DOES NOT mean that you are shy or socially anxious.-u/Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. That evolution is simply a change in allele frequency over time and that there is no “end goal”. So many people don’t understand the basic concept but choose not to believe it.-u/good_god_lemon1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Vaccines do not cause autism.-u/LaAndala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87143675.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
 
 <span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
 
@@ -568,115 +631,74 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">32 Really WTF Things Posted by Companies and Celebrity Accounts</a><br>
+## <a href="#linky13" id="linky12">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
 
-<span style="font-size:4em">1. I think theyll be okay, they are professional (actors) after all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143311.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Q - Who is your favorite character in all of literature and film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043143/87144050/east-of-eden.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Well, this will be haunting my dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143310.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+A - That is so hard to answer. I will say that James Dean’s performance as Cal in East of Eden is largely the reason I became a film actor. His role in that is one of my favorite characters in cinema. But then we can go all the way to Rasputin or we can go to Dmitri Karamazov. Dmitri Karamazov is one my favorite characters in literature. I love him so much because he’s so happy and he has no money. He’s just living it up. He spent all his money trying to get the girl. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043715/87144052/download.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Its always nice to see a celebrity embracing memes about themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143314.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+
+I did the same thing once. I was very Dmitri Karamazov in high school. The most beautiful girl in high school who was a grade older than me invited me to the prom but I had no money. My grandmother gave each of us a little bond. My older brother bought a car. My second oldest brother bought some stereo equipment. And I splashed out on a chauffeur-driven limousine, a tuxedo and a four course meal at Le Dome on Sunset blvd. The car was $2000, the stereo was $2000, and my prom night was $2000 and man, that was money well spent. THAT’s Dmitri Karamazov.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043835/87144053/34017122-8807887-image-m-131_1601929849363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143312.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Q: I have a 2 regarding the movie Willys Wonderland. Did you or the director decide that you would not say a single word the whole movie, and 2, every time you went to recharge (grab a can from 6 pack) was it secretly filled with alcohol or anything like that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044016/87144055/image.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143313.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+A: The dialogue for my character in Willy’s Wonderland was very sparse, so I decided with Kevin, the director, to go full Harpo Marx and take all the dialogue out because I thought that would be a fun acting challenge to see how much I could communicate without words and only with movement and facial expressions. I’m very happy with the results of Willy’s Wonderland. It was a good experiment. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044156/87144056/the_unbearable_weight_of_massive_talent_229253.0.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143315.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+The can question is an interesting one, and I hesitate to answer it for you because your relationship with the movie is far more important than my relationship with the movie and so you as the audience member can imagine and surmise whatever you want to be in that can. That is a far better answer and reason for the can than anything I could tell you. I want YOUR opinion as to what was in the can, because that was the right opinion.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044416/87144058/merlin_190797741_3bd42c19-5686-46c9-b90d-99f6c84d2c13-mobileMasterAt3x.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143316.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Q: You and Pedro seemed like you had so much fun making this movie; what is one story you don’t mind sharing that you haven’t yet about your experience with filming and working with Pedro? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044521/87144059/EB20040425REVIEWS08404250302AR.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143317.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+A: First and foremost, Pedro Pascal is a genuinely nice man. You couldn’t ask for a nicer more pleasant person to work with. Second, he has a very unique sense of humor. It’s the kind of sense of humor where I don’t know if he’s really making a joke or he isn’t making a joke. Such as comment about the appearance of a cabbage in a cabbage field. And it made me wonder if he was a method actor and was in character and adding a kind of confused dimension to the Javi role, or if he genuinely thought the cabbage was amusing. I am still confounded by this. I mean who makes a joke about cabbage, except him? It’s just not funny!
+
+</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044628/87144064/3000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143318.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Q: What has been your most challenging role to get into character each day to film? What is your favorite character that youve ever portrayed? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044732/87144065/1498576162376-cage12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143319.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+A: I would say that Nick Cage in Massive Talent was the most challenging role I had to get into character for because I had the added component of trying to protect a person named Nick Cage and also facilitating the director’s absurdist vision of so-called Nick Cage and it was a highwire act every day. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044931/87144066/343423131441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143320.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+Again, Pig is my favorite performance of mine, and I think that movie, along with Scorsese’s Bringing Out The Dead are arguably my two best movies as a whole</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045052/87144067/MV5BMTMzNzA0MTUzNF5BMl5BanBnXkFtZTcwNTEyNzkwNQ@@._V1_.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143321.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Q: I know you have a love of the silent era, especially the German expressionist stuff. What’s your favorite silent film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045208/87144068/52744-posts.facebook_lg.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143322.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+A: Boy that’s a hard list to conjure up because there are so many memorable ones but I would say that Lon Chaney in Phantom of the Opera comes to mind but Nosferatu, Schreck, his performance, and even Barrymore in Jekyll and Hyde. I think that Barrymore did more to inspire Schreck’s performance than the other way around. Oh, and anything Chaplin did was magic: City Lights, Modern Times. It depends on the season!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045410/87144069/05a.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143323.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Q: Pig was an absolutely incredible film, what drew you to that project, and why do you think that it struck a cord with so many people? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045541/87144092/1308201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143324.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+A: Thank you. I was interested in returning to a more quiet, naturalistic style of film performance, having done a series of more operatic performance styles. The movie feels rather like a folk song to me or a poem, and the character of Rob was contending with tremendous grief and self imposed isolation and I think we as a group of people experiencing a pandemic in 2020-21 we’re probably also having similar feelings of loss and isolation and it communicated to a nerve we were all experiencing. Its one of my favorite movies, and its probably my best work.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045655/87144093/wild-at-heart-slide-1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143325.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Q: Have you seen Leaving Las Vegas recently? I think that is my all time favorite Nicolas Cage performance. How do you feel thinking back on Leaving Las Vegas and your performance in it? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045942/87144094/types-of-pasta-1581024990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143326.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+A: Thank you. I think Leaving Las Vegas, Pig and Bringing Out The Dead are my three favorite performances of my own body of work. I have not seen Leaving Las Vegas recently, however that movie and Elizabeth Shue’s work in that movie are what I aspire to continue towards, and did continue towards with Pig, which is why I am always going to be up for small budget, independent, dramas.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050203/87144095/1500386626-credit-melinda-sue-gordon.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143327.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Q: Ethan Hawke said that youre the first actor since Marlon Brando to do something new with the art of acting. Any thoughts on that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050341/87144096/nationaltreasure_niccage1.gif" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143328.jpg" style="width:100%"><br>
+<span style="font-size:4em"> 
+
+A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with Ethan in Lord of War and have always been spellbound by his talent. I think many of the choices I’ve made have been inspired by film stars from the silent era as well as cultural expression of performance like Kabuki and some of the Golden Age actors like Cagney so I don’t know how to say I’ve done something new because those elements are always on my mind
+
+</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050509/87144097/nic-cage-ghost-rider.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143341.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">21 Cool Designs That Really Need to Catch On </a><br>
-
-<span style="font-size:4em">1. “This parking garage has a slide.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “This little extra lip to make lifting the seat a little easier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “I made a metal cactus for my hats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143629.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. “This frosted mirror display for a squeegee at IKEA”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Thought you guys might appreciate this little table I designed and built!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143632.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. “This kinetic sidewalk generates electricity when you walk on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143633.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “There’s a replica of the moon in the Natural History Museum. It’s awesome.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Hexagonal paper for drawing organic compounds”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I tried to bring some design to the market of houses for cats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “An idea to try stopping trash from flowing down the drain into our rivers and seas...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143637.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My wife got me a magnet bracelet for holding onto screws as I fix things.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143638.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This fridge has a compartment on the front just for drinks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “As a tall person, I greatly appreciate this sink design.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “This furniture hardware is sorted by step rather than by type.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “The drain is right under the soap dispenser so it doesn’t stain the sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “A clever use of the captain’s arm”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “These public swing-powered chargers for your phone in a train station”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “At the Uffizi Gallery in Florence, they have versions of paintings so that blind visitors can still enjoy the art.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “This chess set from 1972 has the valid moves for each piece stamped on their bases, making the game much easier for beginners to learn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Semi-hidden lights”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “This amazing bench in Alexandria’s library, Egypt”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143648.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Q: Do you like bees? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050649/87144098/d4c2dea5-9622-4d81-badd-6c051488dd3e-national-treasure.png" style="width:100%"><br>
 
 ## <a href="#linky14" id="linky13">50 Fun Randoms to Obliterate Boredom</a><br>
 
@@ -780,45 +802,47 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143943.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Dudes Post Their Wins Online and We Love to See It</a><br>
+## <a href="#linky15" id="linky14">21 Cool Designs That Really Need to Catch On </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015750/87144024/brain.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “This parking garage has a slide.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015753/87144025/coffee.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “This little extra lip to make lifting the seat a little easier”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015801/87144026/cup.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “I made a metal cactus for my hats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143629.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015805/87144027/dad.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “This frosted mirror display for a squeegee at IKEA”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015812/87144028/dog.png" style="width:100%"><br>
+<span style="font-size:4em">5. “Thought you guys might appreciate this little table I designed and built!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143632.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015816/87144029/duck.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “This kinetic sidewalk generates electricity when you walk on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143633.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015918/87144040/swim.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “There’s a replica of the moon in the Natural History Museum. It’s awesome.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015823/87144030/egg.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Hexagonal paper for drawing organic compounds”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015828/87144031/elden.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “I tried to bring some design to the market of houses for cats.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015834/87144032/garfield.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “An idea to try stopping trash from flowing down the drain into our rivers and seas...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143637.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015839/87144033/gator.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My wife got me a magnet bracelet for holding onto screws as I fix things.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143638.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015845/87144034/hospital.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “This fridge has a compartment on the front just for drinks.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015851/87144035/kanye.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “As a tall person, I greatly appreciate this sink design.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015856/87144036/macho.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “This furniture hardware is sorted by step rather than by type.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015902/87144037/river.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “The drain is right under the soap dispenser so it doesn’t stain the sink.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015907/87144038/safe.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “A clever use of the captain’s arm”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015913/87144039/skate.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “These public swing-powered chargers for your phone in a train station”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015924/87144041/taco.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “At the Uffizi Gallery in Florence, they have versions of paintings so that blind visitors can still enjoy the art.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015929/87144042/vet.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “This chess set from 1972 has the valid moves for each piece stamped on their bases, making the game much easier for beginners to learn.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/015936/87144043/wwe.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Semi-hidden lights”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “This amazing bench in Alexandria’s library, Egypt”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143648.jpg" style="width:100%"><br>
 
