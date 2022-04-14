@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/14/2022-14:11:31
+Last updated: 04/14/2022-15:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 Fresh Memes of Unspeakable Dankness</a><br>
 
@@ -43,63 +43,7 @@ Last updated: 04/14/2022-14:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144205.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">27 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. Oh you better bet your sweet ass I can. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143450.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Ha, jokes on me then. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Not gonna lie, they had us in the first. half. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Johnny Bravo was the original Chad. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Hes got potential! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Why would you do that? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143455.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Any day now, any day now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. You couldnt live with my comment, and look where that brought you, back to me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The fourth dimension is chalk full of lids and left socks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. And if you cant carry ten bags at one time, you arent trying hard enough. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Do you know what the hell this guy is talking about? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143460.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. If you know, you know. And if you dont then your childhood was a wash. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The date may change but dad jokes have always remained the same. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Its my lucky day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Okay, now Grandma is spitting. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. get it? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Too early? Okay you got me, Ill stay an extra hour. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. *AI is going to take over* -  AI</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I see a fish, what do you see? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Schools: Am I the problem? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. HA, jokes on them, me who hasnt grown since 5th grade. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143473.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143474.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. This is not what we had intended they would do with this power, but okay, you do you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87143475.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
+## <a href="#linky3" id="linky2">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
 
 <span style="font-size:4em">1. Q - Who is your favorite character in all of literature and film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043143/87144050/east-of-eden.jpg" style="width:100%"><br>
 
@@ -168,7 +112,7 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">9. Q: Do you like bees? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050649/87144098/d4c2dea5-9622-4d81-badd-6c051488dd3e-national-treasure.png" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">20 Small Movie Details With Big Implications </a><br>
+## <a href="#linky4" id="linky3">20 Small Movie Details With Big Implications </a><br>
 
 <span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
 
@@ -210,73 +154,51 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">16 Odd Items With Simple Explanations</a><br>
+## <a href="#linky5" id="linky4">Females Posting Their L’s Online Is the Karma We like to See</a><br>
 
-<span style="font-size:4em">1. “What is this type of clamp used for?”
-
-Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “What is this thing?”
-
-Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Could anyone help me identify this object?”
-
-Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
-
-Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
-
-Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I need some help identifying this object.”
-
-Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “What could this be?”
-
-Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
-
-Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
-
-Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
-
-Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “What is this object?”
-
-Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
-
-Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
-
-Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
-
-Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
-
-Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
-
-Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">32 Photos that Might Make You Question Reality</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">32 Photos that Might Make You Question Reality</a><br>
 
 <span style="font-size:4em">1. “Accidental twins!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144528.png" style="width:100%"><br>
 
@@ -342,7 +264,7 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">32. “Transparent mountains”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144551.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">87 Dank Memes and Random Pics to Entertain Your Brain</a><br>
+## <a href="#linky7" id="linky6">87 Dank Memes and Random Pics to Entertain Your Brain</a><br>
 
 <span style="font-size:4em">1. The perfect food dish doesnt exis...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87142047.jpg" style="width:100%"><br>
 
@@ -518,169 +440,197 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">87. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031249/87144775/87141654.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">28 Facts That Might Change Your Perspective </a><br>
+## <a href="#linky8" id="linky7">16 Odd Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. The Earths crust is so thin, that it can be compared to the skin of an apple, with a thickness-to-diameter ratio of about .4%.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143256.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “What is this type of clamp used for?”
+
+Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In 2019, a doghouse in Costa Rica was struck by a meteorite. Shockingly, its actually incredibly rare for an object to actually be hit by a meteorite, and as a result, the doghouse became one of the most valuable pieces at a space-themed auction. The doghouse ended up selling for $44,000, while a piece of the meteorite itself went for $21,000. And in case you were wondering, the house belonged to a pup named Roky, who was in the house when the meteor struck, but was luckily unharmed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143247.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “What is this thing?”
+
+Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. During the trial a year later, Dominos claimed that not a single person ordered a pizza for the five minutes it took to read the final verdict. More than 150 million people tuned into the final moments of the trial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143249.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Could anyone help me identify this object?”
+
+Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Point Nemo is the location in the ocean that is farthest from land, coming in at about 2,688 kilometers or 1,450 miles from Ducie Island, which is the nearest land. The location was named after a submarine sailor from Jules Vernes classic novel, Twenty Thousand Leagues Under the Sea. Point Nemo is known as the space junk graveyard because its the safest place for space debris to fall. In 2030, the International Space Station will crash into the ocean at Point Nemo. More than 263 pieces of debris have fallen at Point Nemo since 1971.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143250.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
+
+Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Ever wondered why some countries drive on the left side of the road? It dates all the way back to the Roman Empire. Because most people are right-handed, it made it easier to stab strangers who passed them on the right side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143251.gif" style="width:100%"><br>
+<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
+
+Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In the 1990s, Marlon Brando, famous for his role in The Godfather, used to spend his days in AOL chatrooms, where he would get into political arguments with strangers. Brandos account was frequently suspended after telling people to fuck off when they didnt agree with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143252.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I need some help identifying this object.”
+
+Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Marcel Petiot was a French doctor who was suspected of killing over 60 people. Petiot served in World War I, but was discharged after he injured his own foot with a grenade. After the war, Petiot turned to medicine, and completed an accelerated medical program designed for war veterans. He moved to Villeneuve-sur-Yonne, a commune in Northern France. Petiot quickly gained a reputation of dubious practices after performing illegal abortions and supplying patients with narcotics, which he was also suspected to be abusing himself. Despite this, Petiot became mayor of Yonne, but was soon accused of theft.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143253.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “What could this be?”
+
+Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. After this accusation, Petiot fled to Paris, where he opened a new medical practice. He used fake credentials to attract patients and in 1936, was appointed médecin détat-civil, which meant he was able to write death certificates. During World War II, he provided people fake disability certificates so they could avoid having to serve. Petiot also created a fake escape route under the name Dr. Eugène. He told people he could get them out of France, and lured Jewish people and Resistance fighters to a secret passageway. Petiot told them they needed a certain vaccine before escaping, and then injected them with cyanide and burned their bodies in the basement of his house after stealing their belongings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143254.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
+
+Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. French authorities discovered this plot in 1943 after several of Petiots accomplices ratted him out. Much to the authorities dismay, they couldnt find Petiot anywhere. Turns out, he had adopted a new identity, and was now acting as Henri Valeri. As Valeri, he joined the French Forces Of The Interior and quickly moved up the ranks to become captain. One of his main duties? Find Marcel Petiot. He was recognized at a train station and captured several months later. Petiot went on trial in 1946, where he admitted to killing 63 enemies. The media began calling him Dr. Satan. He was executed by guillotine two months after the trial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143255.gif" style="width:100%"><br>
+<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
+
+Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Vincent Van Gogh didnt begin his painting career until his late twenties, and enrolled in art school in 1880 at age 27. Despite his late start, he created over 2,100 works of art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143257.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
+
+Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Those 2,100 works of art included over 850 oil paintings and over 1,300 watercolors and sketches. Most of his paintings are from the last two years of his life. Van Gogh died by suicide in 1890.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143258.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “What is this object?”
+
+Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Finches, sparrows, and other species of birds who live in cities will often line their nests with cigarette butts from the streets. Why? The nicotine smells deter predators and parasites. While this tactic keeps out pests, researchers are investigating the potential consequences of this practice. Many compounds in cigarette butts are known carcinogens, while others are pesticides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143259.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
+
+Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In the 1930s, Louis Rothschild, the Jewish heir to the Austrian branch of the Rothschild banking dynasty, was worth about 2 billion shillings, or $10 billion in todays money. During World War II, Rothschild refused to leave Austria, which prompted the Nazis to capture him, believing they could leverage the businessmans life to gain access to his billions. After being held for 14 months, the Rothschild family gave the Nazis $21 million, which equals about $400 million in todays money in exchange for the safe return of Rothschild. It was the largest ransom for a single individual in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143260.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
+
+Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. George Carlin, the comedian who was also the narrator for the first several seasons of Thomas The Tank Engine, was nervous about performing his lines without an audience. Someone suggested a child be brought to the booth where he was recording, so that Carlin could perform to the child. While this request was denied, a producer suggested bringing along a teddy bear. For the next four seasons, Carlin spoke all of his lines to the stuffed animal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143262.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
+
+Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. When developing the game cartridges for the Nintendo Switch, the game company decided to coat them in a foul-tasting film to dissuade babies and animals from putting them in their mouths. They used Denatonium Benzoate, which is known as the most bitter chemical compound. The coating is non-toxic, and designed to be so gross that anyone who puts it in their mouth will want to immediately spit it back out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143263.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
+
+Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Palm trees actually arent trees — theyre just large plants, like bamboo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143264.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
+
+Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. While were all now familiar with the long process of Supreme Court justice hearings, it used to be a much simpler affair. In fact, before 1916, Supreme Court justice nominees were simply voted on by the Senate. The hearing process began when President Woodrow Wilson nominated Louis Brandeis, a successful lawyer who served as one of Wilsons aides, to the court. Brandeis was Jewish, and several members of the Senate were opposed to the nomination of a Jewish man. It took four months of hearings before Brandeis nomination was confirmed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143265.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">25 Dank Memes From Another Timeline </a><br>
 
-<span style="font-size:4em">18. At least nine fatal military flights were caused by the pilot having to pee during the flight. Military pilots used to have to unzip their flight suits and pee into a bag called a piddle pad. This was especially difficult for women, who often would refrain from drinking water before a flight, even though dehydration can dramatically affect vision and reaction time. As a result, the US Air Force is developing a new technology that involves a pad for women, and a cup for men attached to a tube through a special pair of underwear, which will pull their pee through the tube to a collection bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143266.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. There was once a time when Burger King wasnt quite fast food. From 1992 to 1994, the chain used to offer table service, with waiters delivering patrons their food to promote their new BK Dinner Baskets. They even brought popcorn to every table as an appetizer. The initiative only lasted for two years, and was quietly discontinued.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143267.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. After the Titanic sunk in 1912, over 118,000 people claimed that they were supposed to be on the ship, but missed the inaugural voyage for various reasons. “Up to the present time the count shows that just 118,337 people escaped death because they missed the Titanic or changed their minds a moment before sailing time,” an Ohio newspaper wrote weeks after the tragedy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143268.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. After leaving office, President Ulysses S. Grant was facing financial failure after a series of bad investments and lavish living. His son had started his own investment firm with a friend named Ferdinand Ward. Grant agreed to let Ward handle his money. What Grant and his son didnt know was that Ward was running a large Ponzi scheme, and was pocketing Grants money for years. In poor health and close to bankruptcy, Grant decided he would sell his memoirs. He began writing, but was diagnosed with cancer while working on the project.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143269.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Grant was desperate to finish writing before his death so that his family wouldnt face poverty. He signed a contract stating he would receive 10% of the profits, a deal that was standard for the time. Mark Twain, who was one of Grants close friends, heard about the deal and thought it was appalling that a former president on the verge of death wasnt given a larger deal. Twain stepped in and offered Grant a new contract, complete with a large advance payment, living expenses, and 70% of the books profits. Grant reluctantly accepted, and finished the book in July 1885. He died a week later, but his wife Julia earned nearly $11 million (in todays money) thanks to Twains deal. Talk about a good friend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143270.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. In November 2008, a factory worker named Ronald Ball allegedly found a dead mouse in his can of Mountain Dew. He said that he had given Pepsi, who distributes Mountain Dew, the mouse and later sued the company for $50,000. The case made headlines again in 2012 when Pepsi revealed that they had called a veterinary pathologist to testify in the case. The pathologist said that the drink was so acidic that a mouse would turn into a jelly-like substance within 30 days of being trapped in the can. The mouse Ball had given them was too young to have been trapped in the can given the timeline. By August 2012, the case had been settled out of court.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143271.gif" style="width:100%"><br>
+<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. William Shakespeare wrote about a tenth of the worlds most quoted lines. In fact, the only thing that is quoted more often than Shakespeares work is the Bible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143272.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. The Dahomey Amazons was a military comprised of women who were trained to protect the kingdom of Dahomey, a West African empire that existed from 1625 to 1894. The Amazons were known for their fearlessness, and were seen as equals to men. They were officially incorporated as official members of the army in the mid-1800s, and went on to fight against French colonizers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143273.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. The women in this army were known for being ruthless, stopping at nothing to protect their kingdom. An Italian priest recounted a training exercise during which he watched the Amazons scale 120 meter-high thorn bushes. He said that not a single one complained during the exercise. The Amazons went on to inspire the Dora Milaje, the all-women army in the Black Panther franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143274.gif" style="width:100%"><br>
+<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">31 People Who Lack Common Sense</a><br>
+<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144602.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144628.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144606.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144604.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144607.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144608.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144610.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144614.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144601.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144615.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144616.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144617.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144618.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144619.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144603.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144620.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144621.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144623.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144624.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144625.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144626.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144627.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144629.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144630.png" style="width:100%"><br>
+<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144631.jpeg" style="width:100%"><br>
+<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144632.png" style="width:100%"><br>
+<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144633.png" style="width:100%"><br>
+<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144636.jpeg" style="width:100%"><br>
+<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">24 Saddest Encounters With Celebrities</a><br>
+## <a href="#linky11" id="linky10">24 Saddest Encounters With Celebrities</a><br>
 
 <span style="font-size:4em">1. My brother met Gene Simmons back stage at a show he was playing in. Gene complimented my brother highly on his guitar playing but then said too bad youll never make it and just walked away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144451.jpg" style="width:100%"><br>
 
@@ -790,165 +740,127 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">24. Aziz Ansari hit on me years ago and I was too starstruck to remember how to talk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144467.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">16 Mildly Annoying Irritations</a><br>
+## <a href="#linky12" id="linky11">31 People Who Lack Common Sense</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144601.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144603.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Dank Memes From Another Timeline </a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144630.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144631.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144632.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144633.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144636.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
+## <a href="#linky13" id="linky12">What The F**k Is Going On In These Pictures?</a><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">35 Epic Fails to Improve Your Sense of Accomplishment</a><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Today I celebrate the 2-year anniversary of breaking off my front tooth. By breaking off the other one on a piece of bacon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143866.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “New cable lines installed, boss!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143857.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “So my girlfriend tried to take a picture with her puppy when a bird slammed into the window.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143858.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “My friend dressed up as his mom & tried to get his phone back.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143859.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’m literally in a bathroom stall at work right now covered in clown paint. I just tried wiping it off and it’s not coming off.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143860.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Candy lips, Expectation vs Reality”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143861.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Nailed it. I tried doing ombre nails for the first time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143862.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Grew my hair out for 4 years. It was at the healthiest it had been in my entire adult life. This is what I asked for vs what I got.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143863.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “My buddies’ dog really got that good haircut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143864.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Wanted a simple manicure for my wedding in March. Here is what I got. I was upset but also couldn’t stop laughing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143865.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “I’ve been looking for my third shaker spiral ball for a couple of weeks now.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143856.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I had a lot of a laughs when that inflatable thing came in.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143867.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I bought period underwear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143868.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “These 2 bras are labeled as the same size.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143869.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My wife just bought a new dress. Now I need to throw the car off a cliff.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143870.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “What I thought I bought vs what I got”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143871.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “This is what my super expensive couch looks like 2 years after buying it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “My friend bought the mask of Walter White from Breaking Bad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Those 2 dots are the cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “These alligator socks I bought my partner for Christmas”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “I ordered a dress shirt online and it came with a security tag still attached.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A hair styling doll I bought for my daughter”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My girlfriend thought she found the perfect winter coat until she put the hood up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Fiancée tried to make doughnuts but added too much butter. I introduce to you, the muffnut.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Tried my hand at sledding today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Security tried to get this cat out of my local supermarket. Failed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “My friend wanted to take a nice picture of her daughter.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Never ask your hairdresser for ’something different.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “Downside: having this on the back of my head. Upside: everyone found it hilarious.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “This can of chips I just bought”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “I bought ’silver’ wrapping paper, only to find out it’s clear.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “The tag on my new sports bra had 24 pages.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “Just don’t order anything from social media ads.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “This toiletry trash can that opens into the other stall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143889.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “You’d better not drop your card while you’re withdrawing cash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143890.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">50 Fun Randoms to Obliterate Boredom</a><br>
+## <a href="#linky14" id="linky13">50 Fun Randoms to Obliterate Boredom</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143894.jpg" style="width:100%"><br>
 
@@ -1050,7 +962,61 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87143943.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">22 Pics Proving Influencers Are the Worst</a><br>
+## <a href="#linky15" id="linky14">28 Facts That Might Change Your Perspective </a><br>
+
+<span style="font-size:4em">1. The Earths crust is so thin, that it can be compared to the skin of an apple, with a thickness-to-diameter ratio of about .4%.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In 2019, a doghouse in Costa Rica was struck by a meteorite. Shockingly, its actually incredibly rare for an object to actually be hit by a meteorite, and as a result, the doghouse became one of the most valuable pieces at a space-themed auction. The doghouse ended up selling for $44,000, while a piece of the meteorite itself went for $21,000. And in case you were wondering, the house belonged to a pup named Roky, who was in the house when the meteor struck, but was luckily unharmed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. During the trial a year later, Dominos claimed that not a single person ordered a pizza for the five minutes it took to read the final verdict. More than 150 million people tuned into the final moments of the trial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Point Nemo is the location in the ocean that is farthest from land, coming in at about 2,688 kilometers or 1,450 miles from Ducie Island, which is the nearest land. The location was named after a submarine sailor from Jules Vernes classic novel, Twenty Thousand Leagues Under the Sea. Point Nemo is known as the space junk graveyard because its the safest place for space debris to fall. In 2030, the International Space Station will crash into the ocean at Point Nemo. More than 263 pieces of debris have fallen at Point Nemo since 1971.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ever wondered why some countries drive on the left side of the road? It dates all the way back to the Roman Empire. Because most people are right-handed, it made it easier to stab strangers who passed them on the right side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143251.gif" style="width:100%"><br>
+
+<span style="font-size:4em">6. In the 1990s, Marlon Brando, famous for his role in The Godfather, used to spend his days in AOL chatrooms, where he would get into political arguments with strangers. Brandos account was frequently suspended after telling people to fuck off when they didnt agree with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Marcel Petiot was a French doctor who was suspected of killing over 60 people. Petiot served in World War I, but was discharged after he injured his own foot with a grenade. After the war, Petiot turned to medicine, and completed an accelerated medical program designed for war veterans. He moved to Villeneuve-sur-Yonne, a commune in Northern France. Petiot quickly gained a reputation of dubious practices after performing illegal abortions and supplying patients with narcotics, which he was also suspected to be abusing himself. Despite this, Petiot became mayor of Yonne, but was soon accused of theft.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. After this accusation, Petiot fled to Paris, where he opened a new medical practice. He used fake credentials to attract patients and in 1936, was appointed médecin détat-civil, which meant he was able to write death certificates. During World War II, he provided people fake disability certificates so they could avoid having to serve. Petiot also created a fake escape route under the name Dr. Eugène. He told people he could get them out of France, and lured Jewish people and Resistance fighters to a secret passageway. Petiot told them they needed a certain vaccine before escaping, and then injected them with cyanide and burned their bodies in the basement of his house after stealing their belongings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. French authorities discovered this plot in 1943 after several of Petiots accomplices ratted him out. Much to the authorities dismay, they couldnt find Petiot anywhere. Turns out, he had adopted a new identity, and was now acting as Henri Valeri. As Valeri, he joined the French Forces Of The Interior and quickly moved up the ranks to become captain. One of his main duties? Find Marcel Petiot. He was recognized at a train station and captured several months later. Petiot went on trial in 1946, where he admitted to killing 63 enemies. The media began calling him Dr. Satan. He was executed by guillotine two months after the trial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143255.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. Vincent Van Gogh didnt begin his painting career until his late twenties, and enrolled in art school in 1880 at age 27. Despite his late start, he created over 2,100 works of art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Those 2,100 works of art included over 850 oil paintings and over 1,300 watercolors and sketches. Most of his paintings are from the last two years of his life. Van Gogh died by suicide in 1890.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Finches, sparrows, and other species of birds who live in cities will often line their nests with cigarette butts from the streets. Why? The nicotine smells deter predators and parasites. While this tactic keeps out pests, researchers are investigating the potential consequences of this practice. Many compounds in cigarette butts are known carcinogens, while others are pesticides.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the 1930s, Louis Rothschild, the Jewish heir to the Austrian branch of the Rothschild banking dynasty, was worth about 2 billion shillings, or $10 billion in todays money. During World War II, Rothschild refused to leave Austria, which prompted the Nazis to capture him, believing they could leverage the businessmans life to gain access to his billions. After being held for 14 months, the Rothschild family gave the Nazis $21 million, which equals about $400 million in todays money in exchange for the safe return of Rothschild. It was the largest ransom for a single individual in history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. George Carlin, the comedian who was also the narrator for the first several seasons of Thomas The Tank Engine, was nervous about performing his lines without an audience. Someone suggested a child be brought to the booth where he was recording, so that Carlin could perform to the child. While this request was denied, a producer suggested bringing along a teddy bear. For the next four seasons, Carlin spoke all of his lines to the stuffed animal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When developing the game cartridges for the Nintendo Switch, the game company decided to coat them in a foul-tasting film to dissuade babies and animals from putting them in their mouths. They used Denatonium Benzoate, which is known as the most bitter chemical compound. The coating is non-toxic, and designed to be so gross that anyone who puts it in their mouth will want to immediately spit it back out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Palm trees actually arent trees — theyre just large plants, like bamboo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. While were all now familiar with the long process of Supreme Court justice hearings, it used to be a much simpler affair. In fact, before 1916, Supreme Court justice nominees were simply voted on by the Senate. The hearing process began when President Woodrow Wilson nominated Louis Brandeis, a successful lawyer who served as one of Wilsons aides, to the court. Brandeis was Jewish, and several members of the Senate were opposed to the nomination of a Jewish man. It took four months of hearings before Brandeis nomination was confirmed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. At least nine fatal military flights were caused by the pilot having to pee during the flight. Military pilots used to have to unzip their flight suits and pee into a bag called a piddle pad. This was especially difficult for women, who often would refrain from drinking water before a flight, even though dehydration can dramatically affect vision and reaction time. As a result, the US Air Force is developing a new technology that involves a pad for women, and a cup for men attached to a tube through a special pair of underwear, which will pull their pee through the tube to a collection bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. There was once a time when Burger King wasnt quite fast food. From 1992 to 1994, the chain used to offer table service, with waiters delivering patrons their food to promote their new BK Dinner Baskets. They even brought popcorn to every table as an appetizer. The initiative only lasted for two years, and was quietly discontinued.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. After the Titanic sunk in 1912, over 118,000 people claimed that they were supposed to be on the ship, but missed the inaugural voyage for various reasons. “Up to the present time the count shows that just 118,337 people escaped death because they missed the Titanic or changed their minds a moment before sailing time,” an Ohio newspaper wrote weeks after the tragedy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. After leaving office, President Ulysses S. Grant was facing financial failure after a series of bad investments and lavish living. His son had started his own investment firm with a friend named Ferdinand Ward. Grant agreed to let Ward handle his money. What Grant and his son didnt know was that Ward was running a large Ponzi scheme, and was pocketing Grants money for years. In poor health and close to bankruptcy, Grant decided he would sell his memoirs. He began writing, but was diagnosed with cancer while working on the project.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Grant was desperate to finish writing before his death so that his family wouldnt face poverty. He signed a contract stating he would receive 10% of the profits, a deal that was standard for the time. Mark Twain, who was one of Grants close friends, heard about the deal and thought it was appalling that a former president on the verge of death wasnt given a larger deal. Twain stepped in and offered Grant a new contract, complete with a large advance payment, living expenses, and 70% of the books profits. Grant reluctantly accepted, and finished the book in July 1885. He died a week later, but his wife Julia earned nearly $11 million (in todays money) thanks to Twains deal. Talk about a good friend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. In November 2008, a factory worker named Ronald Ball allegedly found a dead mouse in his can of Mountain Dew. He said that he had given Pepsi, who distributes Mountain Dew, the mouse and later sued the company for $50,000. The case made headlines again in 2012 when Pepsi revealed that they had called a veterinary pathologist to testify in the case. The pathologist said that the drink was so acidic that a mouse would turn into a jelly-like substance within 30 days of being trapped in the can. The mouse Ball had given them was too young to have been trapped in the can given the timeline. By August 2012, the case had been settled out of court.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143271.gif" style="width:100%"><br>
+
+<span style="font-size:4em">24. William Shakespeare wrote about a tenth of the worlds most quoted lines. In fact, the only thing that is quoted more often than Shakespeares work is the Bible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. The Dahomey Amazons was a military comprised of women who were trained to protect the kingdom of Dahomey, a West African empire that existed from 1625 to 1894. The Amazons were known for their fearlessness, and were seen as equals to men. They were officially incorporated as official members of the army in the mid-1800s, and went on to fight against French colonizers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The women in this army were known for being ruthless, stopping at nothing to protect their kingdom. An Italian priest recounted a training exercise during which he watched the Amazons scale 120 meter-high thorn bushes. He said that not a single one complained during the exercise. The Amazons went on to inspire the Dora Milaje, the all-women army in the Black Panther franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143274.gif" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">22 Pics Proving Influencers Are the Worst</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
 
@@ -1095,60 +1061,4 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">What The F**k Is Going On In These Pictures?</a><br>
-
-<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
