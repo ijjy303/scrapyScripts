@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/15/2022-03:11:38
+Last updated: 04/15/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">33 Absolute Unit Versions of Ordinary Objects</a><br>
 
@@ -365,47 +365,57 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">26. The women in this army were known for being ruthless, stopping at nothing to protect their kingdom. An Italian priest recounted a training exercise during which he watched the Amazons scale 120 meter-high thorn bushes. He said that not a single one complained during the exercise. The Amazons went on to inspire the Dora Milaje, the all-women army in the Black Panther franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143274.gif" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 Small Movie Details With Big Implications </a><br>
+## <a href="#linky6" id="linky5">25 Dank Memes From Another Timeline </a><br>
 
-<span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In Indiana Jones and the Temple of Doom (1984), John Williams gave Short Round his own hero theme music. Anytime he is in action, the theme plays, just like Indy’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139613.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Terminator (1984) During the scene where Terminator is removing his eye with an x-acto, there is no blade visible when he brings the knife to his eye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139614.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Arnold did his own stunts in Conan the Barbarian (1982) because no one could be found that was big enough to resemble him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139615.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The Predator (1987), the character of Predator was never meant to make the distinctive clicking sound. Peter Cullen had finished 11 reels of King Kong and was coughing up blood. He chose this vocalization because it was easy on his voice and his face remembered him of a dying crab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139616.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In Batman (1989) the Joker puts on a pair of glasses and says “You wouldn’t hit a man with glasses would you?”. This is a call back to the 1966 Batman TV Show where Batman said “Never hit a man with glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139617.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In The Terminator (1984), the T-800 is actually searching the phonebook with both fingers. A closeup shot shows his right finger hovering down to Sarah, but in the wide shot its revealed he’s already found John Conner with his left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139618.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In The Terminator (1984), the T-800 has human teeth, likely since this would be the only part of the endoskeleton visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139619.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In Alien (1979) a picture of Jonesy, the ship’s cat, as a kitten is seen on a computer terminal in the Nostromo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139620.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
 
-<span style="font-size:4em">10. In the 1983 movie Scarface. The character Tony Montana can be seen eating a lemon which is for washing your hands after dinner. This shows how poor he was growing up never being exposed to things of the rich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139628.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. In Die Hard (1988) John McClane can be seen holding down the slide release on the side of his Beretta before handing it to Clay, who he knows is Hans Gruber. Because he is loading an empty magazine if he didn’t hold the slide release it would have locked in the open/empty position.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139621.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. In Star Wars: Episode VI – Return of the Jedi (1983) Jabba the Hutt has a tattoo on his right forearm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139622.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In Top Gun (1988), the term “bogey” is misused throughout the movie. A bogey is an unidentified aircraft. Once identified it is referred to as “friendly”, “bandit” (for non-friendly aircraft) or as “hostile” (for non-friendly aircraft that may be fired at ie. engaged).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139623.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In Die Hard (1988) when John is talking to Hans in disguise as “Bill Clay,” this is the only scene that takes place at a Dutch angle in the whole movie. Dutch angles convey suspicion and unease, but actually comes from “Deutsch” angle which means German.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139624.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. In order to prevent the twist of Vader being Luke’s father being spoiled in The Empire Strikes Back (1980), the line written in the script and spoken during filming was “Obi-Wan killed your father”, with it later dubbed over. Of the main cast, only Mark Hamill was informed before release</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139625.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. In 1989’s Indiana Jones and the Last Crusade, anyone with a lapel flower tries to kill Indy. Indy even signals Elsa is bad by giving her a flower when they meet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139626.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In Die Hard (1988), Alan Rickman’s Petrified Expression While Falling Was Completely Genuine. The Stunt Team Instructed Him That They Would Drop Him On The Count Of 3 But Instead Dropped Him At 1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139627.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. In Terminator 2, the man taking the photos of the T-800 was the cop that the T-800 assaulted in Terminator 1. That’s why he was (speechlessly) taking photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139629.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In The Terminator (1984), James Cameron directed Schwarzenegger to move his eyes independently from his head while searching for his target, because it would conserve energy — a reasonable priority for a machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139630.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
 
-<span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">24 Saddest Encounters With Celebrities</a><br>
 
@@ -517,47 +527,51 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">24. Aziz Ansari hit on me years ago and I was too starstruck to remember how to talk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144467.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">20 Fresh Memes of Unspeakable Dankness</a><br>
+## <a href="#linky8" id="linky7">22 Pics Proving Influencers Are the Worst</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144184.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144185.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144186.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144187.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144188.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144189.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144190.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144191.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144192.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144193.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144194.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144195.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144196.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144197.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144198.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144199.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144201.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144202.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144203.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144205.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">20 Minor Injuries That Are Actually Super Painful</a><br>
 
@@ -601,67 +615,47 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">20. Paper cuts. -u/Velocity9876</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/051149/87144884/paper.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 Design Fails That Were Dead On Arrival </a><br>
+## <a href="#linky10" id="linky9">20 Small Movie Details With Big Implications </a><br>
 
-<span style="font-size:4em">1. Stoplights In Lake Tahoe Filled With Snow Due To A Crappy Design Of Not Having The Bottom Cut Out To Prevent Snow Accumulation. It’s A World-Class Ski Area, Snow Should Be A Key Factor In All Design Decisions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143740.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Wheelchair Friendly Stairway. You know someone had a laugh with this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143742.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. In Indiana Jones and the Temple of Doom (1984), John Williams gave Short Round his own hero theme music. Anytime he is in action, the theme plays, just like Indy’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Know The Facts - I Have Beautiful Teeth Too! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143743.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Terminator (1984) During the scene where Terminator is removing his eye with an x-acto, there is no blade visible when he brings the knife to his eye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. At Least They Cant See Your Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143744.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Arnold did his own stunts in Conan the Barbarian (1982) because no one could be found that was big enough to resemble him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Never noticed this before, but the bowl is on the milk, instead of the milk being in the bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143746.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The Predator (1987), the character of Predator was never meant to make the distinctive clicking sound. Peter Cullen had finished 11 reels of King Kong and was coughing up blood. He chose this vocalization because it was easy on his voice and his face remembered him of a dying crab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This shirt. I wanted to look like a dork, Is borrow your dads clothes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143745.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In Batman (1989) the Joker puts on a pair of glasses and says “You wouldn’t hit a man with glasses would you?”. This is a call back to the 1966 Batman TV Show where Batman said “Never hit a man with glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I wonder if shes pregnant? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143747.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In The Terminator (1984), the T-800 is actually searching the phonebook with both fingers. A closeup shot shows his right finger hovering down to Sarah, but in the wide shot its revealed he’s already found John Conner with his left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Orange is the new milk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143748.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. In The Terminator (1984), the T-800 has human teeth, likely since this would be the only part of the endoskeleton visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Go ahead I dare you.  A bike lane than ends in oncoming traffic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143749.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In Alien (1979) a picture of Jonesy, the ship’s cat, as a kitten is seen on a computer terminal in the Nostromo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Chalk that looks like a popsicle stick, what could go wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143750.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. In the 1983 movie Scarface. The character Tony Montana can be seen eating a lemon which is for washing your hands after dinner. This shows how poor he was growing up never being exposed to things of the rich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. WTF is going on here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143751.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In Die Hard (1988) John McClane can be seen holding down the slide release on the side of his Beretta before handing it to Clay, who he knows is Hans Gruber. Because he is loading an empty magazine if he didn’t hold the slide release it would have locked in the open/empty position.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Stairs In An Airbnb I Stayed In Where Every Step Is A Different Height, Width And Depth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143752.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In Star Wars: Episode VI – Return of the Jedi (1983) Jabba the Hutt has a tattoo on his right forearm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This Spacious Toilet Cubical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143753.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In Top Gun (1988), the term “bogey” is misused throughout the movie. A bogey is an unidentified aircraft. Once identified it is referred to as “friendly”, “bandit” (for non-friendly aircraft) or as “hostile” (for non-friendly aircraft that may be fired at ie. engaged).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Dont Give Candy To Babies Please</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143754.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In Die Hard (1988) when John is talking to Hans in disguise as “Bill Clay,” this is the only scene that takes place at a Dutch angle in the whole movie. Dutch angles convey suspicion and unease, but actually comes from “Deutsch” angle which means German.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Yee-Haw A Violin!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143755.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. In order to prevent the twist of Vader being Luke’s father being spoiled in The Empire Strikes Back (1980), the line written in the script and spoken during filming was “Obi-Wan killed your father”, with it later dubbed over. Of the main cast, only Mark Hamill was informed before release</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. This Is So Bad I Forgot How Giraffes Really Look</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143756.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. In 1989’s Indiana Jones and the Last Crusade, anyone with a lapel flower tries to kill Indy. Indy even signals Elsa is bad by giving her a flower when they meet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Simple Question, Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143757.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In Die Hard (1988), Alan Rickman’s Petrified Expression While Falling Was Completely Genuine. The Stunt Team Instructed Him That They Would Drop Him On The Count Of 3 But Instead Dropped Him At 1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Blehhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143741.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. In Terminator 2, the man taking the photos of the T-800 was the cop that the T-800 assaulted in Terminator 1. That’s why he was (speechlessly) taking photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Tactile Paving For The Visually Impaired Interrupted By Giant Bench</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143758.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. In The Terminator (1984), James Cameron directed Schwarzenegger to move his eyes independently from his head while searching for his target, because it would conserve energy — a reasonable priority for a machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Marvel In Ohio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Guys I Found An App Which Rents Ice Ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This Taco Someone Posted From Their Work Cafeteria</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Cherry On Top Of The Road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I Think I’ve Found It, The Worst Expiration Date Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A DIY Shower I Saw While House Hunting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. The Sign Telling Us Where Our Room Is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Mens Toilet In A Cafe In Shanghai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. This Winter, You Can Set Your Feet On Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Hidden What?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The Worst Staircase I Have Ever Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143769.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">30 Genius Solutions To Everyday Problems</a><br>
 
@@ -725,7 +719,69 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">30. You Can Lock Up Your Skateboard By This Library</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144439.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+## <a href="#linky12" id="linky11">30 Design Fails That Were Dead On Arrival </a><br>
+
+<span style="font-size:4em">1. Stoplights In Lake Tahoe Filled With Snow Due To A Crappy Design Of Not Having The Bottom Cut Out To Prevent Snow Accumulation. It’s A World-Class Ski Area, Snow Should Be A Key Factor In All Design Decisions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Wheelchair Friendly Stairway. You know someone had a laugh with this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Know The Facts - I Have Beautiful Teeth Too! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. At Least They Cant See Your Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Never noticed this before, but the bowl is on the milk, instead of the milk being in the bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This shirt. I wanted to look like a dork, Is borrow your dads clothes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I wonder if shes pregnant? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Orange is the new milk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Go ahead I dare you.  A bike lane than ends in oncoming traffic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Chalk that looks like a popsicle stick, what could go wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. WTF is going on here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Stairs In An Airbnb I Stayed In Where Every Step Is A Different Height, Width And Depth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This Spacious Toilet Cubical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Dont Give Candy To Babies Please</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Yee-Haw A Violin!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This Is So Bad I Forgot How Giraffes Really Look</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Simple Question, Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Blehhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Tactile Paving For The Visually Impaired Interrupted By Giant Bench</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Marvel In Ohio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Guys I Found An App Which Rents Ice Ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This Taco Someone Posted From Their Work Cafeteria</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Cherry On Top Of The Road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I Think I’ve Found It, The Worst Expiration Date Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A DIY Shower I Saw While House Hunting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The Sign Telling Us Where Our Room Is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Mens Toilet In A Cafe In Shanghai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This Winter, You Can Set Your Feet On Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Hidden What?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Worst Staircase I Have Ever Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143769.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Females Posting Their L’s Online Is the Karma We like to See</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
 
@@ -769,125 +825,47 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">31 People Who Lack Common Sense</a><br>
+## <a href="#linky14" id="linky13">20 Fresh Memes of Unspeakable Dankness</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144184.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144602.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144628.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144606.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144604.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144607.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144189.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144608.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144610.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144614.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144601.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144615.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144616.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144617.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144618.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144619.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144603.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144620.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144621.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144202.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144623.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144630.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144631.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144632.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144633.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144636.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">What The F**k Is Going On In These Pictures?</a><br>
-
-<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144205.jpg" style="width:100%"><br>
 
 ## <a href="#linky15" id="linky14">32 Photos that Might Make You Question Reality</a><br>
 
@@ -955,101 +933,123 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">32. “Transparent mountains”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144551.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">22 Pics Proving Influencers Are the Worst</a><br>
+## <a href="#linky16" id="linky15">31 People Who Lack Common Sense</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144601.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144626.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">25 Dank Memes From Another Timeline </a><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Haha, lets talk about unreasonable body standards, amirite? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142186.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144630.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Youd be surprised what happens deep inside the woods of Missouri. Oh youd be surprised.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142189.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144631.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Yeah looks good to me, send it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142190.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144632.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Anime is good and anyone who says otherwise has never felt the warm touch of another. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142191.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144633.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Youll thank us when the pocket sausage saves your life one day. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142185.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144636.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The one thing we can all agree on. This and night time water just hit different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142193.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. I cant hear you Screams like Im being attacked by bees. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142195.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I laughed at this a bit too hard. IFYKYK </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142196.gif" style="width:100%"><br>
+## <a href="#linky17" id="linky16">What The F**k Is Going On In These Pictures?</a><br>
 
-<span style="font-size:4em">10. Clown to clown communication has been activated. Youre mother is waiting for you on the other line. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142184.png" style="width:100%"><br>
+<span style="font-size:4em">1. Does this actually help you ride?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Take me back to 3pm after school when all I cared about was getting my ass in front of the tv. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142198.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A bit late for a wedding right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Man this is getting out of hand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142199.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Paint me like one of your... wait what?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Oil rains down from the sky. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142205.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142200.png" style="width:100%"><br>
+<span style="font-size:4em">5. Dont be suspicious</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Umm, he does have a point, a messed up one, but a point none-the-less. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142197.png" style="width:100%"><br>
+<span style="font-size:4em">6. This way its not your own hands fault when you drop it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142201.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If it works it works</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142202.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. That mouse better be fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142203.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142206.gif" style="width:100%"><br>
+<span style="font-size:4em">10. I bet my feet will still go past the end of the bed</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142207.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This city belong to me now Batman. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142208.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142209.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Save money on contacts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142211.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142212.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Now thats how Im flying from here on out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Why build a fancy PC when you can do this?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. So thats where my Caddys badges went</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. No side swiping this guy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Just... gross</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142830.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
