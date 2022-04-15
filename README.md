@@ -1,201 +1,113 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/14/2022-19:11:31
+Last updated: 04/14/2022-20:11:31
 <br>
-## <a href="#linky2" id="linky1">30 Design Fails That Were Dead On Arrival </a><br>
+## <a href="#linky2" id="linky1">30 Genius Solutions To Everyday Problems</a><br>
 
-<span style="font-size:4em">1. Stoplights In Lake Tahoe Filled With Snow Due To A Crappy Design Of Not Having The Bottom Cut Out To Prevent Snow Accumulation. It’s A World-Class Ski Area, Snow Should Be A Key Factor In All Design Decisions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143740.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. New Toaster Has A Finger Pull In The Cord</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Wheelchair Friendly Stairway. You know someone had a laugh with this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143742.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. These Tables At My College Campus Use Solar Panels As Shade, Which In Turn Provide Power For The Charging Ports On The Table</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Know The Facts - I Have Beautiful Teeth Too! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143743.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If You’re Bored At The Baltimore Airport You Can Learn CPR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. At Least They Cant See Your Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143744.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Thailand Supermarket Ditches Plastic Packaging For Banana Leaves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Never noticed this before, but the bowl is on the milk, instead of the milk being in the bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143746.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This Picnic Table With An Extension For Wheelchair Users</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This shirt. I wanted to look like a dork, Is borrow your dads clothes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143745.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This Railing On Gazebo In Naples Has Braille Describing The View For Blind People. More Of This, Please</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I wonder if shes pregnant? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143747.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My Hotel Phone In Iceland Has A Special Button That Will Wake You Up If There Are Northern Lights In The Sky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Orange is the new milk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143748.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This Duck Ramp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Go ahead I dare you.  A bike lane than ends in oncoming traffic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143749.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This Parking Lot Has Lights Showing You The Empty Spaces. Genius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Chalk that looks like a popsicle stick, what could go wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143750.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. You Can Sit At The Ends Of This Picnic Table</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. WTF is going on here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143751.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My Park Installed Outdoor Workout Equipment Facing The Playground</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Stairs In An Airbnb I Stayed In Where Every Step Is A Different Height, Width And Depth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143752.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Home Office Busy Light - WiFi Enabled LED’s In Door Jam Linked To My Work Calendar, When I’m In A Meeting It Goes Red And The Kids Know They Can’t Come In</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. This Spacious Toilet Cubical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143753.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. This System Allows You To Know If The Package Has Been Handled Correctly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Dont Give Candy To Babies Please</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143754.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. My Eye Doctors Office Uses Laminated Forms And A Wet Erase Marker To Cut Down On Paper Use</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Yee-Haw A Violin!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143755.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Seems Like A Good Time To Finally Show Off The Spice Rack I Built</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. This Is So Bad I Forgot How Giraffes Really Look</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143756.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. This Park Has A Tiny Water Fountain For Dogs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Simple Question, Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143757.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. On The Walls Of Madrid’s Metro System Is The Entire Novel Of Don Quixote, So You Can Read While You Wait And Pick Up The Next Time Where You Left Off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Blehhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143741.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Boards Installed At The Traffic Light So You Dont Have To Get Off Your Bike While Waiting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Tactile Paving For The Visually Impaired Interrupted By Giant Bench</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143758.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Books-A-Million Puts A Slip Of Paper Under The Stickers On Their Books To Prevent Sticker Residue Being Left On The Covers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Marvel In Ohio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143759.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Movie Theater Tells You If Theres A Scene Near The End Of The Movie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Guys I Found An App Which Rents Ice Ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143760.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. My Bracelet Came With A Paper Clip To Help Fasten The Clasp</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144429.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This Taco Someone Posted From Their Work Cafeteria</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143761.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. This Restaurant Figured Out That Face Masks Fit In The Napkin Dispenser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Cherry On Top Of The Road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143762.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Sink Area Designed For Drying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144431.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. I Think I’ve Found It, The Worst Expiration Date Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143763.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. This Elevator With Foot Pedals For Floor Selection</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. A DIY Shower I Saw While House Hunting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143764.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. This Arthritis Relief Cream Now Comes With An Easy Open Cap For Those With Arthritis</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. The Sign Telling Us Where Our Room Is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143765.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Traffic Light For The Jedi. In Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Mens Toilet In A Cafe In Shanghai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143766.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. These Benches That Turn Into Tables</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. This Winter, You Can Set Your Feet On Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143767.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Plantable Calendar Made From Recycled Paper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Hidden What?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143768.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. This Shopping Cart Has A Spot For Kids To Stand On While The Parent Pushes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. The Worst Staircase I Have Ever Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143769.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. You Can Lock Up Your Skateboard By This Library</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144439.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">16 Odd Items With Simple Explanations</a><br>
+## <a href="#linky3" id="linky2">Females Posting Their L’s Online Is the Karma We like to See</a><br>
 
-<span style="font-size:4em">1. “What is this type of clamp used for?”
-
-Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “What is this thing?”
-
-Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Could anyone help me identify this object?”
-
-Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
-
-Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
-
-Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I need some help identifying this object.”
-
-Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “What could this be?”
-
-Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
-
-Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
-
-Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
-
-Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “What is this object?”
-
-Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
-
-Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
-
-Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
-
-Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
-
-Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
-
-Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">32 Photos that Might Make You Question Reality</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Accidental twins!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144528.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “I need an exterminator!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144522.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I didn’t even notice the boots at first, even though I read the title.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144520.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Too much cat”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144524.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “My car looks like it’s missing the back wheel at this angle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144526.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Pants aren’t the only camouflage going on in the picture. A couple of snugging pups on a Sunday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144527.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Four legs vs no legs”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144523.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Reversed leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144529.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. “My campus has a sign begging us to step on the grass.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “After I poured milk into my coffee, I found Snoopy on the doghouse under the moon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “My friend has a levitating dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144532.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Hi there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144533.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. “This truck carrying a heavy load”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144534.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Flower lady”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144521.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I match the bathroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My husband has really, really short legs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “I found a 2-headed duck!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “A building near my house looks like a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Watched Obsessive Compulsive Cleaners when I spotted this fine gentleman wearing a little fancy hat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144525.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Mirror or window?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Floating trailer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “A dog-chicken centaur”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “My left hand is built different.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Is he inside or beside the car?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Weird headless creature, or a dog enjoying the start of spring?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “Is the pole going through the table?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “Which paw goes with which leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “These stairs at a restaurant I went to look like a painting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The dunes of Namibia on a duvet cover”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. These reflections on a glass building</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. This roof that extends for way too long</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Transparent mountains”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144551.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">87 Dank Memes and Random Pics to Entertain Your Brain</a><br>
+## <a href="#linky4" id="linky3">87 Dank Memes and Random Pics to Entertain Your Brain</a><br>
 
 <span style="font-size:4em">1. The perfect food dish doesnt exis...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87142047.jpg" style="width:100%"><br>
 
@@ -371,6 +283,72 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">87. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031249/87144775/87141654.jpg" style="width:100%"><br>
 
+## <a href="#linky5" id="linky4">16 Odd Items With Simple Explanations</a><br>
+
+<span style="font-size:4em">1. “What is this type of clamp used for?”
+
+Answer: “That’s a gang lock for a lockout/tagout. You place this on a breaker when multiple people are working on equipment to keep people from turning the equipment on.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “What is this thing?”
+
+Answer: “I have one like that. Use it for breaking up ground beef, turkey, or pork when browning in a pan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Could anyone help me identify this object?”
+
+Answer: “It’s a drying rack for gloves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “A pointy stick thing inside my new hairbrush — does anyone know what it is?”
+
+Answer: “You can turn the pointy thing to have it sticking from the handle and use it to separate hair, I have seen professionals doing it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The person who gifted this doesn’t even know what it is. It appears to have a suction cup and 2 adjusting arms that may hold something.”
+
+Answer: “It’s for drying and filling reusable zip-lock-type bags.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I need some help identifying this object.”
+
+Answer: “It’s for dividing a length into equal parts. Put one point on one end of the thing to be divided, then choose how many parts to divide it into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “What could this be?”
+
+Answer: “That’s a hole for a vacuum hose. This house, at one point, had a central vacuum.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Could anyone help me figure out what this tool/object is?”
+
+Answer: “Pretty sure it’s a lemon/lime squeezer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Red and clear rubber toy-like thing found in a playground — what is this thing?”
+
+Answer: “It’s a Lego part. It’s from a Duplo playground set.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Found at my grandma’s — there are rotating discs inside with numbers imprinted. What is this?”
+
+Answer: “It seems to be a menstrual calendar.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “What is this object?”
+
+Answer: “It’s a mouth harp in a case.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “A metal thing with a freely spinning wheel on one side — what is it?”
+
+Answer: “A pie crust edge sealer, my grandmother had one.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “What is this hard, clear, plastic thing?”
+
+Answer: “It WAS a drinking cup or insert that got melted in a dishwasher.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Found in a deep drawer in my Airbnb, what is this thing?”
+
+Answer: “It’s for drinking Yerba maté or maté; a South American drink, similar to tea. Very good.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Found in a thrift store: a porcelain plate with a metal bottom. On its side, there is a pipe. What could this be?”
+
+Answer: “It’s a plate warmer for toddlers. Through the pipe, you add hot water, close it up, and it keeps the food warm while the kid eats.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “This mystery item was received as a gift, no packaging. The material is firm foam and has a little give. What is this thing?”
+
+Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143853.jpg" style="width:100%"><br>
+
 ## <a href="#linky6" id="linky5">28 Facts That Might Change Your Perspective </a><br>
 
 <span style="font-size:4em">1. The Earths crust is so thin, that it can be compared to the skin of an apple, with a thickness-to-diameter ratio of about .4%.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143256.jpg" style="width:100%"><br>
@@ -425,7 +403,53 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">26. The women in this army were known for being ruthless, stopping at nothing to protect their kingdom. An Italian priest recounted a training exercise during which he watched the Amazons scale 120 meter-high thorn bushes. He said that not a single one complained during the exercise. The Amazons went on to inspire the Dora Milaje, the all-women army in the Black Panther franchise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143274.gif" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Dank Memes From Another Timeline </a><br>
+## <a href="#linky7" id="linky6">22 Pics Proving Influencers Are the Worst</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">25 Dank Memes From Another Timeline </a><br>
 
 <span style="font-size:4em">1. Rules for thee, not for me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142187.jpg" style="width:100%"><br>
 
@@ -477,7 +501,111 @@ Answer: “It appears to be a neck pillow/stretcher.</span><br><img src="https:/
 
 <span style="font-size:4em">25. Gotta clack those bad boys before you fire up that grill, thems the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87142213.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">24 Saddest Encounters With Celebrities</a><br>
+## <a href="#linky9" id="linky8">20 Minor Injuries That Are Actually Super Painful</a><br>
+
+<span style="font-size:4em">1. Canker sores. Holy smokes…. Turns out I get them when I drink soda and energy drinks. I don’t drink them anymore, I rarely get canker sores now, and I’m healthier than ever! -u/Tomb5t0ne</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050439/87144865/canker.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When you bite something like a chip but the angle wasnt quite right and it gets the roof of your mouth. -u/EnvironmentalYak4715</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050451/87144866/chip.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When you hit your head on the bottom of an open cabinet door. -u/R12356 </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144868/cabinet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Getting hit in the ankle by a skateboard. -u/Gregbot3000</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144869/board.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Gas pains. -u/chrs_trnr</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050521/87144871/fart.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Not really an injury but trying to walk after your foot fell asleep. -u/LowCheesecake5275</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050524/87144872/fellasleep.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Eyelash in eyeball. -u/papachon</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050513/87144870/eyelash.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Pinching your finger in the door. -u/LurkingAintEazy</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050531/87144873/finger.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Funnybone. Not so funny. -u/purenergy12</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050535/87144874/funny.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Leg cramps. -u/PegasoZ102</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050502/87144867/cramp.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Hangnail. -u/ZealousidealAd5679</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050543/87144875/hang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When you tell a joke and nobody laughs. -u/Ordinary-Freedom7193</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050546/87144876/joker.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Hitting your knee on a table. The pain crescendo is real and then it goes away. -u/soline</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050553/87144877/knee.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Sleeping in a weird position and waking up with a stiff painful neck. -u/44pennystocks</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050557/87144878/neck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. That f**king ingrown hair or zit or whatever right inside the tip of your nose. -u/rfs103181</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050605/87144879/nose.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Hitting your shin bone on anything. -u/Feels2old</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050608/87144880/shin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Stubbing your toe. -u/I_Lick_Bananas</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050616/87144881/toe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Falling on your butt and hitting your tailbone thingy. -u/Respond2406</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050619/87144882/tail.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Biting your tongue. -u/Keithninety</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050627/87144883/tongue.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Paper cuts. -u/Velocity9876</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/051149/87144884/paper.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">30 Design Fails That Were Dead On Arrival </a><br>
+
+<span style="font-size:4em">1. Stoplights In Lake Tahoe Filled With Snow Due To A Crappy Design Of Not Having The Bottom Cut Out To Prevent Snow Accumulation. It’s A World-Class Ski Area, Snow Should Be A Key Factor In All Design Decisions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Wheelchair Friendly Stairway. You know someone had a laugh with this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Know The Facts - I Have Beautiful Teeth Too! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. At Least They Cant See Your Face</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Never noticed this before, but the bowl is on the milk, instead of the milk being in the bowl. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This shirt. I wanted to look like a dork, Is borrow your dads clothes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I wonder if shes pregnant? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Orange is the new milk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Go ahead I dare you.  A bike lane than ends in oncoming traffic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Chalk that looks like a popsicle stick, what could go wrong. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. WTF is going on here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The Stairs In An Airbnb I Stayed In Where Every Step Is A Different Height, Width And Depth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This Spacious Toilet Cubical</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Dont Give Candy To Babies Please</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Yee-Haw A Violin!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. This Is So Bad I Forgot How Giraffes Really Look</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Simple Question, Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Blehhh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Tactile Paving For The Visually Impaired Interrupted By Giant Bench</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Marvel In Ohio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Guys I Found An App Which Rents Ice Ships</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This Taco Someone Posted From Their Work Cafeteria</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Cherry On Top Of The Road</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I Think I’ve Found It, The Worst Expiration Date Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A DIY Shower I Saw While House Hunting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. The Sign Telling Us Where Our Room Is</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Mens Toilet In A Cafe In Shanghai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. This Winter, You Can Set Your Feet On Fire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Hidden What?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The Worst Staircase I Have Ever Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143769.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">24 Saddest Encounters With Celebrities</a><br>
 
 <span style="font-size:4em">1. My brother met Gene Simmons back stage at a show he was playing in. Gene complimented my brother highly on his guitar playing but then said too bad youll never make it and just walked away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144451.jpg" style="width:100%"><br>
 
@@ -587,7 +715,7 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">24. Aziz Ansari hit on me years ago and I was too starstruck to remember how to talk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144467.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 Fresh Memes of Unspeakable Dankness</a><br>
+## <a href="#linky12" id="linky11">20 Fresh Memes of Unspeakable Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144184.png" style="width:100%"><br>
 
@@ -628,163 +756,6 @@ Gold virginity popped cheers!!!</span><br><img src="https://cdn.ebaumsworld.com/
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144203.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87144205.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">20 Minor Injuries That Are Actually Super Painful</a><br>
-
-<span style="font-size:4em">1. Canker sores. Holy smokes…. Turns out I get them when I drink soda and energy drinks. I don’t drink them anymore, I rarely get canker sores now, and I’m healthier than ever! -u/Tomb5t0ne</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050439/87144865/canker.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When you bite something like a chip but the angle wasnt quite right and it gets the roof of your mouth. -u/EnvironmentalYak4715</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050451/87144866/chip.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When you hit your head on the bottom of an open cabinet door. -u/R12356 </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144868/cabinet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Getting hit in the ankle by a skateboard. -u/Gregbot3000</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050510/87144869/board.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gas pains. -u/chrs_trnr</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050521/87144871/fart.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Not really an injury but trying to walk after your foot fell asleep. -u/LowCheesecake5275</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050524/87144872/fellasleep.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Eyelash in eyeball. -u/papachon</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050513/87144870/eyelash.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Pinching your finger in the door. -u/LurkingAintEazy</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050531/87144873/finger.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Funnybone. Not so funny. -u/purenergy12</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050535/87144874/funny.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Leg cramps. -u/PegasoZ102</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050502/87144867/cramp.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Hangnail. -u/ZealousidealAd5679</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050543/87144875/hang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. When you tell a joke and nobody laughs. -u/Ordinary-Freedom7193</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050546/87144876/joker.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Hitting your knee on a table. The pain crescendo is real and then it goes away. -u/soline</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050553/87144877/knee.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Sleeping in a weird position and waking up with a stiff painful neck. -u/44pennystocks</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050557/87144878/neck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. That f**king ingrown hair or zit or whatever right inside the tip of your nose. -u/rfs103181</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050605/87144879/nose.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Hitting your shin bone on anything. -u/Feels2old</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050608/87144880/shin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Stubbing your toe. -u/I_Lick_Bananas</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050616/87144881/toe.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Falling on your butt and hitting your tailbone thingy. -u/Respond2406</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050619/87144882/tail.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Biting your tongue. -u/Keithninety</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/050627/87144883/tongue.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Paper cuts. -u/Velocity9876</span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/051149/87144884/paper.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">Nic Cage Gets Candid Answering the Internet's Burning Questions</a><br>
-
-<span style="font-size:4em">1. Q - Who is your favorite character in all of literature and film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043143/87144050/east-of-eden.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-A - That is so hard to answer. I will say that James Dean’s performance as Cal in East of Eden is largely the reason I became a film actor. His role in that is one of my favorite characters in cinema. But then we can go all the way to Rasputin or we can go to Dmitri Karamazov. Dmitri Karamazov is one my favorite characters in literature. I love him so much because he’s so happy and he has no money. He’s just living it up. He spent all his money trying to get the girl. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043715/87144052/download.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-
-I did the same thing once. I was very Dmitri Karamazov in high school. The most beautiful girl in high school who was a grade older than me invited me to the prom but I had no money. My grandmother gave each of us a little bond. My older brother bought a car. My second oldest brother bought some stereo equipment. And I splashed out on a chauffeur-driven limousine, a tuxedo and a four course meal at Le Dome on Sunset blvd. The car was $2000, the stereo was $2000, and my prom night was $2000 and man, that was money well spent. THAT’s Dmitri Karamazov.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/043835/87144053/34017122-8807887-image-m-131_1601929849363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Q: I have a 2 regarding the movie Willys Wonderland. Did you or the director decide that you would not say a single word the whole movie, and 2, every time you went to recharge (grab a can from 6 pack) was it secretly filled with alcohol or anything like that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044016/87144055/image.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-A: The dialogue for my character in Willy’s Wonderland was very sparse, so I decided with Kevin, the director, to go full Harpo Marx and take all the dialogue out because I thought that would be a fun acting challenge to see how much I could communicate without words and only with movement and facial expressions. I’m very happy with the results of Willy’s Wonderland. It was a good experiment. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044156/87144056/the_unbearable_weight_of_massive_talent_229253.0.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-The can question is an interesting one, and I hesitate to answer it for you because your relationship with the movie is far more important than my relationship with the movie and so you as the audience member can imagine and surmise whatever you want to be in that can. That is a far better answer and reason for the can than anything I could tell you. I want YOUR opinion as to what was in the can, because that was the right opinion.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044416/87144058/merlin_190797741_3bd42c19-5686-46c9-b90d-99f6c84d2c13-mobileMasterAt3x.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Q: You and Pedro seemed like you had so much fun making this movie; what is one story you don’t mind sharing that you haven’t yet about your experience with filming and working with Pedro? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044521/87144059/EB20040425REVIEWS08404250302AR.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-A: First and foremost, Pedro Pascal is a genuinely nice man. You couldn’t ask for a nicer more pleasant person to work with. Second, he has a very unique sense of humor. It’s the kind of sense of humor where I don’t know if he’s really making a joke or he isn’t making a joke. Such as comment about the appearance of a cabbage in a cabbage field. And it made me wonder if he was a method actor and was in character and adding a kind of confused dimension to the Javi role, or if he genuinely thought the cabbage was amusing. I am still confounded by this. I mean who makes a joke about cabbage, except him? It’s just not funny!
-
-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044628/87144064/3000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Q: What has been your most challenging role to get into character each day to film? What is your favorite character that youve ever portrayed? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044732/87144065/1498576162376-cage12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-A: I would say that Nick Cage in Massive Talent was the most challenging role I had to get into character for because I had the added component of trying to protect a person named Nick Cage and also facilitating the director’s absurdist vision of so-called Nick Cage and it was a highwire act every day. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/044931/87144066/343423131441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-Again, Pig is my favorite performance of mine, and I think that movie, along with Scorsese’s Bringing Out The Dead are arguably my two best movies as a whole</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045052/87144067/MV5BMTMzNzA0MTUzNF5BMl5BanBnXkFtZTcwNTEyNzkwNQ@@._V1_.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Q: I know you have a love of the silent era, especially the German expressionist stuff. What’s your favorite silent film? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045208/87144068/52744-posts.facebook_lg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-A: Boy that’s a hard list to conjure up because there are so many memorable ones but I would say that Lon Chaney in Phantom of the Opera comes to mind but Nosferatu, Schreck, his performance, and even Barrymore in Jekyll and Hyde. I think that Barrymore did more to inspire Schreck’s performance than the other way around. Oh, and anything Chaplin did was magic: City Lights, Modern Times. It depends on the season!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045410/87144069/05a.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Q: Pig was an absolutely incredible film, what drew you to that project, and why do you think that it struck a cord with so many people? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045541/87144092/1308201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-
-A: Thank you. I was interested in returning to a more quiet, naturalistic style of film performance, having done a series of more operatic performance styles. The movie feels rather like a folk song to me or a poem, and the character of Rob was contending with tremendous grief and self imposed isolation and I think we as a group of people experiencing a pandemic in 2020-21 we’re probably also having similar feelings of loss and isolation and it communicated to a nerve we were all experiencing. Its one of my favorite movies, and its probably my best work.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045655/87144093/wild-at-heart-slide-1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Q: Have you seen Leaving Las Vegas recently? I think that is my all time favorite Nicolas Cage performance. How do you feel thinking back on Leaving Las Vegas and your performance in it? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/045942/87144094/types-of-pasta-1581024990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-A: Thank you. I think Leaving Las Vegas, Pig and Bringing Out The Dead are my three favorite performances of my own body of work. I have not seen Leaving Las Vegas recently, however that movie and Elizabeth Shue’s work in that movie are what I aspire to continue towards, and did continue towards with Pig, which is why I am always going to be up for small budget, independent, dramas.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050203/87144095/1500386626-credit-melinda-sue-gordon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Q: Ethan Hawke said that youre the first actor since Marlon Brando to do something new with the art of acting. Any thoughts on that? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050341/87144096/nationaltreasure_niccage1.gif" style="width:100%"><br>
-
-<span style="font-size:4em"> 
-
-A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with Ethan in Lord of War and have always been spellbound by his talent. I think many of the choices I’ve made have been inspired by film stars from the silent era as well as cultural expression of performance like Kabuki and some of the Golden Age actors like Cagney so I don’t know how to say I’ve done something new because those elements are always on my mind
-
-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050509/87144097/nic-cage-ghost-rider.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Q: Do you like bees? </span><br><img src="https://cdn.ebaumsworld.com/2022/04/12/050649/87144098/d4c2dea5-9622-4d81-badd-6c051488dd3e-national-treasure.png" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">22 Pics Proving Influencers Are the Worst</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144515.jpg" style="width:100%"><br>
 
 ## <a href="#linky13" id="linky12">What The F**k Is Going On In These Pictures?</a><br>
 
@@ -842,93 +813,73 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87142831.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">Females Posting Their L’s Online Is the Karma We like to See</a><br>
+## <a href="#linky14" id="linky13">32 Photos that Might Make You Question Reality</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031402/87144776/cheat.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Accidental twins!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144528.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031406/87144777/burn.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “I need an exterminator!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031414/87144778/date.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “I didn’t even notice the boots at first, even though I read the title.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031417/87144779/divorce.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Too much cat”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144524.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031425/87144780/driver.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “My car looks like it’s missing the back wheel at this angle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144526.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031428/87144781/feet.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Pants aren’t the only camouflage going on in the picture. A couple of snugging pups on a Sunday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144527.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031432/87144782/cuck.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Four legs vs no legs”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144523.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031436/87144783/guys.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Reversed leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144529.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031439/87144784/ice.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “My campus has a sign begging us to step on the grass.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031444/87144785/james.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “After I poured milk into my coffee, I found Snoopy on the doghouse under the moon.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031447/87144786/marriage.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “My friend has a levitating dog.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144532.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031451/87144787/oof.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Hi there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144533.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031455/87144788/perks.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “This truck carrying a heavy load”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144534.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031458/87144789/proposal.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Flower lady”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144521.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031503/87144790/rich.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I match the bathroom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031506/87144791/squirrel.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “My husband has really, really short legs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031509/87144792/stream.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “I found a 2-headed duck!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/031515/87144793/therapist.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “A building near my house looks like a wall.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032823/87144794/art-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Watched Obsessive Compulsive Cleaners when I spotted this fine gentleman wearing a little fancy hat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144525.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032834/87144795/ring-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Mirror or window?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/13/032846/87144796/book-min.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Floating trailer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144540.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">20 Small Movie Details With Big Implications </a><br>
+<span style="font-size:4em">22. “A dog-chicken centaur”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “My left hand is built different.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. In Indiana Jones and the Temple of Doom (1984), John Williams gave Short Round his own hero theme music. Anytime he is in action, the theme plays, just like Indy’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139613.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Is he inside or beside the car?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Terminator (1984) During the scene where Terminator is removing his eye with an x-acto, there is no blade visible when he brings the knife to his eye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139614.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Weird headless creature, or a dog enjoying the start of spring?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Arnold did his own stunts in Conan the Barbarian (1982) because no one could be found that was big enough to resemble him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139615.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. “Is the pole going through the table?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The Predator (1987), the character of Predator was never meant to make the distinctive clicking sound. Peter Cullen had finished 11 reels of King Kong and was coughing up blood. He chose this vocalization because it was easy on his voice and his face remembered him of a dying crab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139616.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. “Which paw goes with which leg?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. In Batman (1989) the Joker puts on a pair of glasses and says “You wouldn’t hit a man with glasses would you?”. This is a call back to the 1966 Batman TV Show where Batman said “Never hit a man with glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139617.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. “These stairs at a restaurant I went to look like a painting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. In The Terminator (1984), the T-800 is actually searching the phonebook with both fingers. A closeup shot shows his right finger hovering down to Sarah, but in the wide shot its revealed he’s already found John Conner with his left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139618.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. “The dunes of Namibia on a duvet cover”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In The Terminator (1984), the T-800 has human teeth, likely since this would be the only part of the endoskeleton visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139619.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. These reflections on a glass building</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In Alien (1979) a picture of Jonesy, the ship’s cat, as a kitten is seen on a computer terminal in the Nostromo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139620.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. This roof that extends for way too long</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In the 1983 movie Scarface. The character Tony Montana can be seen eating a lemon which is for washing your hands after dinner. This shows how poor he was growing up never being exposed to things of the rich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139628.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. “Transparent mountains”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In Die Hard (1988) John McClane can be seen holding down the slide release on the side of his Beretta before handing it to Clay, who he knows is Hans Gruber. Because he is loading an empty magazine if he didn’t hold the slide release it would have locked in the open/empty position.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Star Wars: Episode VI – Return of the Jedi (1983) Jabba the Hutt has a tattoo on his right forearm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In Top Gun (1988), the term “bogey” is misused throughout the movie. A bogey is an unidentified aircraft. Once identified it is referred to as “friendly”, “bandit” (for non-friendly aircraft) or as “hostile” (for non-friendly aircraft that may be fired at ie. engaged).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In Die Hard (1988) when John is talking to Hans in disguise as “Bill Clay,” this is the only scene that takes place at a Dutch angle in the whole movie. Dutch angles convey suspicion and unease, but actually comes from “Deutsch” angle which means German.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In order to prevent the twist of Vader being Luke’s father being spoiled in The Empire Strikes Back (1980), the line written in the script and spoken during filming was “Obi-Wan killed your father”, with it later dubbed over. Of the main cast, only Mark Hamill was informed before release</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. In 1989’s Indiana Jones and the Last Crusade, anyone with a lapel flower tries to kill Indy. Indy even signals Elsa is bad by giving her a flower when they meet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In Die Hard (1988), Alan Rickman’s Petrified Expression While Falling Was Completely Genuine. The Stunt Team Instructed Him That They Would Drop Him On The Count Of 3 But Instead Dropped Him At 1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In Terminator 2, the man taking the photos of the T-800 was the cop that the T-800 assaulted in Terminator 1. That’s why he was (speechlessly) taking photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In The Terminator (1984), James Cameron directed Schwarzenegger to move his eyes independently from his head while searching for his target, because it would conserve energy — a reasonable priority for a machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">31 People Who Lack Common Sense</a><br>
+## <a href="#linky15" id="linky14">31 People Who Lack Common Sense</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144605.jpg" style="width:100%"><br>
 
@@ -991,4 +942,46 @@ A: It’s very kind of Ethan to say so, as you may well know, I’ve worked with
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144637.png" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144638.jpeg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">20 Small Movie Details With Big Implications </a><br>
+
+<span style="font-size:4em">1. R. Lee Ermey, who plays Sergeant Hartman in Full Metal Jacket (1987), came up with 150 pages worth of insults for his role. Originally a technical advisor for the film, he took over after the original actor tired himself out after yelling for 30 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. In Indiana Jones and the Temple of Doom (1984), John Williams gave Short Round his own hero theme music. Anytime he is in action, the theme plays, just like Indy’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Terminator (1984) During the scene where Terminator is removing his eye with an x-acto, there is no blade visible when he brings the knife to his eye</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Arnold did his own stunts in Conan the Barbarian (1982) because no one could be found that was big enough to resemble him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Predator (1987), the character of Predator was never meant to make the distinctive clicking sound. Peter Cullen had finished 11 reels of King Kong and was coughing up blood. He chose this vocalization because it was easy on his voice and his face remembered him of a dying crab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In Batman (1989) the Joker puts on a pair of glasses and says “You wouldn’t hit a man with glasses would you?”. This is a call back to the 1966 Batman TV Show where Batman said “Never hit a man with glasses.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. In The Terminator (1984), the T-800 is actually searching the phonebook with both fingers. A closeup shot shows his right finger hovering down to Sarah, but in the wide shot its revealed he’s already found John Conner with his left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In The Terminator (1984), the T-800 has human teeth, likely since this would be the only part of the endoskeleton visible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In Alien (1979) a picture of Jonesy, the ship’s cat, as a kitten is seen on a computer terminal in the Nostromo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In the 1983 movie Scarface. The character Tony Montana can be seen eating a lemon which is for washing your hands after dinner. This shows how poor he was growing up never being exposed to things of the rich.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In Die Hard (1988) John McClane can be seen holding down the slide release on the side of his Beretta before handing it to Clay, who he knows is Hans Gruber. Because he is loading an empty magazine if he didn’t hold the slide release it would have locked in the open/empty position.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In Star Wars: Episode VI – Return of the Jedi (1983) Jabba the Hutt has a tattoo on his right forearm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In Top Gun (1988), the term “bogey” is misused throughout the movie. A bogey is an unidentified aircraft. Once identified it is referred to as “friendly”, “bandit” (for non-friendly aircraft) or as “hostile” (for non-friendly aircraft that may be fired at ie. engaged).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In Die Hard (1988) when John is talking to Hans in disguise as “Bill Clay,” this is the only scene that takes place at a Dutch angle in the whole movie. Dutch angles convey suspicion and unease, but actually comes from “Deutsch” angle which means German.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In order to prevent the twist of Vader being Luke’s father being spoiled in The Empire Strikes Back (1980), the line written in the script and spoken during filming was “Obi-Wan killed your father”, with it later dubbed over. Of the main cast, only Mark Hamill was informed before release</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. In 1989’s Indiana Jones and the Last Crusade, anyone with a lapel flower tries to kill Indy. Indy even signals Elsa is bad by giving her a flower when they meet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In Die Hard (1988), Alan Rickman’s Petrified Expression While Falling Was Completely Genuine. The Stunt Team Instructed Him That They Would Drop Him On The Count Of 3 But Instead Dropped Him At 1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In Terminator 2, the man taking the photos of the T-800 was the cop that the T-800 assaulted in Terminator 1. That’s why he was (speechlessly) taking photos.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In The Terminator (1984), James Cameron directed Schwarzenegger to move his eyes independently from his head while searching for his target, because it would conserve energy — a reasonable priority for a machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In Die Hard (1988), during the scene where John McClane (Bruce Willis) falls down a ventilator shaft, his stuntman (Keii Johnston) was supposed to grab onto the first vent. He missed. The footage was so good that editor Frank J. Urioste left it in the movie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87139631.jpg" style="width:100%"><br>
 
