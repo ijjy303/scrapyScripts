@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/17/2022-13:11:31
+Last updated: 04/17/2022-14:11:31
 <br>
 ## <a href="#linky2" id="linky1">26 Uplifting Pics to Save Your Day</a><br>
 
@@ -55,63 +55,57 @@ Last updated: 04/17/2022-13:11:31
 
 <span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Double Standards That Drove People Mad</a><br>
+## <a href="#linky3" id="linky2">25 TikTok Comments That Bring the Snark</a><br>
 
-<span style="font-size:4em">1. “I can’t believe you waste your time playing video games!” proceeds to binge 8 hours of Netflix -u/shifty_coder </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145773.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When I worked for a supermarket in the UK that rhymes with Baitrose, I bleached my hair. I’m a man. They ordered me to cut it all off and then changed my shift to be an outdoor trolley collector. And I had to wear a hat. The person who told me to do this had bleached blonde hair. They were not a man.-u/Kalesche</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145774.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My daughter and I have some things that have become traditions. We always go to Starbucks before school on Fridays, we like to go eat sushi for lunch on Tuesdays when she gets out of school early and we usually go just the two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145775.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-I get all kinds of dirty looks because people assume that a 45-year-old guy whos out with a beautiful young woman (16 going on 25) is some sort of lecherous monster. It sucks, but Ive been learning to brush it off.-u/beeedeee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145776.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. At work, if I am 5 mins late they will certainly let me know about it. But if I stay behind 15 mins later than my finish, not even a mention.-u/BleMaeBen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145777.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. 35 years ago and it still pisses me off. I got detention in high school, no biggie...I did the crime. However, I was scheduled to work so I asked for detention to be delayed for one day. Request denied. I pointed out that football players routinely had theirs rescheduled to accommodate games and practice. The only answer I got was Thats different.-u/pants_overrated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145778.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. When I was about 16, My dad (a baptist missionary pastor) once preached a 2-hour sermon on “the perils of pornography” and how absolutely evil it was, gotta save yourself for marriage, etc.. (he had also beaten the sh*t out of me for catching me with porn a couple of months prior) that same night when we got home from church, he asked me to bring him his phone that he’d left in the car. I opened it to find months of daily porn-watching in his internet history lmao-u/elchefeh69420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145779.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. One of the Regional Managers goes to State Prison for over a year for DWI. If you know anything about Texas DWI laws, that means he got caught multiple times. Comes out of Prison, is immediately transferred to Corporate, and made a Director.....A brand new employee is rear-ended in Stop/Go traffic on the highway. No injuries, but forced to take a drug test. Fails for weed, immediately fired. -u/shadow247</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145780.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. If there’s any issue big or small at daycare or school, they call the mom first.-u/mmmmmmmmmmmmmmfarts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145781.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Couldnt get my tubes tied without my husbands consent. Meanwhile, he had a vasectomy without even my knowledge.-u/kw66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145782.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. When I was a school nurse I was always alone with whatever children needed assistance, even after I would ask for help. New male school nurse started, and all of a sudden, three other people are available just to watch him. I felt terrible for the guy, but literally, no one trusted him with the diabetic kid or the kid with the trach alone. “Oh, he can’t be alone!” But for me a woman was never questioned, double standards abound.-u/pretendthisisironic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145772.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Most male bathrooms don’t have baby changing stations.-u/1saltymf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145783.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. It’s considered kind and noble to put down a pet that is old and suffering, even if you can’t really tell how they are feeling or coping but if someone is suffering majorly and in pain and at the end of their life and is fully communicating, they still can’t give you permission to go forward with euthanasia.-u/NapCaptain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145784.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My high school English teacher would hear something even remotely phone-like and EXPLODE WHOSE PHONE IS THAT!?!?!If no one answered right away she would pace the desks, and if anyone acted suspicious she would have them empty their pockets, bags, etc on the desk. If there was a phone, she confiscated it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145785.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-If there were any unread notifications, she would read them aloud. But, every now and again, she would do her whole explosion, then glance down and giggle and say oh, its my phone and then text away. Also, she was a terrible English teacher.-u/finalbeginning96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145786.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. For the purposes of this story, I have two little brothers. They do not share mothers. We were eating breakfast with the mother of one of them. The other one is a picky eater; he has issues with texture, but he never complains, just powers through as best he can. She got up to get coffee, and they traded plates. Her bio son had almost cleaned his, and her stepson had eaten about half, before the trade. Then they both got up and took their plates to her like theyd finished, and she accepted them both as done. You see, when her bio son says hes full, she believes him. When her stepson says hes full, she doesnt. So they made it look like the step had eaten more because they knew the bios plate would be accepted in any condition.I never told them that I know they did this (and probably have for a while), but I love that they figured a way around her double standards.-u/CrazyRainbowStar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145787.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A girl I dated in high school would often vent to me about her friends boyfriends doing the same things she would do to me. For example, wed see each other every weekend. She wanted to see me more often, but we lived 40 minutes from each other, gas was expensive, I was broke, and I had homework and extracurriculars, so I was busy during the week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145788.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-She got mad and angrily told me to let her know when I cared enough to pencil her into my calendar. Not too much later, she was on the phone with me, telling me how her friends boyfriend said the same thing to her friend and what an asshole he was for it. When I called her out, she just made up some crap about how our situation was different.-u/VisionInPlaid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145789.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Me and a classmate wrote the same answer with different wordings on a test. My classmate got the answer marked wrong. Luckily because I am her favorite (I dont enjoy it) I was able to negotiate with her and she changed the mark. Although its still infuriating that it actually happened in the first place and yes, she didnt like him at the time.-u/Fi11a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145790.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. We had a really expensive camping trip in middle school. Get to this place and the girls rooms are in camp; thick clay walls, fridges, plugs. Totally f*ckin decked out. The boys cabins? A 15-minute walk away from the main place, and right next to a dam; the walls were CARDBOARD and the place had more holes than a block of Swiss cheese. I still feel robbed.-u/psychoxxsurfer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145791.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The youth minister at the church I attended told my girlfriend’s parents that I did drugs and that she should break up with me. Which she did. It really made buying drugs from that guy awkward.-u/Left_Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145792.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. When we bought our house my wife set up all the utilities. I’m on the spectrum, I really really hate dealing with that stuff, bills, money… I go to work and earn the money, she does the budgeting and makes sure everything gets paid. It’s crazy to me how often a company will have to have me get on the phone to make a change or whatever on an account that SHE set up! I’m the husband so I must be in charge of the finances?-u/goodolewhasisname</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145793.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When my dad lit up cigarette #2 of 3 during a 20-minute talk about the dangers of smoking and how hed kick my butt if I ever started. Meanwhile, I had asthma and chronic bronchitis from all the secondhand smoke in the house-u/TakeoGaming</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145794.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Got written up for wearing nice shorts to work. In an IT position. No customer-facing roles at all. My female manager and all other women in the company were permitted to wear any type of dress or skirt. My manager always wore her athletic skirt she worked out in. It was less than knee length. F*ck you Black Hills Energy-u/theitguy52</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145795.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. I went to a small Bible college where we had to sign a contract promising not to drink or have premarital sex while enrolled there. At one point a couple was caught having sex, the guy was put on some sort of light probation (of course he was still able to play on the school’s basketball team) and the girl was immediately expelled.-u/katieoffloatsmoke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145796.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144821.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Disturbing Things House Guests Did</a><br>
 
@@ -265,57 +259,31 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025859/87145652/screwed-15.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 TikTok Comments That Bring the Snark</a><br>
+## <a href="#linky6" id="linky5">12 Famous Super Models Then And Now</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144817.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Janice Dickinson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144801.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Linda Evangelista</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144815.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Naomi Campbell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144822.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Claudia Schiffer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144803.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Cindy Crawford</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144804.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tyra Banks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144800.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Brooke Shields</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144798.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Kathy Ireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144805.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Kate Moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144802.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Christie Brinkley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144806.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Heidi Klum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144821.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Paulina Porizkova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143354.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">27 Funny Memes to Turn Your Brain Off </a><br>
 
@@ -443,7 +411,459 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">34. So called “Blood rain” evening last week in Gibraltar. No edit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145831.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">56 Rapid Fire Randoms to Unleash Upon Your Boredom</a><br>
+## <a href="#linky9" id="linky8">25 Jobs That Deserve Much Higher Pay</a><br>
+
+<span style="font-size:4em">1. Group home house staff. -u/cutiegirl88 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. 911 Dispatcher. Must multitask, and the job involves listening to very stressful and emotional situations, while maintaining calm, but not able to help directly. Dispatchers are unsung heroes. -u/NoCreativeName2016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. All salaried jobs considering the current rate of inflation. -u/Chaosinaflash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Caregivers. I used to work on a dementia ward and was assaulted on a daily basis, not to mention that I’m wiping up sh*t and piss all day. -u/ILoveMyCatsSoMuch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Certified Nursing Assistant. They do so much dirty work, work extremely hard, and work just as strange hours as nurses. They should make way more money. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Social workers. I don’t know how we’re supposed to help homeless people when the people assigned to help them make less than a person working sales at Nordstrom. -u/Permanenceisall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dishwashers. Its a behind-the-scenes occupation that is very underpaid. No special skill is required to become a dishwasher but clean and sanitary dishes are a must for any food service business. Considering that the safety of the public is at stake, dishwashers have a huge responsibility and hence deserve more pay. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Line cooks. Especially in high-end restaurants, generally a couple of bucks above minimum wage (at best) and grueling labor while servers are walking away with $800+ a night. Source: worked as a cook in high-end kitchens, many hire undocumented workers for the simple fact that they generally don’t ask for more. -u/qmzx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. School teachers. Talk about a thankless job. -u/ocularnervosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The entire agriculture sector. Civilization is built on farming. -u/hammernhank45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Anyone who deals with the public. Retail is sh*t. They tolerate so much crap from people. -u/3kids_nomoney</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Substitute teachers. Many places pay 80 dollars a day, assume a 7.5 hour day and you have 11 dollars per hour...The only perk of the position is the incredibly flexible hours. -u/willthesane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145731.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Zookeepers. College degree required. Average pay is half of the average teacher pay. And work is harder over the summer. -u/coupon_is_expired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145732.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Housekeeping. The minimum wage isnt enough to scrub literal sh*t off the toilet after someone had a diarrhea explosion. -u/cerin2001</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I was shocked when a ski patrol person told me what they make. They’re basically EMT’s of the mountains! -u/ittasteslikepurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. EMT. I make $12.50 an hour. -u/Reasonable-Smell-550</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Delivery drivers. They have higher probability of having an accident (obvious reasons) but also of going to a dangerous place without previous acknowledgment. -u/nonameuser21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Gas station employees and grocery store workers. Double their pay. -u/Pink_Sky_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Journalists. Real, quality journalists. People have generally no idea how meager their salary often is. -u/funkemard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Public accounting. Working 65-80 hours during busy season and not even getting paid for working overtime. That’s why there is a huge turnover in public accounting. -u/kenshin-x-212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Any job where you destroy your body; sh*t is no f*cking joke. -u/hunkachunk88888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Any jobs that have to do with kids. Teachers, daycare providers, etc. Most people dont realize how much effort it actually takes to be able to do those things. -u/-caballero</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I have a BS in Biology, been a vet tech for 5 years. I just broke over $20/hr this year. Full time at my clinic is 36 hours and were discouraged from overtime. Im full-time there and recently started working part-time at an emergency vet in the area to make ends meet. Its insane that we make so little. -u/the_bean_fiend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I work as a school janitor. Im 3 weeks in and Ive already seen some absolutely bananas sh*t. -u/makoexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Almost all of them. Seriously, without any hyperbole at all. Almost every single job deserves to be paid more. Except management. Management is not harder. It doesnt take more skills - just different ones. It usually does nothing to add value that a production or office worker doesnt do. Management doesnt deserve greater pay. Everything else does. -u/MortalTwit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145744.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Double Standards That Drove People Mad</a><br>
+
+<span style="font-size:4em">1. “I can’t believe you waste your time playing video games!” proceeds to binge 8 hours of Netflix -u/shifty_coder </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When I worked for a supermarket in the UK that rhymes with Baitrose, I bleached my hair. I’m a man. They ordered me to cut it all off and then changed my shift to be an outdoor trolley collector. And I had to wear a hat. The person who told me to do this had bleached blonde hair. They were not a man.-u/Kalesche</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My daughter and I have some things that have become traditions. We always go to Starbucks before school on Fridays, we like to go eat sushi for lunch on Tuesdays when she gets out of school early and we usually go just the two of us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+I get all kinds of dirty looks because people assume that a 45-year-old guy whos out with a beautiful young woman (16 going on 25) is some sort of lecherous monster. It sucks, but Ive been learning to brush it off.-u/beeedeee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. At work, if I am 5 mins late they will certainly let me know about it. But if I stay behind 15 mins later than my finish, not even a mention.-u/BleMaeBen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. 35 years ago and it still pisses me off. I got detention in high school, no biggie...I did the crime. However, I was scheduled to work so I asked for detention to be delayed for one day. Request denied. I pointed out that football players routinely had theirs rescheduled to accommodate games and practice. The only answer I got was Thats different.-u/pants_overrated</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. When I was about 16, My dad (a baptist missionary pastor) once preached a 2-hour sermon on “the perils of pornography” and how absolutely evil it was, gotta save yourself for marriage, etc.. (he had also beaten the sh*t out of me for catching me with porn a couple of months prior) that same night when we got home from church, he asked me to bring him his phone that he’d left in the car. I opened it to find months of daily porn-watching in his internet history lmao-u/elchefeh69420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. One of the Regional Managers goes to State Prison for over a year for DWI. If you know anything about Texas DWI laws, that means he got caught multiple times. Comes out of Prison, is immediately transferred to Corporate, and made a Director.....A brand new employee is rear-ended in Stop/Go traffic on the highway. No injuries, but forced to take a drug test. Fails for weed, immediately fired. -u/shadow247</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. If there’s any issue big or small at daycare or school, they call the mom first.-u/mmmmmmmmmmmmmmfarts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Couldnt get my tubes tied without my husbands consent. Meanwhile, he had a vasectomy without even my knowledge.-u/kw66</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When I was a school nurse I was always alone with whatever children needed assistance, even after I would ask for help. New male school nurse started, and all of a sudden, three other people are available just to watch him. I felt terrible for the guy, but literally, no one trusted him with the diabetic kid or the kid with the trach alone. “Oh, he can’t be alone!” But for me a woman was never questioned, double standards abound.-u/pretendthisisironic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Most male bathrooms don’t have baby changing stations.-u/1saltymf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. It’s considered kind and noble to put down a pet that is old and suffering, even if you can’t really tell how they are feeling or coping but if someone is suffering majorly and in pain and at the end of their life and is fully communicating, they still can’t give you permission to go forward with euthanasia.-u/NapCaptain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My high school English teacher would hear something even remotely phone-like and EXPLODE WHOSE PHONE IS THAT!?!?!If no one answered right away she would pace the desks, and if anyone acted suspicious she would have them empty their pockets, bags, etc on the desk. If there was a phone, she confiscated it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+If there were any unread notifications, she would read them aloud. But, every now and again, she would do her whole explosion, then glance down and giggle and say oh, its my phone and then text away. Also, she was a terrible English teacher.-u/finalbeginning96</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. For the purposes of this story, I have two little brothers. They do not share mothers. We were eating breakfast with the mother of one of them. The other one is a picky eater; he has issues with texture, but he never complains, just powers through as best he can. She got up to get coffee, and they traded plates. Her bio son had almost cleaned his, and her stepson had eaten about half, before the trade. Then they both got up and took their plates to her like theyd finished, and she accepted them both as done. You see, when her bio son says hes full, she believes him. When her stepson says hes full, she doesnt. So they made it look like the step had eaten more because they knew the bios plate would be accepted in any condition.I never told them that I know they did this (and probably have for a while), but I love that they figured a way around her double standards.-u/CrazyRainbowStar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145787.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A girl I dated in high school would often vent to me about her friends boyfriends doing the same things she would do to me. For example, wed see each other every weekend. She wanted to see me more often, but we lived 40 minutes from each other, gas was expensive, I was broke, and I had homework and extracurriculars, so I was busy during the week. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+She got mad and angrily told me to let her know when I cared enough to pencil her into my calendar. Not too much later, she was on the phone with me, telling me how her friends boyfriend said the same thing to her friend and what an asshole he was for it. When I called her out, she just made up some crap about how our situation was different.-u/VisionInPlaid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Me and a classmate wrote the same answer with different wordings on a test. My classmate got the answer marked wrong. Luckily because I am her favorite (I dont enjoy it) I was able to negotiate with her and she changed the mark. Although its still infuriating that it actually happened in the first place and yes, she didnt like him at the time.-u/Fi11a</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. We had a really expensive camping trip in middle school. Get to this place and the girls rooms are in camp; thick clay walls, fridges, plugs. Totally f*ckin decked out. The boys cabins? A 15-minute walk away from the main place, and right next to a dam; the walls were CARDBOARD and the place had more holes than a block of Swiss cheese. I still feel robbed.-u/psychoxxsurfer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The youth minister at the church I attended told my girlfriend’s parents that I did drugs and that she should break up with me. Which she did. It really made buying drugs from that guy awkward.-u/Left_Apparently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When we bought our house my wife set up all the utilities. I’m on the spectrum, I really really hate dealing with that stuff, bills, money… I go to work and earn the money, she does the budgeting and makes sure everything gets paid. It’s crazy to me how often a company will have to have me get on the phone to make a change or whatever on an account that SHE set up! I’m the husband so I must be in charge of the finances?-u/goodolewhasisname</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. When my dad lit up cigarette #2 of 3 during a 20-minute talk about the dangers of smoking and how hed kick my butt if I ever started. Meanwhile, I had asthma and chronic bronchitis from all the secondhand smoke in the house-u/TakeoGaming</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Got written up for wearing nice shorts to work. In an IT position. No customer-facing roles at all. My female manager and all other women in the company were permitted to wear any type of dress or skirt. My manager always wore her athletic skirt she worked out in. It was less than knee length. F*ck you Black Hills Energy-u/theitguy52</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I went to a small Bible college where we had to sign a contract promising not to drink or have premarital sex while enrolled there. At one point a couple was caught having sex, the guy was put on some sort of light probation (of course he was still able to play on the school’s basketball team) and the girl was immediately expelled.-u/katieoffloatsmoke</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145796.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">24 Construction Fails Holding On By the Skin of Their Teeth </a><br>
+
+<span style="font-size:4em">1. Doors that dont fully close because the handles were placed on the wrong side, or what we like to call, moronic behavior. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I think its time we have a talk about the foundation sweetie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. We have no idea what were looking at, but we know it isnt good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. When people say its the thought that count, theyre trying not to hurt your feelings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Oh I wonder where this door goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. You said you wanted an outdoor show, you didnt say you wanted it to be private. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This makes the hair on our neck stand at attention. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Double the locks, double the annoyance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The rock is holding things together better than most of yall, so dont be too quick to judge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. At least if you slip and fall in the shower, the whole neighborhood will know about it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. What the hell is going on here? And what problem is being attended to? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Now this baby will kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im going for a natural look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The longer you stare the worse it gets. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Great job, just one minor mistake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. What am I looking at? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. *Fat Joe Voice* Lean back. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This pain us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. You can tell they cut the support beams, but you have no idea what they were thinking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A door to nowhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Even this fan had enough, just go!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141779.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">16 Final Thoughts From People Who Saw The Light</a><br>
+
+<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">20 Facial Tattoos That Swung and Missed</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041958/87146464/blue.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041951/87146463/monster.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041928/87146461/cone.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041940/87146462/face.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">24 Charts Filled With Random but Interesting Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146378.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">26 Easter Bunny Pics That Scared the Sh*t Out of Us</a><br>
+
+<span style="font-size:4em">1. Is this some conspiracy created by mental health providers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I mean at least he dressed for success. Look at that bowtie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This poor child is so innocent, shes oblivious to the horror. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This kid will have trust issues , and never enjoy nature because of this moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. These are purposely gory obviously, but that doesnt make it any less terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Why do all Easter Bunnies look like they are going to assault your entire being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This woman will haunt my nightmares until my dying day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. And did they even try here? That mask is so terrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The real question is did we actually believe this crap as kids, or did we go along with it for the candy?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. These days, the Easter Bunny looks high on drugs or drunk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Pink bun bun looks like hes trying to put the poor kid in a choke hold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This kid is an entire vibe. GTFO kid while you still can!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. And some day this kid is going to wonder why the color pink makes him sick, and why Easter raises his anxiety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Oh dear god, this poor thing had two latching him in. Where is this kid? What kind of adult has he become?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The kids face makes sense. Why is the bunny surprised though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. I think Ill take my chances with the monster under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Why is JUST the mask even scarier than a full body costume?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143824.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. When you find out the Easter bunny is going to come to your house when youre asleep, but then you find out he looks like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The makers of these costumes must sit around thinking, What fresh hell can we unleash on children this year?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143816.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Poor kid has given up and turned himself over to his fate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Its bad enough seeing them in the mall but theres a huge violation when you see them in your home. Are you ever safe?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. WTF is this thing. Thats not a bunny, thats a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Somebody help this poor girl for Christs sake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. She doesnt give a flying f*ck how creepy this thing is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Is that really a mustache on the Easter Bunny? As if sh*t wasnt scary enough.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Its everything in this one. The mask. The shirt. The sepia tone. Chills.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143826.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">16 Mildly Annoying Things That Make Us Fume</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">56 Rapid Fire Randoms to Unleash Upon Your Boredom</a><br>
 
 <span style="font-size:4em">1. A polar bear track vs. a human hand.  Its probably time to get the hell out of there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87145666.jpg" style="width:100%"><br>
 
@@ -556,424 +976,4 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/030620/87146422/87146222.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/030626/87146423/87146228.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">26 Easter Bunny Pics That Scared the Sh*t Out of Us</a><br>
-
-<span style="font-size:4em">1. Is this some conspiracy created by mental health providers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I mean at least he dressed for success. Look at that bowtie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This poor child is so innocent, shes oblivious to the horror. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. This kid will have trust issues , and never enjoy nature because of this moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. These are purposely gory obviously, but that doesnt make it any less terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Why do all Easter Bunnies look like they are going to assault your entire being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This woman will haunt my nightmares until my dying day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. And did they even try here? That mask is so terrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The real question is did we actually believe this crap as kids, or did we go along with it for the candy?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. These days, the Easter Bunny looks high on drugs or drunk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Pink bun bun looks like hes trying to put the poor kid in a choke hold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This kid is an entire vibe. GTFO kid while you still can!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. And some day this kid is going to wonder why the color pink makes him sick, and why Easter raises his anxiety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Oh dear god, this poor thing had two latching him in. Where is this kid? What kind of adult has he become?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The kids face makes sense. Why is the bunny surprised though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I think Ill take my chances with the monster under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Why is JUST the mask even scarier than a full body costume?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143824.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. When you find out the Easter bunny is going to come to your house when youre asleep, but then you find out he looks like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The makers of these costumes must sit around thinking, What fresh hell can we unleash on children this year?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143816.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Poor kid has given up and turned himself over to his fate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Its bad enough seeing them in the mall but theres a huge violation when you see them in your home. Are you ever safe?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. WTF is this thing. Thats not a bunny, thats a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Somebody help this poor girl for Christs sake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. She doesnt give a flying f*ck how creepy this thing is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Is that really a mustache on the Easter Bunny? As if sh*t wasnt scary enough.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Its everything in this one. The mask. The shirt. The sepia tone. Chills.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143826.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">25 Jobs That Deserve Much Higher Pay</a><br>
-
-<span style="font-size:4em">1. Group home house staff. -u/cutiegirl88 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. 911 Dispatcher. Must multitask, and the job involves listening to very stressful and emotional situations, while maintaining calm, but not able to help directly. Dispatchers are unsung heroes. -u/NoCreativeName2016</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. All salaried jobs considering the current rate of inflation. -u/Chaosinaflash</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Caregivers. I used to work on a dementia ward and was assaulted on a daily basis, not to mention that I’m wiping up sh*t and piss all day. -u/ILoveMyCatsSoMuch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Certified Nursing Assistant. They do so much dirty work, work extremely hard, and work just as strange hours as nurses. They should make way more money. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Social workers. I don’t know how we’re supposed to help homeless people when the people assigned to help them make less than a person working sales at Nordstrom. -u/Permanenceisall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dishwashers. Its a behind-the-scenes occupation that is very underpaid. No special skill is required to become a dishwasher but clean and sanitary dishes are a must for any food service business. Considering that the safety of the public is at stake, dishwashers have a huge responsibility and hence deserve more pay. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Line cooks. Especially in high-end restaurants, generally a couple of bucks above minimum wage (at best) and grueling labor while servers are walking away with $800+ a night. Source: worked as a cook in high-end kitchens, many hire undocumented workers for the simple fact that they generally don’t ask for more. -u/qmzx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. School teachers. Talk about a thankless job. -u/ocularnervosa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The entire agriculture sector. Civilization is built on farming. -u/hammernhank45</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Anyone who deals with the public. Retail is sh*t. They tolerate so much crap from people. -u/3kids_nomoney</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Substitute teachers. Many places pay 80 dollars a day, assume a 7.5 hour day and you have 11 dollars per hour...The only perk of the position is the incredibly flexible hours. -u/willthesane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145731.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Zookeepers. College degree required. Average pay is half of the average teacher pay. And work is harder over the summer. -u/coupon_is_expired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145732.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Housekeeping. The minimum wage isnt enough to scrub literal sh*t off the toilet after someone had a diarrhea explosion. -u/cerin2001</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I was shocked when a ski patrol person told me what they make. They’re basically EMT’s of the mountains! -u/ittasteslikepurple</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. EMT. I make $12.50 an hour. -u/Reasonable-Smell-550</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Delivery drivers. They have higher probability of having an accident (obvious reasons) but also of going to a dangerous place without previous acknowledgment. -u/nonameuser21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Gas station employees and grocery store workers. Double their pay. -u/Pink_Sky_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Journalists. Real, quality journalists. People have generally no idea how meager their salary often is. -u/funkemard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Public accounting. Working 65-80 hours during busy season and not even getting paid for working overtime. That’s why there is a huge turnover in public accounting. -u/kenshin-x-212</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Any job where you destroy your body; sh*t is no f*cking joke. -u/hunkachunk88888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Any jobs that have to do with kids. Teachers, daycare providers, etc. Most people dont realize how much effort it actually takes to be able to do those things. -u/-caballero</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I have a BS in Biology, been a vet tech for 5 years. I just broke over $20/hr this year. Full time at my clinic is 36 hours and were discouraged from overtime. Im full-time there and recently started working part-time at an emergency vet in the area to make ends meet. Its insane that we make so little. -u/the_bean_fiend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I work as a school janitor. Im 3 weeks in and Ive already seen some absolutely bananas sh*t. -u/makoexplosion</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Almost all of them. Seriously, without any hyperbole at all. Almost every single job deserves to be paid more. Except management. Management is not harder. It doesnt take more skills - just different ones. It usually does nothing to add value that a production or office worker doesnt do. Management doesnt deserve greater pay. Everything else does. -u/MortalTwit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145744.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">16 Final Thoughts From People Who Saw The Light</a><br>
-
-<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">24 Charts Filled With Random but Interesting Knowledge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">20 Facial Tattoos That Swung and Missed</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146012.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041958/87146464/blue.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041951/87146463/monster.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041928/87146461/cone.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041940/87146462/face.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146378.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">16 Mildly Annoying Things That Make Us Fume</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">12 Famous Super Models Then And Now</a><br>
-
-<span style="font-size:4em">1. Janice Dickinson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Linda Evangelista</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Naomi Campbell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Claudia Schiffer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Cindy Crawford</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tyra Banks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Brooke Shields</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Kathy Ireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Kate Moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Christie Brinkley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Heidi Klum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Paulina Porizkova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143354.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">24 Construction Fails Holding On By the Skin of Their Teeth </a><br>
-
-<span style="font-size:4em">1. Doors that dont fully close because the handles were placed on the wrong side, or what we like to call, moronic behavior. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I think its time we have a talk about the foundation sweetie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. We have no idea what were looking at, but we know it isnt good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. When people say its the thought that count, theyre trying not to hurt your feelings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Oh I wonder where this door goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. You said you wanted an outdoor show, you didnt say you wanted it to be private. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This makes the hair on our neck stand at attention. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Double the locks, double the annoyance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The rock is holding things together better than most of yall, so dont be too quick to judge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. At least if you slip and fall in the shower, the whole neighborhood will know about it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. What the hell is going on here? And what problem is being attended to? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Now this baby will kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im going for a natural look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The longer you stare the worse it gets. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Great job, just one minor mistake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. What am I looking at? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. *Fat Joe Voice* Lean back. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This pain us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. You can tell they cut the support beams, but you have no idea what they were thinking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. A door to nowhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Even this fan had enough, just go!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141779.jpg" style="width:100%"><br>
 
