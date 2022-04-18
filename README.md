@@ -1,205 +1,145 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/17/2022-18:18:57
+Last updated: 04/17/2022-19:11:31
 <br>
-## <a href="#linky2" id="linky1">18 Easter Eggs Found In Movies </a><br>
+## <a href="#linky2" id="linky1">28 People Who Just Didn't Get the Joke</a><br>
 
-<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032315/87146434/whoosh.jpg1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032304/87146433/whoosh.jpg2.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032326/87146435/whoosh.jpg5.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032334/87146436/whoosh.jpg3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032338/87146437/whoosh.jpg4.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032345/87146438/whoosh.jpg6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032349/87146439/whoosh.jpg7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032356/87146440/whoosh.jpg8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032400/87146441/whoosh.jpg9.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032403/87146442/whoosh.jpg10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032409/87146443/whoosh.jpg11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032413/87146444/whoosh.jpg12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032417/87146445/whoosh.jpg13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032422/87146446/whoosh.jpg14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032425/87146447/whoosh.jpg15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032428/87146448/whoosh.jpg16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032433/87146449/whoosh.jpg17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032436/87146450/whoosh.jpg18.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032440/87146451/whoosh.jpg19.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146343.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032445/87146452/whoosh.jpg20.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146339.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032448/87146453/whoosh.jpg21.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146373.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032452/87146454/whoosh.jpg22.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146342.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032457/87146455/whoosh.jpg23.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146340.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032500/87146456/whoosh.jpg24.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146348.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032503/87146457/whoosh.jpg25.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146341.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032508/87146458/whoosh.jpg26.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146344.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032512/87146459/whoosh.jpg27.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146345.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032515/87146460/whoosh.jpg28.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146349.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">26 Easter Bunny Pics That Scared the Sh*t Out of Us</a><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146346.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Is this some conspiracy created by mental health providers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146351.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I mean at least he dressed for success. Look at that bowtie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146347.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This poor child is so innocent, shes oblivious to the horror. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146352.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. This kid will have trust issues , and never enjoy nature because of this moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146353.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. These are purposely gory obviously, but that doesnt make it any less terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146355.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Why do all Easter Bunnies look like they are going to assault your entire being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146356.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This woman will haunt my nightmares until my dying day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146354.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. And did they even try here? That mask is so terrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146357.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The real question is did we actually believe this crap as kids, or did we go along with it for the candy?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146358.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. These days, the Easter Bunny looks high on drugs or drunk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146366.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Pink bun bun looks like hes trying to put the poor kid in a choke hold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146359.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This kid is an entire vibe. GTFO kid while you still can!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146360.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. And some day this kid is going to wonder why the color pink makes him sick, and why Easter raises his anxiety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146361.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Oh dear god, this poor thing had two latching him in. Where is this kid? What kind of adult has he become?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146362.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The kids face makes sense. Why is the bunny surprised though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146363.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. I think Ill take my chances with the monster under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146372.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Why is JUST the mask even scarier than a full body costume?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143824.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146364.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. When you find out the Easter bunny is going to come to your house when youre asleep, but then you find out he looks like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146365.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The makers of these costumes must sit around thinking, What fresh hell can we unleash on children this year?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143816.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146367.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Poor kid has given up and turned himself over to his fate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146368.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Its bad enough seeing them in the mall but theres a huge violation when you see them in your home. Are you ever safe?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146369.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. WTF is this thing. Thats not a bunny, thats a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146370.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Somebody help this poor girl for Christs sake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146371.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. She doesnt give a flying f*ck how creepy this thing is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146375.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Is that really a mustache on the Easter Bunny? As if sh*t wasnt scary enough.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146376.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Its everything in this one. The mask. The shirt. The sepia tone. Chills.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146377.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">12 Famous Super Models Then And Now</a><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146378.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Janice Dickinson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143343.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">24 Charts Filled With Random but Interesting Knowledge</a><br>
+<span style="font-size:4em">2. Linda Evangelista</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Naomi Campbell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Claudia Schiffer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Cindy Crawford</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Tyra Banks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Brooke Shields</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Kathy Ireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Kate Moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Christie Brinkley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Heidi Klum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Paulina Porizkova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">15 Times People Experienced The Opposite of a Miracle</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031746/87145658/Screwed-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> This power line happened to be laid straight through the skull of an anglo saxon women buried in a previously undiscovered 6th century graveyard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031747/87145659/screwed-02.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031758/87145661/screwed-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031757/87145660/screwed-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> F**k you R.E. Danforth!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031808/87145662/screwed-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031319/87145656/screwed-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031308/87145654/screwed-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Rich can go f**k himself</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031303/87145653/screwed-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031314/87145655/screwed-09.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031325/87145657/screwed-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> They got fed up</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025857/87145651/screwed-11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025826/87145648/screwed-12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025837/87145649/screwed-13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> F**k this sink in particular.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025848/87145650/screwed-14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025859/87145652/screwed-15.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">27 Funny Memes to Turn Your Brain Off </a><br>
+## <a href="#linky5" id="linky4">27 Funny Memes to Turn Your Brain Off </a><br>
 
 <span style="font-size:4em">1. If youve never heard about the </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145960.jpg" style="width:100%"><br>
 
@@ -255,7 +195,7 @@ Last updated: 04/17/2022-18:18:57
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145986.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">34 Bizarre Discoveries That Seem Unreal</a><br>
+## <a href="#linky6" id="linky5">34 Bizarre Discoveries That Seem Unreal</a><br>
 
 <span style="font-size:4em">1. “This spider made a web portal.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145798.png" style="width:100%"><br>
 
@@ -325,7 +265,7 @@ Last updated: 04/17/2022-18:18:57
 
 <span style="font-size:4em">34. So called “Blood rain” evening last week in Gibraltar. No edit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145831.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">25 Jobs That Deserve Much Higher Pay</a><br>
+## <a href="#linky7" id="linky6">25 Jobs That Deserve Much Higher Pay</a><br>
 
 <span style="font-size:4em">1. Group home house staff. -u/cutiegirl88 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145719.jpg" style="width:100%"><br>
 
@@ -377,205 +317,99 @@ Last updated: 04/17/2022-18:18:57
 
 <span style="font-size:4em">25. Almost all of them. Seriously, without any hyperbole at all. Almost every single job deserves to be paid more. Except management. Management is not harder. It doesnt take more skills - just different ones. It usually does nothing to add value that a production or office worker doesnt do. Management doesnt deserve greater pay. Everything else does. -u/MortalTwit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87145744.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">26 Easter Bunny Pics That Scared the Sh*t Out of Us</a><br>
+## <a href="#linky8" id="linky7">24 Construction Fails Holding On By the Skin of Their Teeth </a><br>
 
-<span style="font-size:4em">1. Is this some conspiracy created by mental health providers?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143798.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Doors that dont fully close because the handles were placed on the wrong side, or what we like to call, moronic behavior. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I mean at least he dressed for success. Look at that bowtie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143799.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I think its time we have a talk about the foundation sweetie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This poor child is so innocent, shes oblivious to the horror. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143801.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. We have no idea what were looking at, but we know it isnt good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This kid will have trust issues , and never enjoy nature because of this moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143802.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. When people say its the thought that count, theyre trying not to hurt your feelings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. These are purposely gory obviously, but that doesnt make it any less terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143803.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Oh I wonder where this door goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Why do all Easter Bunnies look like they are going to assault your entire being.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143804.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. You said you wanted an outdoor show, you didnt say you wanted it to be private. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This woman will haunt my nightmares until my dying day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143812.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This makes the hair on our neck stand at attention. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. And did they even try here? That mask is so terrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143805.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Double the locks, double the annoyance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The real question is did we actually believe this crap as kids, or did we go along with it for the candy?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143806.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The rock is holding things together better than most of yall, so dont be too quick to judge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. These days, the Easter Bunny looks high on drugs or drunk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143807.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. At least if you slip and fall in the shower, the whole neighborhood will know about it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Pink bun bun looks like hes trying to put the poor kid in a choke hold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143808.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. What the hell is going on here? And what problem is being attended to? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This kid is an entire vibe. GTFO kid while you still can!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143809.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Now this baby will kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. And some day this kid is going to wonder why the color pink makes him sick, and why Easter raises his anxiety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143810.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Im going for a natural look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Oh dear god, this poor thing had two latching him in. Where is this kid? What kind of adult has he become?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143811.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The longer you stare the worse it gets. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The kids face makes sense. Why is the bunny surprised though?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143813.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. I think Ill take my chances with the monster under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143814.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Great job, just one minor mistake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Why is JUST the mask even scarier than a full body costume?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143824.png" style="width:100%"><br>
+<span style="font-size:4em">17. What am I looking at? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When you find out the Easter bunny is going to come to your house when youre asleep, but then you find out he looks like this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143815.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. *Fat Joe Voice* Lean back. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The makers of these costumes must sit around thinking, What fresh hell can we unleash on children this year?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143816.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. This pain us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Poor kid has given up and turned himself over to his fate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143817.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. You can tell they cut the support beams, but you have no idea what they were thinking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Its bad enough seeing them in the mall but theres a huge violation when you see them in your home. Are you ever safe?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143819.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. A door to nowhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. WTF is this thing. Thats not a bunny, thats a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143820.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Somebody help this poor girl for Christs sake.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143822.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. She doesnt give a flying f*ck how creepy this thing is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143823.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Even this fan had enough, just go!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Is that really a mustache on the Easter Bunny? As if sh*t wasnt scary enough.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143825.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">20 Facial Tattoos That Swung and Missed</a><br>
 
-<span style="font-size:4em">26. Its everything in this one. The mask. The shirt. The sepia tone. Chills.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143826.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146009.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">12 Famous Super Models Then And Now</a><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Janice Dickinson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143343.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Linda Evangelista</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143344.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Naomi Campbell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143345.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Claudia Schiffer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143346.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Cindy Crawford</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143347.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041958/87146464/blue.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Tyra Banks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143348.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Brooke Shields</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143349.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Kathy Ireland</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143350.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Kate Moss</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143351.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Christie Brinkley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143352.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Heidi Klum</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143353.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Paulina Porizkova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143354.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146021.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">16 Final Thoughts From People Who Saw The Light</a><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041951/87146463/monster.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041928/87146461/cone.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041940/87146462/face.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">26 Uplifting Pics to Save Your Day</a><br>
-
-<span style="font-size:4em">1. My stepdad helping out an elderly woman in the recent flooding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My classmates decided to shave their heads for cancer research. Only one girl volunteered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I picked this man up during a rare Los Angeles downpour. He missed the last bus and was shuffling home in the rain. Turned out he was miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Christmas donkeys made a surprise visit to our memory care assisted living. The happy tears coming from my residents were absolutely priceless!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Told my barber I recently finished a dream project of releasing an action film, and he offered to hang the movie poster in his shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My generous mother-in-law’s shocked face when she saw they’re getting the new couch she wants for Christmas. We’re glad to do something for her this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Helping my assistant put on a tie to go with their first fitted suit. I felt very fatherly in that moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Donated this 24,000-piece puzzle to a children’s mental health center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A good samaritan found the wallet I lost in the ocean…24 years ago!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My husband has been bringing his trash picker to clean up local parks and hiking trails long before it was a hashtag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Take what you need at my local high school. The admin and teachers here are making such a difference for these kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Every Christmas, my mom takes a bunch of envelopes with $20 cash in them and hands them out to strangers in our town.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My 84-year-old grandmother apologized for having to wear her nightgown in front of us. I said it was no problem, so she immediately offered me one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad was dealing with a lot of stress, so we decided to get him a dog to see if it would help.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This is supposed to be a fish shaped basket but it is hard to tell with my orange goober in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 3 years ago today, after losing 6 babies, I got my lucky #7!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Volunteered as Santa at the local animal shelter. This is my favorite picture by far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never seen someone so happy eating apples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The most surprising hike.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Luna is getting a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My dad and the ridiculously photogenic owl he helped escape from our barn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. People were leaving these in the parking lot of the hospital that my mom works at.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The kid and cat are in awe of snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. After years of struggling with anxiety, depression and OCD, I wrote a book of poetry to help other people with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Must touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">14 Fascinating Photos of to Pique Your Interest </a><br>
-
-<span style="font-size:4em">1. This Colombian farmer Found 600 million dollars buried on his farm. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. NLAW containers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Australian Tankers with their M1A1 Abrams displaying different rounds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Grocery store, helping prevent scams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Poachers caught red-handed by an all-female unit of rangers in Zimbabwe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128356.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Transparent Solar Panels Will Turn Windows Into Green Energy Collectors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Supermarket made a garden on their roof and is distributing the goods directly in store!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Abandoned Chuck E. Cheese animatronic found in a landfill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Radioactive cars from the Fukushima disaster slowly being eaten by nature</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The speed camera lottery in Stockholm, Sweden. Drive at or under the speed limit and you’ll be entered into a lottery where the prize fund comes from the fines that speeders pay. Average speed reduced from 32 km/h to 25 km/h (a reduction of 22%).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2003 Ron Hunt, an American construction worker fell off a ladder and landed face first on a 1.5 inch drill bit that went through his left eye and out at the back of his skull. He did not lose any of his cognitive ability as the a drill bit “pushed his brain out of the way.” Doctors struggled to find a solution to remove the foreign object from his skull and contemplated simply cutting it off. They decided to simply unscrew it and Ron Hunt was entirely conscious during the operation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Moscow, 1991. When Metallica played for a crowd of 1.6 million people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The book of names, holds the name of every known holocaust victim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Climbers attempting to summit Mt Everest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128365.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">56 Rapid Fire Randoms to Unleash Upon Your Boredom</a><br>
+## <a href="#linky10" id="linky9">56 Rapid Fire Randoms to Unleash Upon Your Boredom</a><br>
 
 <span style="font-size:4em">1. A polar bear track vs. a human hand.  Its probably time to get the hell out of there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87145666.jpg" style="width:100%"><br>
 
@@ -689,101 +523,129 @@ Last updated: 04/17/2022-18:18:57
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/030626/87146423/87146228.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">25 TikTok Comments That Bring the Snark</a><br>
+## <a href="#linky11" id="linky10">26 Uplifting Pics to Save Your Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144817.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. My stepdad helping out an elderly woman in the recent flooding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144801.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My classmates decided to shave their heads for cancer research. Only one girl volunteered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144815.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I picked this man up during a rare Los Angeles downpour. He missed the last bus and was shuffling home in the rain. Turned out he was miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144822.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Christmas donkeys made a surprise visit to our memory care assisted living. The happy tears coming from my residents were absolutely priceless!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144803.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Told my barber I recently finished a dream project of releasing an action film, and he offered to hang the movie poster in his shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146167.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144804.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My generous mother-in-law’s shocked face when she saw they’re getting the new couch she wants for Christmas. We’re glad to do something for her this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144800.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Helping my assistant put on a tie to go with their first fitted suit. I felt very fatherly in that moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146169.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144798.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Donated this 24,000-piece puzzle to a children’s mental health center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144805.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A good samaritan found the wallet I lost in the ocean…24 years ago!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144802.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. My husband has been bringing his trash picker to clean up local parks and hiking trails long before it was a hashtag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144806.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Take what you need at my local high school. The admin and teachers here are making such a difference for these kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144807.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Every Christmas, my mom takes a bunch of envelopes with $20 cash in them and hands them out to strangers in our town.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144808.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My 84-year-old grandmother apologized for having to wear her nightgown in front of us. I said it was no problem, so she immediately offered me one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144799.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. My dad was dealing with a lot of stress, so we decided to get him a dog to see if it would help.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144810.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. This is supposed to be a fish shaped basket but it is hard to tell with my orange goober in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144811.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. 3 years ago today, after losing 6 babies, I got my lucky #7!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144812.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Volunteered as Santa at the local animal shelter. This is my favorite picture by far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144813.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Never seen someone so happy eating apples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144809.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The most surprising hike.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144814.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Luna is getting a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144816.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. My dad and the ridiculously photogenic owl he helped escape from our barn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144818.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. People were leaving these in the parking lot of the hospital that my mom works at.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144819.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The kid and cat are in awe of snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144820.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. After years of struggling with anxiety, depression and OCD, I wrote a book of poetry to help other people with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87144821.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Must touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146187.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">20 Facial Tattoos That Swung and Missed</a><br>
+<span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146009.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">14 Fascinating Photos of to Pique Your Interest </a><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146010.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. This Colombian farmer Found 600 million dollars buried on his farm. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146011.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. NLAW containers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146012.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Australian Tankers with their M1A1 Abrams displaying different rounds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146013.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Grocery store, helping prevent scams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146014.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Poachers caught red-handed by an all-female unit of rangers in Zimbabwe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128356.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041958/87146464/blue.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Transparent Solar Panels Will Turn Windows Into Green Energy Collectors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146015.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Supermarket made a garden on their roof and is distributing the goods directly in store!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146016.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Abandoned Chuck E. Cheese animatronic found in a landfill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146017.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Radioactive cars from the Fukushima disaster slowly being eaten by nature</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146018.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The speed camera lottery in Stockholm, Sweden. Drive at or under the speed limit and you’ll be entered into a lottery where the prize fund comes from the fines that speeders pay. Average speed reduced from 32 km/h to 25 km/h (a reduction of 22%).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146019.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In 2003 Ron Hunt, an American construction worker fell off a ladder and landed face first on a 1.5 inch drill bit that went through his left eye and out at the back of his skull. He did not lose any of his cognitive ability as the a drill bit “pushed his brain out of the way.” Doctors struggled to find a solution to remove the foreign object from his skull and contemplated simply cutting it off. They decided to simply unscrew it and Ron Hunt was entirely conscious during the operation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146020.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Moscow, 1991. When Metallica played for a crowd of 1.6 million people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146021.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The book of names, holds the name of every known holocaust victim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146022.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Climbers attempting to summit Mt Everest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041951/87146463/monster.jpg" style="width:100%"><br>
+## <a href="#linky13" id="linky12">18 Easter Eggs Found In Movies </a><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146023.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87146024.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041928/87146461/cone.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/041940/87146462/face.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">30 Disturbing Things House Guests Did</a><br>
+<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">30 Disturbing Things House Guests Did</a><br>
 
 <span style="font-size:4em">1. Had a former friend visit me from overseas and literally disappear overnight to go and f**k some guy shed been talking to online...leaving me to field a call from her husband, who wanted to know why his wife wasnt answering her mobile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145276.jpg" style="width:100%"><br>
 
@@ -903,57 +765,135 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">30. I was a kid and invited another kid to my house (</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145292.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">24 Construction Fails Holding On By the Skin of Their Teeth </a><br>
+## <a href="#linky15" id="linky14">24 Charts Filled With Random but Interesting Knowledge</a><br>
 
-<span style="font-size:4em">1. Doors that dont fully close because the handles were placed on the wrong side, or what we like to call, moronic behavior. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141756.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I think its time we have a talk about the foundation sweetie. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141757.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. We have no idea what were looking at, but we know it isnt good. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141758.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When people say its the thought that count, theyre trying not to hurt your feelings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141759.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Oh I wonder where this door goes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141760.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. You said you wanted an outdoor show, you didnt say you wanted it to be private. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141761.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This makes the hair on our neck stand at attention. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141762.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Double the locks, double the annoyance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141763.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The rock is holding things together better than most of yall, so dont be too quick to judge. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141764.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. At least if you slip and fall in the shower, the whole neighborhood will know about it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141765.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. What the hell is going on here? And what problem is being attended to? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141766.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Now this baby will kill you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141767.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Im going for a natural look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141768.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The longer you stare the worse it gets. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141769.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141770.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Great job, just one minor mistake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141771.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. What am I looking at? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141772.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. *Fat Joe Voice* Lean back. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141773.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. This pain us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141774.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. You can tell they cut the support beams, but you have no idea what they were thinking. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141775.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. A door to nowhere. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141776.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141777.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141778.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Even this fan had enough, just go!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87141779.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
 
-## <a href="#linky19" id="linky18">16 Mildly Annoying Things That Make Us Fume</a><br>
+## <a href="#linky16" id="linky15">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146369.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146370.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146371.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146378.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">16 Mildly Annoying Things That Make Us Fume</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
 
@@ -986,4 +926,70 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 <span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
 
 <span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">15 Times People Experienced The Opposite of a Miracle</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031746/87145658/Screwed-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> This power line happened to be laid straight through the skull of an anglo saxon women buried in a previously undiscovered 6th century graveyard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031747/87145659/screwed-02.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031758/87145661/screwed-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031757/87145660/screwed-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> F**k you R.E. Danforth!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031808/87145662/screwed-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031319/87145656/screwed-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031308/87145654/screwed-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> Rich can go f**k himself</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031303/87145653/screwed-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031314/87145655/screwed-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031325/87145657/screwed-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> They got fed up</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025857/87145651/screwed-11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025826/87145648/screwed-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025837/87145649/screwed-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> F**k this sink in particular.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025848/87145650/screwed-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025859/87145652/screwed-15.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">16 Final Thoughts From People Who Saw The Light</a><br>
+
+<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
 
