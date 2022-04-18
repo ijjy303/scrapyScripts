@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/18/2022-03:11:31
+Last updated: 04/18/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">28 WTF Facts and Photos From History</a><br>
 
@@ -113,125 +113,61 @@ Last updated: 04/18/2022-03:11:31
 
 <span style="font-size:4em">26. Its everything in this one. The mask. The shirt. The sepia tone. Chills.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87143826.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">30 Disturbing Things House Guests Did</a><br>
+## <a href="#linky4" id="linky3">27 Funny Memes to Turn Your Brain Off </a><br>
 
-<span style="font-size:4em">1. Had a former friend visit me from overseas and literally disappear overnight to go and f**k some guy shed been talking to online...leaving me to field a call from her husband, who wanted to know why his wife wasnt answering her mobile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145276.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If youve never heard about the </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I threw a New Years party once. ONCE. Someone I invited brought a group of people who I knew, but didn’t exactly enjoy the company of.
-
-Sometime around 1am, I noticed that my keepsake urn necklace containing my brother’s ashes was missing. Then, I discover a couple of small lines of powder-like material in lines on my bathroom counter. The f**kers had tried to snort my brother and stole the necklace his remains were in. I was livid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145263.jpg" style="width:100%"><br>
+<span style="font-size:4em"> which survived a bombing during the Gulf War, you should read about it. It currently is on display at Nintendos New York location and it successfully runs Tetris! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Gave my dog drugs because, and i quote she looked sad so i thought some molly would cheer her up... looking back though i tried to be patient at first, after hearing his attempts at defending himself my reaction was pretty harsh, and i do not regret a f**king thing i said or did. F**k that piece of s**t. He gave mdma to a f**king 3 pound chihuahua and almost killed the only reliably good thing in my life and the only thing that gave me any real sense of happiness and he couldnt understand why i was so angry and had the nerve to try and press charges on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145264.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. If you havent heard the news, Russias leading battleship was recently sunken in the Black Sea.  Apparently, the ship was holding a piece of the true cross, which is a holy relic that supposedly was part of the cross Jesus was crucified on. Looks like SpongeBob was some company in Bikini Bottum, aye! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Wiped their a** on the white sink hand towel after taking a s**t. Had plenty of available toilet paper. Called them out for it, they denied it, so I never invited them over again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145265.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Nature is healing! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A grown man in our house for the first and last time (college academic team gathering. This was not a family friend) marked his height on our children’s wooden growth chart…in permanent Sharpie marker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145266.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. To really put this to the test we need to elect Paul Rudd as President. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Ate the dogs pellets. The bag was nearly full before she came and was half full when she left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145267.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Will people ever learn? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I recently had a grown-a** man snort a line of Parmesan cheese like it was cocaine. He was completely sober and this was totally unprompted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145268.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. No sorry to say I dont. And if you want to protect yourself from the hamburger helper demon you better wipe this image from your mind. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I had some work people over for a dinner party at my house. We purposely shut off the lights leading upstairs to sort of let the guests know that the party is downstairs...i.e. there is nothing for you upstairs.
-
-Throughout the night I would see one of my coworkers taking out the dip from his lip with his index finger and scraping it into his solo cup.
-
-A bit later I went upstairs to check on my dog and hear some noises from the master bedroom.
-
-I walked in and saw the same dude using my toothbrush to get dip out from in between his teeth.
-
-He doesnt get invited to parties anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145269.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Hes got a point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Wasnt my house was a friends, we had been invited over to drink and stay the night. We sat in the garden talked and drank and then one of our friends excused himself to the bathroom he was gone for about 20 minutes until another friend said he will go check on him. He came back down 5 minutes later laughing his a** off. The dude had gone upstairs and ran a bubble bath for himself, lit a few candles and even had a floating duck. The friend hosting was a cool guy and wasnt angry as we were all friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145270.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. People will literally make up anything these days. Yes, we are too afraid to fact check this meme, as wed rather not know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Back when I was a freshman in university, I invited some of my mates to our place for dinner because mom wanted to meet the people I went to university with. When dinner was laid out, my mom was like, go ahead, feel free to grab anything. Which obviously, she meant anything on the table or any of the food that was served.
-
-One of the guys who came over proceeded to go to our pantry door, open it, look around for a few seconds, and then went and took some of the canned items inside (think sausages, spam, etc.)
-
-It was the most unusual thing. I think my mom was also properly dumbfounded that she just didnt mention it. Guy didnt mention it either after he did so (he took around 3-4 cans).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145271.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Everyone knows moon people went extinct thousands of years ago in the great melting. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. He said he needed to look up something on internet so i lended him my laptop. He then proceeds to watch p**n on my couch while i am 6 ft away from him. I took the laptop back..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145272.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This hit harder than expected. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Friend of a friend was on mushrooms and decided to do some amateur electrical work during a party at my house. Thats a direct quote btw, overheard by multiple people.
-
-If that statement terrifies you, thats because those are not words that should ever be in the same sentence let alone a sentence that amounts to a thing you are about to do at someone elses house.
-
-Ya so, not being an electrician I cant tell you exactly what he did or what he was trying to do, all I can tell you is that 800 dollars and 24 hours later the problem he created was solved by a professional.
-
-He wound up in the hospital and exited the party in an ambulance.
-
-lol, amateur electrical work.
-
-Hes fine and paid me back. All in all pretty good dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145273.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Took the sample Mach 5 razor ( it was new and they had sent the whole neighborhood a full size sample) out of my mailbox, then shaved all his pubes with it and leave them in my shower drain, then proceeded to lie to my face about it as if the pubes magically appeared on the very same day everyone in the neighborhood got a new free razor in the mail except for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145274.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. My uncle, aunt, and my mom travelled from another country to visit while I was in college, they stayed in my place. I had to leave for a class in the morning and left them in the house to chill. When I came back from my class, my uncle had shaved my shin-poo’s legs down thinking he did me a favor. My fluffy cute dog looked so ugly with naked legs. What’s worse? He somehow only shaved three and forgot the fourth leg.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145275.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145973.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. An old neighbor got drunk at a poker game at my house. She then went into my bathroom, left the door open and peed on the bath mat. My friend walked in on it and the neighbor said it was because she couldn’t find the light switch. The hall light was on, which fully lit up this tiny bathroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145277.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Threw a steak at a window.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145278.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. A friend was drunk and drank water out of the cat bowl because he couldnt find any. The cat water bowl is right under the sink in the bathroom and where I live, water from the sink is drinkable and very good. We laugh about it now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145279.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My friend treated my house like it was his own hotel room. I thought was coming to visit me and wed coordinate for stuff to do, but it turns out he just wanted to save money on a place to sleep.
-
-He had his own plans and didnt tell me about any of them until he got to my place. And he even tried getting his other friends in the area to sleep at my place.
-
-I hadnt seen him in years, too. So I was disappointed that I planned my holiday weekend around my friend but he had other plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145280.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. It was me.
-
-I was visiting my brother and sis in law at their fancy new apartment and I took a smelly s**t. They had candles in there for just that sort of thing so I lit 2 and hung around while the scent worked its magic. Not sure how, but I didnt notice the black smoke coming from the candles was leaving black streaks on the walls. I blew out the candles and tried to clean the walls. TP didnt work, so I used their white fancy towels. It still didnt work but I ruined those towels trying.
-
-Eventually there was no escape but to fess up so I did and was mortified.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145281.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. When I was an older teen, my little bro (young teen) had the worst friends. I walked in to the bathroom once, and two of his friends (both straight males) were shaving each other’s butts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145282.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. First college party. A girl drank one--one!--beer and started acting like she was sOoOo wasted. Got fully naked and sat on my papasan chair. One of the most embarrassingly attention-seeking people Ive ever met lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145283.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. An (ex)gf and I had an apartment years ago. She was still in touch with an ex. The Ex and his gf wanted to come to the area and we invited him and his gf to stay with us for the weekend.
-
-We all hit it off at dinner, great conversation and laughs, and was a great Friday night. We had a spare bedroom and thats where the two of them slept. FYI: We used this spare room also to store a few things, and to put our dirty clothes in hampers.
-
-I got up in the middle of the night to the both of them snacking in the kitchen. No biggie, I do it too and I told them to make themselves at home.
-
-Well, after chatting and having some chips/dip I caught on to what they both were wearing. Our clothes. Um what? Now I know that people sometimes offer up clothes like pjs/misc clothing to a guest that isnt prepared but they brought bags with them. What in the heck was in their bags that they needed to wear our clothes?
-
-Worse part was the shorts and tshirts that they both had on were dirty and visibly so. I told them we had clean clothes and offered that up but they said they were fine. They ended up leaving the next morning.
-
-But who stays at someones place and wears their dirty clothes? Wtf? Yeah, we laughed about it after they left but I couldnt help but be creeped out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145284.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Give people free tattoos. No he doesnt do tattoos, the kit was from Amazon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145285.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. I used to have a friend who would always come over to take a shower. When I asked him about it, he told me he preferred my bathroom over his.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145286.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. I have this friend who told me she smelled my shampoo when she went in the bathroom. Apparently she does this to every house she visits, she smells their shampoo and body wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145287.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. I was the guest in this case.
-
-I was maybe 8 at the time and I was sleeping over at a friends house. I wake up to find I have wet the bed. Super embarrassing.
-
-I try to find spare clothes and cannot find anything no matter where I look.
-
-I cannot keep wearing my pjs because they are footed pjs.
-
-Because its in the middle of the night, I run upstairs (naked) to try to find literally anything that could cover me. A blanket, anything. I have no luck.
-
-SOMEHOW, someone is awake at 2 am, and they are looking for me. I figure out its my friends mom.
-
-She comes around the corner to see me huddled down on the floor looking like gollum from lord of the rings with only a tiny pillow to hid my shame.
-
-They gave me some clothes and I want to say that was the last time I ever slept at their house again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145288.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Licked the door of my snacks closet. The door. Not the snacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. He took off ALL of his clothes when I pointed him towards the sofa and said, “Make yourself comfortable.” He’d always been a bit of a joker but that was, perhaps, going a bit too far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. We went on holiday, hired local old lady cat sitter to mind the cats for the 10 days we were away. Nothing unusual with the cats care, we have plenty of extra food and water bowls, bags of litter, litter bags and scoop all left out.
-
-We get back, cats are good, house is fine, but next to the litter tray is the spaghetti scoop, you know that weird kitchen implement you never actually use - thats what she had been using to scoop their poop for the time we were away, the actual scoop which was right there, was unused.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I was a kid and invited another kid to my house (</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145292.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145986.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">34 Bizarre Discoveries That Seem Unreal</a><br>
 
@@ -603,7 +539,41 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">28 People Who Just Didn't Get the Joke</a><br>
+## <a href="#linky13" id="linky12">16 Mildly Annoying Things That Make Us Fume</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">28 People Who Just Didn't Get the Joke</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032315/87146434/whoosh.jpg1.png" style="width:100%"><br>
 
@@ -661,129 +631,57 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032515/87146460/whoosh.jpg28.png" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">27 Funny Memes to Turn Your Brain Off </a><br>
+## <a href="#linky15" id="linky14">24 Charts Filled With Random but Interesting Knowledge</a><br>
 
-<span style="font-size:4em">1. If youve never heard about the </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145960.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> which survived a bombing during the Gulf War, you should read about it. It currently is on display at Nintendos New York location and it successfully runs Tetris! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145961.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. If you havent heard the news, Russias leading battleship was recently sunken in the Black Sea.  Apparently, the ship was holding a piece of the true cross, which is a holy relic that supposedly was part of the cross Jesus was crucified on. Looks like SpongeBob was some company in Bikini Bottum, aye! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145962.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Nature is healing! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145963.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. To really put this to the test we need to elect Paul Rudd as President. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145964.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Will people ever learn? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145965.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. No sorry to say I dont. And if you want to protect yourself from the hamburger helper demon you better wipe this image from your mind. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145966.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Hes got a point. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145967.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. People will literally make up anything these days. Yes, we are too afraid to fact check this meme, as wed rather not know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145968.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Everyone knows moon people went extinct thousands of years ago in the great melting. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145969.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This hit harder than expected. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145970.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145971.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145972.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145973.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145974.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145975.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145976.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145977.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145978.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145979.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145980.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145981.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145982.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145983.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87145986.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">15 Times People Experienced The Opposite of a Miracle</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031746/87145658/Screwed-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> This power line happened to be laid straight through the skull of an anglo saxon women buried in a previously undiscovered 6th century graveyard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031747/87145659/screwed-02.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031758/87145661/screwed-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031757/87145660/screwed-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> F**k you R.E. Danforth!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031808/87145662/screwed-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031319/87145656/screwed-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031308/87145654/screwed-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Rich can go f**k himself</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031303/87145653/screwed-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031314/87145655/screwed-09.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031325/87145657/screwed-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> They got fed up</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025857/87145651/screwed-11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025826/87145648/screwed-12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025837/87145649/screwed-13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> F**k this sink in particular.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025848/87145650/screwed-14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025859/87145652/screwed-15.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">16 Mildly Annoying Things That Make Us Fume</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020551/87145601/mildlyannoying.jpg1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Why cant people park normally?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020603/87145602/mildlyannoying.jpg2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Just clear the timer</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020614/87145603/mildlyannoying.jpg3.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Why does Google Maps use so much more data than all the others?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020637/87145605/mildlyannoying.jpg7.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. How is it possible that someone believes this? Perhaps this one is more than mildly annoying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020708/87145610/mildlyannoying.jpg10.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. This couldnt have been one post?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020645/87145606/mildlyannoying.jpg5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020648/87145607/mildlyannoying.jpg6.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. When will parents figure out how to use technology?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020656/87145608/mildlyannoying.jpg8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020625/87145604/mildlyannoying.jpg4.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. The coupons are nice, but at this point theyve gone way too far. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020743/87145616/mildlyannoying.jpg16.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020659/87145609/mildlyannoying.jpg9.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020711/87145611/mildlyannoying.jpg11.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is very OCD triggering</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020721/87145612/mildlyannoying.jpg12.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Prototype economy airline seats. They must really think were sardines. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020723/87145613/mildlyannoying.jpg13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Id love to know where each of these fees actually go</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020732/87145614/mildlyannoying.jpg15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/020735/87145615/mildlyannoying.jpg14.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+## <a href="#linky16" id="linky15">38 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146343.jpg" style="width:100%"><br>
 
@@ -861,6 +759,38 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2090771/87146378.jpg" style="width:100%"><br>
 
+## <a href="#linky17" id="linky16">15 Times People Experienced The Opposite of a Miracle</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031746/87145658/Screwed-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> This power line happened to be laid straight through the skull of an anglo saxon women buried in a previously undiscovered 6th century graveyard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031747/87145659/screwed-02.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031758/87145661/screwed-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031757/87145660/screwed-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> F**k you R.E. Danforth!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031808/87145662/screwed-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031319/87145656/screwed-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031308/87145654/screwed-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> Rich can go f**k himself</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031303/87145653/screwed-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031314/87145655/screwed-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/031325/87145657/screwed-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> They got fed up</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025857/87145651/screwed-11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025826/87145648/screwed-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025837/87145649/screwed-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> F**k this sink in particular.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025848/87145650/screwed-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/14/025859/87145652/screwed-15.jpg" style="width:100%"><br>
+
 ## <a href="#linky18" id="linky17">12 Famous Super Models Then And Now</a><br>
 
 <span style="font-size:4em">1. Janice Dickinson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143343.jpg" style="width:100%"><br>
@@ -887,53 +817,123 @@ We get back, cats are good, house is fine, but next to the litter tray is the sp
 
 <span style="font-size:4em">12. Paulina Porizkova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87143354.jpg" style="width:100%"><br>
 
-## <a href="#linky19" id="linky18">24 Charts Filled With Random but Interesting Knowledge</a><br>
+## <a href="#linky19" id="linky18">30 Disturbing Things House Guests Did</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145766.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Had a former friend visit me from overseas and literally disappear overnight to go and f**k some guy shed been talking to online...leaving me to field a call from her husband, who wanted to know why his wife wasnt answering her mobile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145754.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I threw a New Years party once. ONCE. Someone I invited brought a group of people who I knew, but didn’t exactly enjoy the company of.
+
+Sometime around 1am, I noticed that my keepsake urn necklace containing my brother’s ashes was missing. Then, I discover a couple of small lines of powder-like material in lines on my bathroom counter. The f**kers had tried to snort my brother and stole the necklace his remains were in. I was livid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145750.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Gave my dog drugs because, and i quote she looked sad so i thought some molly would cheer her up... looking back though i tried to be patient at first, after hearing his attempts at defending himself my reaction was pretty harsh, and i do not regret a f**king thing i said or did. F**k that piece of s**t. He gave mdma to a f**king 3 pound chihuahua and almost killed the only reliably good thing in my life and the only thing that gave me any real sense of happiness and he couldnt understand why i was so angry and had the nerve to try and press charges on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145746.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Wiped their a** on the white sink hand towel after taking a s**t. Had plenty of available toilet paper. Called them out for it, they denied it, so I never invited them over again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145265.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A grown man in our house for the first and last time (college academic team gathering. This was not a family friend) marked his height on our children’s wooden growth chart…in permanent Sharpie marker.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145266.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Ate the dogs pellets. The bag was nearly full before she came and was half full when she left.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145751.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I recently had a grown-a** man snort a line of Parmesan cheese like it was cocaine. He was completely sober and this was totally unprompted.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145752.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I had some work people over for a dinner party at my house. We purposely shut off the lights leading upstairs to sort of let the guests know that the party is downstairs...i.e. there is nothing for you upstairs.
+
+Throughout the night I would see one of my coworkers taking out the dip from his lip with his index finger and scraping it into his solo cup.
+
+A bit later I went upstairs to check on my dog and hear some noises from the master bedroom.
+
+I walked in and saw the same dude using my toothbrush to get dip out from in between his teeth.
+
+He doesnt get invited to parties anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145753.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Wasnt my house was a friends, we had been invited over to drink and stay the night. We sat in the garden talked and drank and then one of our friends excused himself to the bathroom he was gone for about 20 minutes until another friend said he will go check on him. He came back down 5 minutes later laughing his a** off. The dude had gone upstairs and ran a bubble bath for himself, lit a few candles and even had a floating duck. The friend hosting was a cool guy and wasnt angry as we were all friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145755.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Back when I was a freshman in university, I invited some of my mates to our place for dinner because mom wanted to meet the people I went to university with. When dinner was laid out, my mom was like, go ahead, feel free to grab anything. Which obviously, she meant anything on the table or any of the food that was served.
+
+One of the guys who came over proceeded to go to our pantry door, open it, look around for a few seconds, and then went and took some of the canned items inside (think sausages, spam, etc.)
+
+It was the most unusual thing. I think my mom was also properly dumbfounded that she just didnt mention it. Guy didnt mention it either after he did so (he took around 3-4 cans).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145765.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. He said he needed to look up something on internet so i lended him my laptop. He then proceeds to watch p**n on my couch while i am 6 ft away from him. I took the laptop back..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145756.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Friend of a friend was on mushrooms and decided to do some amateur electrical work during a party at my house. Thats a direct quote btw, overheard by multiple people.
+
+If that statement terrifies you, thats because those are not words that should ever be in the same sentence let alone a sentence that amounts to a thing you are about to do at someone elses house.
+
+Ya so, not being an electrician I cant tell you exactly what he did or what he was trying to do, all I can tell you is that 800 dollars and 24 hours later the problem he created was solved by a professional.
+
+He wound up in the hospital and exited the party in an ambulance.
+
+lol, amateur electrical work.
+
+Hes fine and paid me back. All in all pretty good dude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145757.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Took the sample Mach 5 razor ( it was new and they had sent the whole neighborhood a full size sample) out of my mailbox, then shaved all his pubes with it and leave them in my shower drain, then proceeded to lie to my face about it as if the pubes magically appeared on the very same day everyone in the neighborhood got a new free razor in the mail except for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145747.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. My uncle, aunt, and my mom travelled from another country to visit while I was in college, they stayed in my place. I had to leave for a class in the morning and left them in the house to chill. When I came back from my class, my uncle had shaved my shin-poo’s legs down thinking he did me a favor. My fluffy cute dog looked so ugly with naked legs. What’s worse? He somehow only shaved three and forgot the fourth leg.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145758.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. An old neighbor got drunk at a poker game at my house. She then went into my bathroom, left the door open and peed on the bath mat. My friend walked in on it and the neighbor said it was because she couldn’t find the light switch. The hall light was on, which fully lit up this tiny bathroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145759.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Threw a steak at a window.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145760.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. A friend was drunk and drank water out of the cat bowl because he couldnt find any. The cat water bowl is right under the sink in the bathroom and where I live, water from the sink is drinkable and very good. We laugh about it now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145761.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My friend treated my house like it was his own hotel room. I thought was coming to visit me and wed coordinate for stuff to do, but it turns out he just wanted to save money on a place to sleep.
+
+He had his own plans and didnt tell me about any of them until he got to my place. And he even tried getting his other friends in the area to sleep at my place.
+
+I hadnt seen him in years, too. So I was disappointed that I planned my holiday weekend around my friend but he had other plans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145762.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. It was me.
+
+I was visiting my brother and sis in law at their fancy new apartment and I took a smelly s**t. They had candles in there for just that sort of thing so I lit 2 and hung around while the scent worked its magic. Not sure how, but I didnt notice the black smoke coming from the candles was leaving black streaks on the walls. I blew out the candles and tried to clean the walls. TP didnt work, so I used their white fancy towels. It still didnt work but I ruined those towels trying.
+
+Eventually there was no escape but to fess up so I did and was mortified.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145763.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When I was an older teen, my little bro (young teen) had the worst friends. I walked in to the bathroom once, and two of his friends (both straight males) were shaving each other’s butts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145764.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. First college party. A girl drank one--one!--beer and started acting like she was sOoOo wasted. Got fully naked and sat on my papasan chair. One of the most embarrassingly attention-seeking people Ive ever met lol.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145767.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. An (ex)gf and I had an apartment years ago. She was still in touch with an ex. The Ex and his gf wanted to come to the area and we invited him and his gf to stay with us for the weekend.
+
+We all hit it off at dinner, great conversation and laughs, and was a great Friday night. We had a spare bedroom and thats where the two of them slept. FYI: We used this spare room also to store a few things, and to put our dirty clothes in hampers.
+
+I got up in the middle of the night to the both of them snacking in the kitchen. No biggie, I do it too and I told them to make themselves at home.
+
+Well, after chatting and having some chips/dip I caught on to what they both were wearing. Our clothes. Um what? Now I know that people sometimes offer up clothes like pjs/misc clothing to a guest that isnt prepared but they brought bags with them. What in the heck was in their bags that they needed to wear our clothes?
+
+Worse part was the shorts and tshirts that they both had on were dirty and visibly so. I told them we had clean clothes and offered that up but they said they were fine. They ended up leaving the next morning.
+
+But who stays at someones place and wears their dirty clothes? Wtf? Yeah, we laughed about it after they left but I couldnt help but be creeped out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145284.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145768.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Give people free tattoos. No he doesnt do tattoos, the kit was from Amazon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145285.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145770.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. I used to have a friend who would always come over to take a shower. When I asked him about it, he told me he preferred my bathroom over his.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I have this friend who told me she smelled my shampoo when she went in the bathroom. Apparently she does this to every house she visits, she smells their shampoo and body wash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I was the guest in this case.
+
+I was maybe 8 at the time and I was sleeping over at a friends house. I wake up to find I have wet the bed. Super embarrassing.
+
+I try to find spare clothes and cannot find anything no matter where I look.
+
+I cannot keep wearing my pjs because they are footed pjs.
+
+Because its in the middle of the night, I run upstairs (naked) to try to find literally anything that could cover me. A blanket, anything. I have no luck.
+
+SOMEHOW, someone is awake at 2 am, and they are looking for me. I figure out its my friends mom.
+
+She comes around the corner to see me huddled down on the floor looking like gollum from lord of the rings with only a tiny pillow to hid my shame.
+
+They gave me some clothes and I want to say that was the last time I ever slept at their house again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Licked the door of my snacks closet. The door. Not the snacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. He took off ALL of his clothes when I pointed him towards the sofa and said, “Make yourself comfortable.” He’d always been a bit of a joker but that was, perhaps, going a bit too far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. We went on holiday, hired local old lady cat sitter to mind the cats for the 10 days we were away. Nothing unusual with the cats care, we have plenty of extra food and water bowls, bags of litter, litter bags and scoop all left out.
+
+We get back, cats are good, house is fine, but next to the litter tray is the spaghetti scoop, you know that weird kitchen implement you never actually use - thats what she had been using to scoop their poop for the time we were away, the actual scoop which was right there, was unused.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I was a kid and invited another kid to my house (</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145292.jpg" style="width:100%"><br>
 
