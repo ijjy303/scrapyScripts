@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/18/2022-20:11:31
+Last updated: 04/18/2022-21:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Banned Items You Can't Take On An Airplane</a><br>
 
@@ -33,7 +33,103 @@ Last updated: 04/18/2022-20:11:31
 
 <span style="font-size:4em">15. Heading for a big ski trip? Remember that your poles must be checked in. The same applies for paddles for kayaks and canoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145463.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">26 Uplifting Pics to Save Your Day</a><br>
+## <a href="#linky3" id="linky2">47 Cool Things That Actually Exist in Our World</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146794.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">26 Uplifting Pics to Save Your Day</a><br>
 
 <span style="font-size:4em">1. My stepdad helping out an elderly woman in the recent flooding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146163.jpg" style="width:100%"><br>
 
@@ -87,7 +183,7 @@ Last updated: 04/18/2022-20:11:31
 
 <span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Monday Morning Randomness - BroncoFan User Edition</a><br>
+## <a href="#linky5" id="linky4">Monday Morning Randomness - BroncoFan User Edition</a><br>
 
 <span style="font-size:4em">1. Dang girl, do you eat all of your food like that?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/17/113148/87147245/87120279.jpg" style="width:100%"><br>
 
@@ -205,7 +301,7 @@ Last updated: 04/18/2022-20:11:31
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/17/113313/87147261/87146560.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">30 Predictions That Turned Out Disastrous</a><br>
+## <a href="#linky6" id="linky5">30 Predictions That Turned Out Disastrous</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146246.jpg" style="width:100%"><br>
 
@@ -276,68 +372,6 @@ Multiple families cram into single-home structures, because theres no housing. T
 <span style="font-size:4em">29. Almost all of the many predictions now being made about 1996 hinge on the Internet’s continuing exponential growth. But I predict the Internet, which only just recently got this section here in InfoWorld, will soon go spectacularly supernova and in 1996 catastrophically collapse. - Robert Metcalfe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146267.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146268.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">30 Crazy Facts to Change Your Perspective on Life </a><br>
-
-<span style="font-size:4em">1. Cancun was founded by the Mexican government using computer models to find a nice spot for tourists.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. During a financial crisis in 1720, the British parliament debated a resolution for bankers to be sewn into sacks with snakes and dumped into the Thames River.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. That in the years preceding the French Revolution, the price of bread went from costing about 50% of a laborers daily wages to about 88% of their income.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The IRS still operates largely on mainframe computers running 60-year-old code. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Of the Octomom case of 2009, where a single mom was implanted with 12 embryos and gave birth to 8 babies (octuplets). They are currently the longest surviving octuplets ever. Ultimately her fertility doctor had his license revoked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. On 1952, a bus driver (Albert Gunter) was driving over Tower Bridge, when to his surprise, the bridge started opening. The double - decker bus was at the edge of the south bascule when it started rising. He made a split decision and accelerated clearing the 6ft drop. Later receiving a £10 bonus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. That two 16-year-olds got lost in the Canadian wilderness while snowboarding, but were able to stay warm by burning their homework. The two boys were rescued the following day and managed to avoid frostbite, sustaining only minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There are 13 remaining secret apartments on the top floors of New York City’s branch libraries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Cheetahs were at one point so close to extinction, their genetic diversity has become too low for their immune system to recognize a nonself. Skin grafts exchanged between unrelated cheetahs are accepted as if they were clones or identical twins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. That Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That tapeworm can live inside humans for up to 30 years and grow to 80ft in size.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In Egypt, around 17,000 divorce cases in 2018 cited Candy Crush as the cause of divorce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The most destructive single air attack in human history was the napalm bombing of Tokyo on the night of 10 March 1945 which killed around 100,000 civilians in about 3 hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. That the lower bar on womens bikes is antiquated and was created to accommodate the heavy dresses women wore in the late 1800s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Philadelphia Cream Cheese was invented in New York and has never been made in Philadelphia. Its name was part of a clever marketing strategy, because at the time (1880s) Philadelphia was known for its high quality dairy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Since 2004 at least 18 have people died from contracting rabies after receiving organs from infected donors. Transplanted organs are not typically screened for rabies virus, which can incubate for up to a year or more before symptoms manifest, after which time it is nearly 100% fatal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. John von Neumann regularly recalled complete novels and pages of the phone directory. He could divide two 8-digit numbers in his head and converse in Ancient Greek at age 6, and was proficient in calculus at age 8. When he enrolled in university at 16, he had already written a research paper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Lieutenant Elmo Zumwalt III contracted cancer and died at 42, after getting exposed to Agent Orange while deployed in Vietnam. It was his father, Admiral Elmo Zumwalt who ordered the use of Agent Orange in Vietnam.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The crust of the Earth is so thin, that it makes up 1% of the earths volume that contains all known life in the universe and can be compared with a peel of an apple.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Truck Wages or Company Scrip, where an employer will pay employees in company minted money that is only redeemable in company owned stores. It is referenced in the sea shanty Wellerman and the last company to get sued for using it was Walmart Mexico.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. In 1950 in Beatrice, NE, a church exploded five minutes after choir practice started. No one was hurt because every single member of the choir was late for completely separate reasons, so the church was empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Within the gaming industry, mobile gaming excluding advertisements ($93.2B) is worth more than PC gaming ($37.2B) and console gaming ($50.4B) combined.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. In Space theres only 9 to 12 seconds to be conscious outside airlock and humans are totally rescuable for at least 30 seconds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. NASA was inspired by Fritz Langs film, Frau im Mond, to use a countdown for rocket launches. NASA used the countdown to not only help technicians synchronise, but also found that announcing the countdown would build suspense for those watching at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Tom Cruise saved the American release of Lock, Stock and Two Smoking Barrels by endorsing it at a buyer screening, launching the careers of Jason Statham, Guy Ritchie & Matthew Vaughn in the process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. That (former) Dutch footballer Dennis Bergkamp is afraid of flying to the point that he would take car/ferry/train to away games, or not travel at all. His Aviophobia gave him the nickname of the Non-Flying Dutchman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. The hit version of “Tom’s Diner” was remixed by the group DNA and circulated to clubs without the permission of the artist Suzanne Vega or her label. When Vega heard the remix, she advised the label to buy it and officially release it rather than sue the group for copyright infringement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Screenwriter Aaron Sorkin (A Few Good Men, The Social Network) takes six to eight showers a day to get over writer’s block. If writing isn’t going well, he takes a shower, puts on different clothes, and tries again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146086.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">15 Fascinating Photos To Consider</a><br>
 
@@ -417,71 +451,7 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/022843/87147941/zillow.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">16 Final Thoughts From People Who Saw The Light</a><br>
-
-<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">14 Fascinating Photos of to Pique Your Interest </a><br>
-
-<span style="font-size:4em">1. This Colombian farmer Found 600 million dollars buried on his farm. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. NLAW containers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Australian Tankers with their M1A1 Abrams displaying different rounds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Grocery store, helping prevent scams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Poachers caught red-handed by an all-female unit of rangers in Zimbabwe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128356.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Transparent Solar Panels Will Turn Windows Into Green Energy Collectors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Supermarket made a garden on their roof and is distributing the goods directly in store!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Abandoned Chuck E. Cheese animatronic found in a landfill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Radioactive cars from the Fukushima disaster slowly being eaten by nature</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The speed camera lottery in Stockholm, Sweden. Drive at or under the speed limit and you’ll be entered into a lottery where the prize fund comes from the fines that speeders pay. Average speed reduced from 32 km/h to 25 km/h (a reduction of 22%).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2003 Ron Hunt, an American construction worker fell off a ladder and landed face first on a 1.5 inch drill bit that went through his left eye and out at the back of his skull. He did not lose any of his cognitive ability as the a drill bit “pushed his brain out of the way.” Doctors struggled to find a solution to remove the foreign object from his skull and contemplated simply cutting it off. They decided to simply unscrew it and Ron Hunt was entirely conscious during the operation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Moscow, 1991. When Metallica played for a crowd of 1.6 million people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The book of names, holds the name of every known holocaust victim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Climbers attempting to summit Mt Everest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128365.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">28 WTF Facts and Photos From History</a><br>
+## <a href="#linky9" id="linky8">28 WTF Facts and Photos From History</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145620.jpg" style="width:100%"><br>
 
@@ -539,7 +509,109 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145645.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">28 People Who Just Didn't Get the Joke</a><br>
+## <a href="#linky10" id="linky9">16 Final Thoughts From People Who Saw The Light</a><br>
+
+<span style="font-size:4em">1. “Bleeding out after Tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “When I almost drowned while scuba diving, oddly enough, my most prominent thought while in utter panic was also WHAT THE F**K?! I wouldn’t have guessed it but now I think maybe it is the most popular reaction when almost dying unexpectedly lol..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “I thought I had more time…to tell people I loved and appreciated them. That is no longer going to be my last thought – proud to say.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Where is he.” For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time. I was rushed to surgery and he was there when I woke up thankfully”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “I told my wife “I love you” and then the doctor asked me if I took a whole or just a baby aspirin and I said “tell her I love her” and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.”,</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f**king way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Of course, this would f**king happen.” Choking on lots of blood after a vein in my throat was cut and burst after surgery. They were panicking because no surgeons were there to seal it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke and woke up a week later in the ICU. Wouldn’t have been a bad way to go out, actually.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911. I kept thinking “is this really happening? F**k, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this – I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didn’t say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought “Wow, I’m going to find out what it’s like to die in an airplane crash.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Oh this is gonna f**king suck” as a car missed me by inches.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I have a calculus exam in four hours, I should be sleeping” while my body shut down from hypothermia.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146130.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">14 Fascinating Photos of to Pique Your Interest </a><br>
+
+<span style="font-size:4em">1. This Colombian farmer Found 600 million dollars buried on his farm. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. NLAW containers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Australian Tankers with their M1A1 Abrams displaying different rounds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Grocery store, helping prevent scams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Poachers caught red-handed by an all-female unit of rangers in Zimbabwe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128356.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Transparent Solar Panels Will Turn Windows Into Green Energy Collectors</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Supermarket made a garden on their roof and is distributing the goods directly in store!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128358.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Abandoned Chuck E. Cheese animatronic found in a landfill</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Radioactive cars from the Fukushima disaster slowly being eaten by nature</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The speed camera lottery in Stockholm, Sweden. Drive at or under the speed limit and you’ll be entered into a lottery where the prize fund comes from the fines that speeders pay. Average speed reduced from 32 km/h to 25 km/h (a reduction of 22%).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128361.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2003 Ron Hunt, an American construction worker fell off a ladder and landed face first on a 1.5 inch drill bit that went through his left eye and out at the back of his skull. He did not lose any of his cognitive ability as the a drill bit “pushed his brain out of the way.” Doctors struggled to find a solution to remove the foreign object from his skull and contemplated simply cutting it off. They decided to simply unscrew it and Ron Hunt was entirely conscious during the operation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Moscow, 1991. When Metallica played for a crowd of 1.6 million people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The book of names, holds the name of every known holocaust victim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Climbers attempting to summit Mt Everest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87128365.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">18 Easter Eggs Found In Movies </a><br>
+
+<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">28 People Who Just Didn't Get the Joke</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032315/87146434/whoosh.jpg1.png" style="width:100%"><br>
 
@@ -597,137 +669,65 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032515/87146460/whoosh.jpg28.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">47 Cool Things That Actually Exist in Our World</a><br>
+## <a href="#linky14" id="linky13">30 Crazy Facts to Change Your Perspective on Life </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146770.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Cancun was founded by the Mexican government using computer models to find a nice spot for tourists.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. During a financial crisis in 1720, the British parliament debated a resolution for bankers to be sewn into sacks with snakes and dumped into the Thames River.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. That in the years preceding the French Revolution, the price of bread went from costing about 50% of a laborers daily wages to about 88% of their income.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The IRS still operates largely on mainframe computers running 60-year-old code. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Of the Octomom case of 2009, where a single mom was implanted with 12 embryos and gave birth to 8 babies (octuplets). They are currently the longest surviving octuplets ever. Ultimately her fertility doctor had his license revoked.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. On 1952, a bus driver (Albert Gunter) was driving over Tower Bridge, when to his surprise, the bridge started opening. The double - decker bus was at the edge of the south bascule when it started rising. He made a split decision and accelerated clearing the 6ft drop. Later receiving a £10 bonus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. That two 16-year-olds got lost in the Canadian wilderness while snowboarding, but were able to stay warm by burning their homework. The two boys were rescued the following day and managed to avoid frostbite, sustaining only minor injuries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146751.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. There are 13 remaining secret apartments on the top floors of New York City’s branch libraries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146752.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Cheetahs were at one point so close to extinction, their genetic diversity has become too low for their immune system to recognize a nonself. Skin grafts exchanged between unrelated cheetahs are accepted as if they were clones or identical twins.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146753.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. That Charles Darwin often gave his old papers to his children for them to doodle on. Thus, much of what survives of his original Origin of Species manuscript represents the best of his childrens writing and drawings, rather than the best of his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146754.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. That tapeworm can live inside humans for up to 30 years and grow to 80ft in size.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146755.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In Egypt, around 17,000 divorce cases in 2018 cited Candy Crush as the cause of divorce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146756.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The most destructive single air attack in human history was the napalm bombing of Tokyo on the night of 10 March 1945 which killed around 100,000 civilians in about 3 hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146757.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. That the lower bar on womens bikes is antiquated and was created to accommodate the heavy dresses women wore in the late 1800s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146758.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Philadelphia Cream Cheese was invented in New York and has never been made in Philadelphia. Its name was part of a clever marketing strategy, because at the time (1880s) Philadelphia was known for its high quality dairy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146759.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Since 2004 at least 18 have people died from contracting rabies after receiving organs from infected donors. Transplanted organs are not typically screened for rabies virus, which can incubate for up to a year or more before symptoms manifest, after which time it is nearly 100% fatal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146760.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. John von Neumann regularly recalled complete novels and pages of the phone directory. He could divide two 8-digit numbers in his head and converse in Ancient Greek at age 6, and was proficient in calculus at age 8. When he enrolled in university at 16, he had already written a research paper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146761.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. A California court ruled that a man was not entitled to the $3 billion market value of his cells, which his doctor had secretly commercialized after removing his spleen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146763.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Lieutenant Elmo Zumwalt III contracted cancer and died at 42, after getting exposed to Agent Orange while deployed in Vietnam. It was his father, Admiral Elmo Zumwalt who ordered the use of Agent Orange in Vietnam.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146764.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The crust of the Earth is so thin, that it makes up 1% of the earths volume that contains all known life in the universe and can be compared with a peel of an apple.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146765.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Truck Wages or Company Scrip, where an employer will pay employees in company minted money that is only redeemable in company owned stores. It is referenced in the sea shanty Wellerman and the last company to get sued for using it was Walmart Mexico.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146766.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. In 1950 in Beatrice, NE, a church exploded five minutes after choir practice started. No one was hurt because every single member of the choir was late for completely separate reasons, so the church was empty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146767.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Before 2012, Pizza Hut was the largest purchaser of kale in the US, but they only used it as garnish for their salad bars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146768.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Within the gaming industry, mobile gaming excluding advertisements ($93.2B) is worth more than PC gaming ($37.2B) and console gaming ($50.4B) combined.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146769.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. In Space theres only 9 to 12 seconds to be conscious outside airlock and humans are totally rescuable for at least 30 seconds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146771.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. NASA was inspired by Fritz Langs film, Frau im Mond, to use a countdown for rocket launches. NASA used the countdown to not only help technicians synchronise, but also found that announcing the countdown would build suspense for those watching at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146772.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Tom Cruise saved the American release of Lock, Stock and Two Smoking Barrels by endorsing it at a buyer screening, launching the careers of Jason Statham, Guy Ritchie & Matthew Vaughn in the process.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146773.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. That (former) Dutch footballer Dennis Bergkamp is afraid of flying to the point that he would take car/ferry/train to away games, or not travel at all. His Aviophobia gave him the nickname of the Non-Flying Dutchman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146774.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. The hit version of “Tom’s Diner” was remixed by the group DNA and circulated to clubs without the permission of the artist Suzanne Vega or her label. When Vega heard the remix, she advised the label to buy it and officially release it rather than sue the group for copyright infringement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146794.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">18 Easter Eggs Found In Movies </a><br>
-
-<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Screenwriter Aaron Sorkin (A Few Good Men, The Social Network) takes six to eight showers a day to get over writer’s block. If writing isn’t going well, he takes a shower, puts on different clothes, and tries again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146086.jpg" style="width:100%"><br>
 
