@@ -1,47 +1,67 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/19/2022-04:11:31
+Last updated: 04/19/2022-05:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Kids Who Are Straight up Weirdos</a><br>
+## <a href="#linky2" id="linky1">30 WTF Headlines to Click the Heck Out of </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042520/87147961/apple.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042526/87147962/cement.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042531/87147963/chemical.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042537/87147964/air.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042542/87147965/dino.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042548/87147966/draw.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042632/87147974/muffin.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042553/87147967/eraser.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042559/87147968/fish.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042603/87147969/foot.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042610/87147970/fuck.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042621/87147972/juice.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042625/87147973/gloves.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042637/87147975/pb.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042614/87147971/horse.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042643/87147976/rake.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042648/87147977/shirt.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042654/87147978/skittle.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042659/87147979/tank.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042705/87147980/toilet.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147778.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">14 Fascinating Photos of to Pique Your Interest </a><br>
 
@@ -255,7 +275,65 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/022843/87147941/zillow.png" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">15 Fascinating Photos To Consider</a><br>
+## <a href="#linky7" id="linky6">28 WTF Facts and Photos From History</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145645.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">15 Fascinating Photos To Consider</a><br>
 
 <span style="font-size:4em">1. Archer Chynara Madinkulova competing at the last World Nomad Games in Kyrgyzstan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147954.jpg" style="width:100%"><br>
 
@@ -285,77 +363,257 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">14. Decoy vehicle made by Russians in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147959.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">15 Banned Items You Can't Take On An Airplane</a><br>
+## <a href="#linky9" id="linky8">20 Kids Who Are Straight up Weirdos</a><br>
 
-<span style="font-size:4em">1. While these fun toys are allowed to be checked in with your luggage, you can not bring them in as a carry on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145450.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042520/87147961/apple.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The TSA website says: “sports equipment that can be used as a bludgeon (such as bats and clubs) is prohibited in the cabin of the plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145452.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042526/87147962/cement.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. We aren’t exactly sure why these things can’t be brought onto planes, but it is assumed it has something to do with the liquid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145449.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042531/87147963/chemical.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. While these things aren’t REALLY swords, the TSA website states “cutting or thrusting weapons, including fencing foils.” can’t be carried on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145454.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042537/87147964/air.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. These things contain a tiny bit of gunpowder inside of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145455.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042542/87147965/dino.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. These bad boys fall under the “sports equipment that can be used as a bludgeon” category.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145456.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042548/87147966/draw.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Fertilizer has a risk of explosion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145451.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042632/87147974/muffin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. While electric heating pads are a go, gel heating pads don’t pass the test due to the volume of liquid involved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145457.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042553/87147967/eraser.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. These dangerous little guys MUST be checked in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145458.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042559/87147968/fish.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cooking spray is also prohibited from being checked in. Simply put, leave it at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145459.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042603/87147969/foot.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. These paints can not be checked in or carried on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145460.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042610/87147970/fuck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. It is assumed that these things need to be checked-in because they could, probably, be used as a wicked weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145453.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042621/87147972/juice.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Solid wax candles may be carried onto a plane, but anything with gel must be checked in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145461.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042625/87147973/gloves.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. According to the TSA website: “Snow globes that appear to contain less than 3.4 ounces of liquid (approximately tennis ball size) can be packed in your carry-on bag ONLY if the entire snow globe, including the base, is able to fit into your one quart-sized, resealable plastic bag.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145462.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042637/87147975/pb.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Heading for a big ski trip? Remember that your poles must be checked in. The same applies for paddles for kayaks and canoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145463.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042614/87147971/horse.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">18 Easter Eggs Found In Movies </a><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042643/87147976/rake.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042648/87147977/shirt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042654/87147978/skittle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042659/87147979/tank.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/18/042705/87147980/toilet.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">47 Cool Things That Actually Exist in Our World</a><br>
 
-<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146756.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Monday Morning Randomness - BroncoFan User Edition</a><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146794.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">28 People Who Just Didn't Get the Joke</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032315/87146434/whoosh.jpg1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032304/87146433/whoosh.jpg2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032326/87146435/whoosh.jpg5.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032334/87146436/whoosh.jpg3.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032338/87146437/whoosh.jpg4.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032345/87146438/whoosh.jpg6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032349/87146439/whoosh.jpg7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032356/87146440/whoosh.jpg8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032400/87146441/whoosh.jpg9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032403/87146442/whoosh.jpg10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032409/87146443/whoosh.jpg11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032413/87146444/whoosh.jpg12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032417/87146445/whoosh.jpg13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032422/87146446/whoosh.jpg14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032425/87146447/whoosh.jpg15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032428/87146448/whoosh.jpg16.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032433/87146449/whoosh.jpg17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032436/87146450/whoosh.jpg18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032440/87146451/whoosh.jpg19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032445/87146452/whoosh.jpg20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032448/87146453/whoosh.jpg21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032452/87146454/whoosh.jpg22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032457/87146455/whoosh.jpg23.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032500/87146456/whoosh.jpg24.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032503/87146457/whoosh.jpg25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032508/87146458/whoosh.jpg26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032512/87146459/whoosh.jpg27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032515/87146460/whoosh.jpg28.png" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">26 Uplifting Pics to Save Your Day</a><br>
+
+<span style="font-size:4em">1. My stepdad helping out an elderly woman in the recent flooding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My classmates decided to shave their heads for cancer research. Only one girl volunteered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I picked this man up during a rare Los Angeles downpour. He missed the last bus and was shuffling home in the rain. Turned out he was miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Christmas donkeys made a surprise visit to our memory care assisted living. The happy tears coming from my residents were absolutely priceless!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Told my barber I recently finished a dream project of releasing an action film, and he offered to hang the movie poster in his shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My generous mother-in-law’s shocked face when she saw they’re getting the new couch she wants for Christmas. We’re glad to do something for her this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Helping my assistant put on a tie to go with their first fitted suit. I felt very fatherly in that moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Donated this 24,000-piece puzzle to a children’s mental health center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A good samaritan found the wallet I lost in the ocean…24 years ago!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My husband has been bringing his trash picker to clean up local parks and hiking trails long before it was a hashtag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Take what you need at my local high school. The admin and teachers here are making such a difference for these kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Every Christmas, my mom takes a bunch of envelopes with $20 cash in them and hands them out to strangers in our town.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My 84-year-old grandmother apologized for having to wear her nightgown in front of us. I said it was no problem, so she immediately offered me one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My dad was dealing with a lot of stress, so we decided to get him a dog to see if it would help.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. This is supposed to be a fish shaped basket but it is hard to tell with my orange goober in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. 3 years ago today, after losing 6 babies, I got my lucky #7!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Volunteered as Santa at the local animal shelter. This is my favorite picture by far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Never seen someone so happy eating apples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The most surprising hike.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Luna is getting a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My dad and the ridiculously photogenic owl he helped escape from our barn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. People were leaving these in the parking lot of the hospital that my mom works at.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The kid and cat are in awe of snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. After years of struggling with anxiety, depression and OCD, I wrote a book of poetry to help other people with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Must touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Monday Morning Randomness - BroncoFan User Edition</a><br>
 
 <span style="font-size:4em">1. Dang girl, do you eat all of your food like that?</span><br><img src="https://cdn.ebaumsworld.com/2022/04/17/113148/87147245/87120279.jpg" style="width:100%"><br>
 
@@ -473,269 +731,73 @@ Multiple families cram into single-home structures, because theres no housing. T
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/17/113313/87147261/87146560.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">47 Cool Things That Actually Exist in Our World</a><br>
+## <a href="#linky14" id="linky13">18 Easter Eggs Found In Movies </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146770.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In Encanto, the hourglass pattern on Bruno’s ruana signifies his gift.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146745.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The subtle foreshadowing we get right before Selina is thrown out the window in Batman Returns: her eyeglasses’ shadow project the Catwoman mask on her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146746.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In Encanto (2021), when Maribel meets Bruno, there is a plant inside a boot referencing the plant in Wall-E (2008).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146747.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The A Bug’s Life picture that’s in Al’s apartment in Toy Story 2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146748.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This “9-inch nails” sign in Soul references Trent Reznor and Atticus Ross, 2 of the movie’s composers and members of the band, Nine Inch Nails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146749.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In Little Italy (2018), Emma Roberts wore the same T-shirt as her aunt Julia wore in Mystic Pizza (1988). Both movies were directed by Donald Petrie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146750.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This very clever hidden detail in The Princess and the Frog where the villain’s shadow turns the wallpaper into skulls and crossbones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146751.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. In Guardians of the Galaxy, Peter Quill’s ship is a nod to Alyssa Milano. Star-Lord had a big crush on the movie star, so he named his ship The Milano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146752.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This small nod to the creator of Candyman in Candyman — Burke is seen reading Clive Barker, who also wrote The Forbidden, the original Candyman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146753.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The origins of Hercules’ cape in Hercules — The cape attached to his armor is the shawl that is given to him by his adoptive mother.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146754.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Avengers, Guardians of the Galaxy, Avengers: Endgame, and WandaVision all reference the iconic Pixar Easter egg, “A113.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146755.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Hiro in Big Hero 6 (2014) has a toy soldier from the video game in Wreck-It Ralph (2012).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146756.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The Annabelle doll makes a cameo in Shazam! (2019) because director David F. Sandberg also directed Annabelle: Creation (2017).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146757.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The genie’s lamp from Aladdin (1992) makes a quick cameo on Tamatoa’s shell in Moana (2016).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146758.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. In Mulan (1998), Barry Cook and Tony Bancroft, the directors of the movie, appear as 2 firework handlers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146759.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. In Despicable Me (2010), the number on Gru’s ticket is 072069, as on July 20, 1969, the date of the first moon landing (which Gru watched in a flashback).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146760.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In Wreck-It Ralph (2012), the high score is 120501. This is a reference to the birthdate of Walt Disney (December 5, 1901).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146761.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. In Monsters, Inc. (2001) Sulley calls the child “Boo.” But her drawings are signed “Mary,” which seems to be her real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87137076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146763.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">15 Banned Items You Can't Take On An Airplane</a><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146764.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. While these fun toys are allowed to be checked in with your luggage, you can not bring them in as a carry on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146765.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The TSA website says: “sports equipment that can be used as a bludgeon (such as bats and clubs) is prohibited in the cabin of the plane.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146766.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. We aren’t exactly sure why these things can’t be brought onto planes, but it is assumed it has something to do with the liquid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146767.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. While these things aren’t REALLY swords, the TSA website states “cutting or thrusting weapons, including fencing foils.” can’t be carried on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146768.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. These things contain a tiny bit of gunpowder inside of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146769.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. These bad boys fall under the “sports equipment that can be used as a bludgeon” category.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146771.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Fertilizer has a risk of explosion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146772.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. While electric heating pads are a go, gel heating pads don’t pass the test due to the volume of liquid involved.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146773.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. These dangerous little guys MUST be checked in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146774.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cooking spray is also prohibited from being checked in. Simply put, leave it at home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146775.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. These paints can not be checked in or carried on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146776.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. It is assumed that these things need to be checked-in because they could, probably, be used as a wicked weapon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146777.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Solid wax candles may be carried onto a plane, but anything with gel must be checked in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146778.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. According to the TSA website: “Snow globes that appear to contain less than 3.4 ounces of liquid (approximately tennis ball size) can be packed in your carry-on bag ONLY if the entire snow globe, including the base, is able to fit into your one quart-sized, resealable plastic bag.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146794.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">28 People Who Just Didn't Get the Joke</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032315/87146434/whoosh.jpg1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032304/87146433/whoosh.jpg2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032326/87146435/whoosh.jpg5.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032334/87146436/whoosh.jpg3.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032338/87146437/whoosh.jpg4.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032345/87146438/whoosh.jpg6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032349/87146439/whoosh.jpg7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032356/87146440/whoosh.jpg8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032400/87146441/whoosh.jpg9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032403/87146442/whoosh.jpg10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032409/87146443/whoosh.jpg11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032413/87146444/whoosh.jpg12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032417/87146445/whoosh.jpg13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032422/87146446/whoosh.jpg14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032425/87146447/whoosh.jpg15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032428/87146448/whoosh.jpg16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032433/87146449/whoosh.jpg17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032436/87146450/whoosh.jpg18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032440/87146451/whoosh.jpg19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032445/87146452/whoosh.jpg20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032448/87146453/whoosh.jpg21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032452/87146454/whoosh.jpg22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032457/87146455/whoosh.jpg23.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032500/87146456/whoosh.jpg24.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032503/87146457/whoosh.jpg25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032508/87146458/whoosh.jpg26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032512/87146459/whoosh.jpg27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/15/032515/87146460/whoosh.jpg28.png" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">26 Uplifting Pics to Save Your Day</a><br>
-
-<span style="font-size:4em">1. My stepdad helping out an elderly woman in the recent flooding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My classmates decided to shave their heads for cancer research. Only one girl volunteered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I picked this man up during a rare Los Angeles downpour. He missed the last bus and was shuffling home in the rain. Turned out he was miles away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Christmas donkeys made a surprise visit to our memory care assisted living. The happy tears coming from my residents were absolutely priceless!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Told my barber I recently finished a dream project of releasing an action film, and he offered to hang the movie poster in his shop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My generous mother-in-law’s shocked face when she saw they’re getting the new couch she wants for Christmas. We’re glad to do something for her this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Helping my assistant put on a tie to go with their first fitted suit. I felt very fatherly in that moment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Donated this 24,000-piece puzzle to a children’s mental health center.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A good samaritan found the wallet I lost in the ocean…24 years ago!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My husband has been bringing his trash picker to clean up local parks and hiking trails long before it was a hashtag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Take what you need at my local high school. The admin and teachers here are making such a difference for these kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Every Christmas, my mom takes a bunch of envelopes with $20 cash in them and hands them out to strangers in our town.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My 84-year-old grandmother apologized for having to wear her nightgown in front of us. I said it was no problem, so she immediately offered me one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My dad was dealing with a lot of stress, so we decided to get him a dog to see if it would help.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This is supposed to be a fish shaped basket but it is hard to tell with my orange goober in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 3 years ago today, after losing 6 babies, I got my lucky #7!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Volunteered as Santa at the local animal shelter. This is my favorite picture by far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never seen someone so happy eating apples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The most surprising hike.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Luna is getting a human.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My dad and the ridiculously photogenic owl he helped escape from our barn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. People were leaving these in the parking lot of the hospital that my mom works at.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The kid and cat are in awe of snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. After years of struggling with anxiety, depression and OCD, I wrote a book of poetry to help other people with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Must touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My sister found a cane on a fence outside of a store. She called the number printed on it and returned it to a kind old man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146188.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">28 WTF Facts and Photos From History</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145645.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Heading for a big ski trip? Remember that your poles must be checked in. The same applies for paddles for kayaks and canoes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145463.jpg" style="width:100%"><br>
 
