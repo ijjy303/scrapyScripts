@@ -1,159 +1,99 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/20/2022-16:11:31
+Last updated: 04/20/2022-17:11:31
 <br>
-## <a href="#linky2" id="linky1">19 Thoughts That Are Not Technically Wrong</a><br>
+## <a href="#linky2" id="linky1">32 Things That Feel Totally Illegal But Actually Aren't</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149653.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Watching the next episode of a series or  box set without your significant other.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094126/87149505/Gots.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149654.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. U.S legislators are allowed to trade stock in and sit on boards of private companies while passing legislation affecting those companies.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094137/87149506/Ped.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149655.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Big companies buying up a whole bunch of housing in some city and renting it out to visitors, and screwing up the local market.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094148/87149507/Solid1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149657.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Big companies buying up a whole bunch of housing  in some city and renting it out to visitors, and  screwing up the local market.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094156/87149508/house.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149658.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Taking time off work always feels illegal. Even if its paid time off Ive earned and I give plenty of notice ahead of time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149659.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Bringing your baby home from the hospital the first time. I remember thinking “they’re really going to let me just walk out of here with this fragile infant and no experience?!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149660.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. It feels illegal getting out of my wheelchair. I’m not paralyzed but it helps to have a wheelchair, but people always think I’m faking a disability when I get out of my chair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149661.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Asking someone for the money you lent to him/her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149662.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Driving next to a cop at the speed limit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149663.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Walking out of a store without buying smth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149664.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Calling in sick when youre actually sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149665.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Your employer will tell you youre not allowed to discuss your wages but legally you are and you cannot be fired for it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149666.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Telling your barber that you dont like the haircut</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149667.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Being a 30-something male and taking your 4 yr old niece to a kids live musical. My partner and I took my niece to the Frozen live musical today. Because we purchased tickets at late notice, I had to take a seat in the row behind my (female)partner and my niece. The stares I was getting from the other audience members because I was a dude sitting by myself at a kids musical... I felt like I shouldve been in prison.9/10 though would do it again, the Frozen musical was great!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149668.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Not liking dogs. People treat it as the worst thing in the world if you arent deathly allergic and just dont like dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149669.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Sitting at the restaurant, not liking the menu, and leaving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149670.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Coughing in public places</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149671.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Card counting in a casino. It’s totally legal within the law, but the security and management will make you feel like a criminal for doing it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87149672.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Bringing reusable grocery bags to a different grocery store than the one the bags are branded as.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149449.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Dude Photoshops Leatherface into Black and White Photos</a><br>
+<span style="font-size:4em">20. Watching a video on your phone at full volume in a public place, Ive done this a few times on accident and I wanted to crawl out of my skin and [pass away].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092504/87148627/ballet.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Getting a haircut from someone other than your regular hairdresser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092514/87148628/football.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Pulling your pants down when you have 2 pairs of pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092453/87148624/casablanca.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Purchasing an item with no bag, and leaving the shop with it under your arm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092453/87148625/drive.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Walking into a store with a mask on, your hood up, all with sunglasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092504/87148626/field.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. My dad had a tendency to go to a store and eat and drink off the shelves. Then go pay for the wrapper at the end. Always thought wed get arrested for that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092515/87148629/gang.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Doing nothing on New years eve</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092559/87148634/marily.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. The first time driving a car after youve got your license</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092525/87148630/icon.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Leaving the office on time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092536/87148631/kids.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Using a bathroom for disabled/handicapped people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092548/87148632/munster.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Being at a red light next to a Police officer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092556/87148633/lighthouse.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Driving with the interior light on</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092607/87148635/sidewalk.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. Revealing spoilers of a movie or show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092610/87148636/sitcom.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">12 Behind-The-Scenes Facts From Iconic Movies</a><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092619/87148637/sandlot.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dan Aykroyd saved Carrie Fisher’s life while filming The Blues Brothers. The actors were in a trailer on the set of the movie, The Blues Brothers, when Carrie Fisher started to choke, so Dan Aykroyd applied the Heimlich maneuver and saved her life. Right after that, he proposed, and the couple was engaged.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092621/87148638/stake.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. John Wick could have been called Scorn. The movie we know as John Wick could have had a completely different title. The creators of the franchise wanted to name it Scorn at first, but then changed their mind because Keanu Reeves, who plays the main role there, kept referring to the movie as John Wick. So the decision was made to change the title.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092630/87148639/stooge.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The egg sandwich in Birds of Prey was made using duck eggs. The sandwich in Birds of Prey (and the Fantabulous Emancipation of One Harley Quinn) that looked so tasty in the movie that it became a star on its own, didn’t contain any chicken eggs. Actress Margot Robbie who played the villain is actually allergic to chicken egg whites, so they had to use duck eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092632/87148640/twelve.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Tom Felton used to sneak candy on set and it didn’t go unnoticed. Even though Draco Malfoy appears to have hands in his pockets in this scene, it’s not actually so. Tom Felton’s habit of taking food in his pockets made the wardrobe department sew his wizard robe’s pockets (that used to be huge) after the filming of Harry Potter and the Prisoner of Azkaban. The actor admitted that it was true, and he also mentioned that other actors followed his example too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092642/87148641/wheel.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. There was no cellphone signal during the filming of The Revenant. The Revenant director, Alejandro Iñárritu, decided to film in the remote parts of Alberta, Canada to bring as much authenticity to the movie as possible. This came with a set of challenges, including extremely cold weather, no cellphone signal, and even wild bears. However, it all paid off when the movie got a number of awards, including 3 Oscars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092654/87148644/yankee.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Sean Bean had to tape the script to his knee while filming The Fellowship of the Ring. As the director of the Lord of the Rings franchise, Peter Jackson, has mentioned, the movie scripts evolve, even into the production stage, and this sometimes leads to the necessity for actors to rapidly learn their new lines. Once, the team revised actor Sean Bean’s character’s speech right before the shoot, but he found a clever way out — he just taped the text to his knee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092642/87148642/workers.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. An Encanto song was recorded by Stephanie Beatriz while she was in labor.  Stephanie Beatriz revealed in an interview that while she was recording her solo song, “Waiting on a Miracle,” from the movie, Encanto, she started to go into labor. The actress didn’t tell anyone about it because she didn’t want them “to freak out.” The Brooklyn Nine-Nine star gave birth to her first child, Rosaline, the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092652/87148643/wrestle.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Rosie Huntington-Whiteley lost her eyelashes while filming Mad Max: Fury Road. In the process of filming Mad Max: Fury Road, Rosie Huntington-Whiteley had to wear a full-body cast that got into her eyelashes. When the props team took it off, they accidentally pulled all of her lashes out. As a result, the actress had zero lashes for 3 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/092701/87148645/store.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Tobey Maguire repeated the catching scene in Spider-Man 156 times. It’s hard to imagine, but the catching scene in 2002 Spider-Man was filmed without the use of CGI. When Mary Jane slips, Peter Parker is there to save both her and her lunch by catching everything in the air. It seems impossible without supernatural abilities or at least some green screen movie magic, but actually, actor Tobey Maguire caught everything only with the help of glue, and it took him 156 takes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148533.png" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">35 WTF Construction Jobs</a><br>
+<span style="font-size:4em">10. “The world’s loneliest dog” got adopted thanks to a promised role in Transformers 5. The dog named Freya got the nickname of “the world’s loneliest dog” after spending 6 years in the shelter. However, when Michael Bay posted a photo of the “poor pooch” and promised the doggo a role in Transformers 5, she finally found a permanent home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Is it that hard to line up some lights?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147681.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. When Chris Evans’ mom saw her son in Avengers: Endgame, she burst into tears. Chris Evans mentioned in an interview that there was a moment in the Avengers: Endgame movie that made his mom, Lisa Capuano, very emotional. It wasn’t anything in the script, but the time when an aged Steve Rogers appeared on the screen. The actor said it was because he looked exactly like his late granddad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Everyone should know how door work right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147683.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Matrix code is actually sushi recipes. If you’ve watched The Matrix, you probably have a number of associations with it, one of which can be lots and lots of green characters in numerous rows of code that looked very mysterious and futuristic. The mystery is no more, as the creator of The Matrix code revealed that the characters make up sushi recipes from his wife’s cookbooks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well I guess heating wont be an issue. But maybe invest in some carpets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Which is harder? Building pipes or moving some bricks?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. That plug looks about right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Thats not a fire hazard at all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. God forbid you look out the window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A new kind of door stopper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147703.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Just how the ancient Persians imagined it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Well that problem could be a bit of a stinker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147712.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">20 Maps That Are Plain F**king Awful</a><br>
+## <a href="#linky4" id="linky3">20 Maps That Are Plain F**king Awful</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/054156/87149023/duck.jpg" style="width:100%"><br>
 
@@ -195,7 +135,7 @@ Last updated: 04/20/2022-16:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/054343/87149042/water.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">69 of the Best Weed Memes and Pics to Blaze with on 4/20</a><br>
+## <a href="#linky5" id="linky4">69 of the Best Weed Memes and Pics to Blaze with on 4/20</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87148735.jpg" style="width:100%"><br>
 
@@ -335,7 +275,7 @@ Last updated: 04/20/2022-16:11:31
 
 <span style="font-size:4em">69. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87148803.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">20 Clever Comments That Really Killed It</a><br>
+## <a href="#linky6" id="linky5">20 Clever Comments That Really Killed It</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146147.jpg" style="width:100%"><br>
 
@@ -377,7 +317,7 @@ Last updated: 04/20/2022-16:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87146153.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">32 Relationship Memes That Are Far Too Relatable</a><br>
+## <a href="#linky7" id="linky6">32 Relationship Memes That Are Far Too Relatable</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87148590.jpg" style="width:100%"><br>
 
@@ -443,7 +383,7 @@ Last updated: 04/20/2022-16:11:31
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/035158/87148969/box.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 People Share the Most WTF Company Secrets</a><br>
+## <a href="#linky8" id="linky7">30 People Share the Most WTF Company Secrets</a><br>
 
 <span style="font-size:4em">1. Worked at Dominos in college. Our franchisee made it a fireable offense to call in sick. If you missed a scheduled shift, it would be considered quitting, and you wouldnt get put on the schedule ever again.
 
@@ -539,201 +479,7 @@ They pretty much fed us propaganda materials and treated us like kids. They made
 
 <span style="font-size:4em">29. If you ordered any vodka; Grey Goose Belvedere Titos Ketel one, etc You are getting Blue Ice vodka. Owner of the bar would pour cheap vodka into those bottles. I refused to do it myself, so he would do it. I made phenomenal money there, 350-500 a shift so i never said s**t about it. After i quit i let people know. Was shut down 3 months after</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148494.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">32 Things That Feel Totally Illegal But Actually Aren't</a><br>
-
-<span style="font-size:4em">1. Watching the next episode of a series or  box set without your significant other.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094126/87149505/Gots.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. U.S legislators are allowed to trade stock in and sit on boards of private companies while passing legislation affecting those companies.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094137/87149506/Ped.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Big companies buying up a whole bunch of housing in some city and renting it out to visitors, and screwing up the local market.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094148/87149507/Solid1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Big companies buying up a whole bunch of housing  in some city and renting it out to visitors, and  screwing up the local market.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/20/094156/87149508/house.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Taking time off work always feels illegal. Even if its paid time off Ive earned and I give plenty of notice ahead of time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Bringing your baby home from the hospital the first time. I remember thinking “they’re really going to let me just walk out of here with this fragile infant and no experience?!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. It feels illegal getting out of my wheelchair. I’m not paralyzed but it helps to have a wheelchair, but people always think I’m faking a disability when I get out of my chair.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Asking someone for the money you lent to him/her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Driving next to a cop at the speed limit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Walking out of a store without buying smth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Calling in sick when youre actually sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Your employer will tell you youre not allowed to discuss your wages but legally you are and you cannot be fired for it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Telling your barber that you dont like the haircut</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Being a 30-something male and taking your 4 yr old niece to a kids live musical. My partner and I took my niece to the Frozen live musical today. Because we purchased tickets at late notice, I had to take a seat in the row behind my (female)partner and my niece. The stares I was getting from the other audience members because I was a dude sitting by myself at a kids musical... I felt like I shouldve been in prison.9/10 though would do it again, the Frozen musical was great!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Not liking dogs. People treat it as the worst thing in the world if you arent deathly allergic and just dont like dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Sitting at the restaurant, not liking the menu, and leaving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Coughing in public places</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Card counting in a casino. It’s totally legal within the law, but the security and management will make you feel like a criminal for doing it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Bringing reusable grocery bags to a different grocery store than the one the bags are branded as.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Watching a video on your phone at full volume in a public place, Ive done this a few times on accident and I wanted to crawl out of my skin and [pass away].</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Getting a haircut from someone other than your regular hairdresser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Pulling your pants down when you have 2 pairs of pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Purchasing an item with no bag, and leaving the shop with it under your arm</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Walking into a store with a mask on, your hood up, all with sunglasses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. My dad had a tendency to go to a store and eat and drink off the shelves. Then go pay for the wrapper at the end. Always thought wed get arrested for that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Doing nothing on New years eve</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. The first time driving a car after youve got your license</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Leaving the office on time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Using a bathroom for disabled/handicapped people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Being at a red light next to a Police officer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Driving with the interior light on</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Revealing spoilers of a movie or show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149463.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">15 Survival Tips for Your First Week in Prison</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115247/87148708/prison-tips-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115226/87148706/prison-tips-02.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/120312/87148711/prison-tips-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Dont start sh*t and keep to your own. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115237/87148707/prison-tips-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115248/87148709/prison-tips-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114847/87148703/prison-tips-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114829/87148700/prison-tips-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114825/87148699/prison-tips-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114836/87148701/prison-tips-09.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> As a supervisor in a level 4 prison... Dont put yourself in ANY kind of debt EVER. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114840/87148702/prison-tips-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/101023/87148694/prison-tips-11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/101028/87148695/prison-tips-12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148693.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">28 Fresh Pics and Memes For Exquisite Minds</a><br>
-
-<span style="font-size:4em">1. Could someone actually be thus stupid? Yes, yes they could. So imagine youre sitting at a table, and you have two options, one option is free money, the other is a book. You take the money. No questions asked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147638.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. We see, brother, we will see. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147634.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Hmm, thats a great year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147635.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. When trying to sell a mirror, and you cant not be in the frame. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147637.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I promised babe, Ive changed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147633.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147639.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Thatll show them! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147640.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147643.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Oh is that for me? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147644.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147645.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147646.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Aww he is so damn cute, whats his name? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147642.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147647.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. What is going on here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147648.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147649.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147650.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147652.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147653.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. You wouldnt understand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147654.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147655.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147656.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147657.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147658.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Is this Jiminem here in the room with us? Yes? What is he saying? Dont worry, he cant hurt you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147659.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Seagulls think theyre higher up on the food chain than they actually are. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147660.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147661.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147662.jpeg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">18 Hacks That Could Change Your Life</a><br>
-
-<span style="font-size:4em">1. “Keep a $20 in your phone in case of emergencies or exceptional customer service.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. With this trick, you won’t have issues carrying your bags.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “No more struggling to fit your hand in the container!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Put a 3M hanger upside down to keep the trash bag in place.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Want to store some cake in a container? Flip a Tupperware upside down and use the lid as the bottom.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My mom bought a CD rack for her ramen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “If you need drink coasters, go to your local big box hardware store and grab some flooring samples.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “When you lose power, you can use empty translucent milk/water jugs to dramatically improve the light output from a flashlight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “This is how I let my toast cool so one side doesn’t get soggy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “In a public bathroom, keep your purse off the floor by putting a strap through the handle and balancing the purse with its own strap!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I have a small kitchen, so this was my solution.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Just your ordinary shoe organizer”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Use your spring-loaded salad tongs to keep your reusable bags open as they dry.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “When traveling, always keep your shampoos in a zip lock bag for this reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My wife just taught me that if I use a cheese grater on a cold stick of butter, it’s easier to spread on toast and muffins.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “A travel pillow helps you lay down with headphones.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Fit more wings in the oven and get better results.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This keeps open bananas good for longer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87149402.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">38 Pics For People Who Own Cats</a><br>
+## <a href="#linky9" id="linky8">38 Pics For People Who Own Cats</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87147792.jpg" style="width:100%"><br>
 
@@ -811,49 +557,7 @@ They pretty much fed us propaganda materials and treated us like kids. They made
 
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87147834.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">British Memes and Pics Confirming What Americans Already Knew</a><br>
-
-<span style="font-size:4em">1. They even have their own version of dad jokes. Bangers & Mash.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012843/87148814/banger.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This is the positive vandalism we love to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012844/87148815/bike.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. You know this has had to happen at least one time before.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012854/87148816/cabbage.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh America. Known for their A1 sauce, macaroni and cheese, and a f*ckton of sugar!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012855/87148817/American.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Its funny because its always cloudy and raining in Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012906/87148818/clouds.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Honestly kudos to England for being the only country to get The Killers to record their national anthem.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012917/87148819/clubs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Were only gonna say it once, PUT THAT SH*T BACK.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012951/87148824/moon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Are we sure this wasnt taken in Florida? This feels like a Florida thing.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012928/87148820/gobble.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Get it? Because copper is both a color tone and a nickname for the police in Great Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012940/87148822/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Dude, thats a heck of a deal!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012950/87148823/harry.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Is this animal abuse yay or nay? Hes dragging that thing a little too hard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013001/87148825/pet.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My guy is absolutely gutted. Just look at his eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013002/87148826/salmon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I AM A FREE I AM NOT MAN A NUMBER.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013012/87148827/sign.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Damn dude. Who hurt you- Oh, nevermind. I see.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012937/87148821/debbi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Come on, people. You had one job to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013013/87148828/stop.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. That word means something TOTALLY different over there.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013023/87148829/store.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The best name for a restaurant doesnt exis-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013025/87148830/titanic.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. People overseas swear a hell of a lot more than we do in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013034/87148831/together.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Its all fun and games until the tube snatches your arm and takes you on a ride.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013046/87148833/tube.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Please. For the love of God. Stop stealing everything.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/021934/87148921/tower.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">Survival Myths That Will Get You Killed</a><br>
+## <a href="#linky10" id="linky9">Survival Myths That Will Get You Killed</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/120814/87148716/survivalmyths.jpg5.png" style="width:100%"><br>
 
@@ -899,29 +603,201 @@ They pretty much fed us propaganda materials and treated us like kids. They made
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/120957/87148733/survivalmyths.jpg22.png" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">12 Behind-The-Scenes Facts From Iconic Movies</a><br>
+## <a href="#linky11" id="linky10">35 WTF Construction Jobs</a><br>
 
-<span style="font-size:4em">1. Dan Aykroyd saved Carrie Fisher’s life while filming The Blues Brothers. The actors were in a trailer on the set of the movie, The Blues Brothers, when Carrie Fisher started to choke, so Dan Aykroyd applied the Heimlich maneuver and saved her life. Right after that, he proposed, and the couple was engaged.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148528.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Is it that hard to line up some lights?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. John Wick could have been called Scorn. The movie we know as John Wick could have had a completely different title. The creators of the franchise wanted to name it Scorn at first, but then changed their mind because Keanu Reeves, who plays the main role there, kept referring to the movie as John Wick. So the decision was made to change the title.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148525.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Everyone should know how door work right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The egg sandwich in Birds of Prey was made using duck eggs. The sandwich in Birds of Prey (and the Fantabulous Emancipation of One Harley Quinn) that looked so tasty in the movie that it became a star on its own, didn’t contain any chicken eggs. Actress Margot Robbie who played the villain is actually allergic to chicken egg whites, so they had to use duck eggs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148526.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Tom Felton used to sneak candy on set and it didn’t go unnoticed. Even though Draco Malfoy appears to have hands in his pockets in this scene, it’s not actually so. Tom Felton’s habit of taking food in his pockets made the wardrobe department sew his wizard robe’s pockets (that used to be huge) after the filming of Harry Potter and the Prisoner of Azkaban. The actor admitted that it was true, and he also mentioned that other actors followed his example too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148527.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. There was no cellphone signal during the filming of The Revenant. The Revenant director, Alejandro Iñárritu, decided to film in the remote parts of Alberta, Canada to bring as much authenticity to the movie as possible. This came with a set of challenges, including extremely cold weather, no cellphone signal, and even wild bears. However, it all paid off when the movie got a number of awards, including 3 Oscars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148529.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well I guess heating wont be an issue. But maybe invest in some carpets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sean Bean had to tape the script to his knee while filming The Fellowship of the Ring. As the director of the Lord of the Rings franchise, Peter Jackson, has mentioned, the movie scripts evolve, even into the production stage, and this sometimes leads to the necessity for actors to rapidly learn their new lines. Once, the team revised actor Sean Bean’s character’s speech right before the shoot, but he found a clever way out — he just taped the text to his knee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148530.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. An Encanto song was recorded by Stephanie Beatriz while she was in labor.  Stephanie Beatriz revealed in an interview that while she was recording her solo song, “Waiting on a Miracle,” from the movie, Encanto, she started to go into labor. The actress didn’t tell anyone about it because she didn’t want them “to freak out.” The Brooklyn Nine-Nine star gave birth to her first child, Rosaline, the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148531.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Rosie Huntington-Whiteley lost her eyelashes while filming Mad Max: Fury Road. In the process of filming Mad Max: Fury Road, Rosie Huntington-Whiteley had to wear a full-body cast that got into her eyelashes. When the props team took it off, they accidentally pulled all of her lashes out. As a result, the actress had zero lashes for 3 months.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148532.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Tobey Maguire repeated the catching scene in Spider-Man 156 times. It’s hard to imagine, but the catching scene in 2002 Spider-Man was filmed without the use of CGI. When Mary Jane slips, Peter Parker is there to save both her and her lunch by catching everything in the air. It seems impossible without supernatural abilities or at least some green screen movie magic, but actually, actor Tobey Maguire caught everything only with the help of glue, and it took him 156 takes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148533.png" style="width:100%"><br>
+<span style="font-size:4em">9. Which is harder? Building pipes or moving some bricks?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “The world’s loneliest dog” got adopted thanks to a promised role in Transformers 5. The dog named Freya got the nickname of “the world’s loneliest dog” after spending 6 years in the shelter. However, when Michael Bay posted a photo of the “poor pooch” and promised the doggo a role in Transformers 5, she finally found a permanent home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148534.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When Chris Evans’ mom saw her son in Avengers: Endgame, she burst into tears. Chris Evans mentioned in an interview that there was a moment in the Avengers: Endgame movie that made his mom, Lisa Capuano, very emotional. It wasn’t anything in the script, but the time when an aged Steve Rogers appeared on the screen. The actor said it was because he looked exactly like his late granddad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148535.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Matrix code is actually sushi recipes. If you’ve watched The Matrix, you probably have a number of associations with it, one of which can be lots and lots of green characters in numerous rows of code that looked very mysterious and futuristic. The mystery is no more, as the creator of The Matrix code revealed that the characters make up sushi recipes from his wife’s cookbooks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148536.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. That plug looks about right</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Thats not a fire hazard at all</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. God forbid you look out the window</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A new kind of door stopper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147703.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Just how the ancient Persians imagined it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Well that problem could be a bit of a stinker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87147712.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">28 Fresh Pics and Memes For Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. Could someone actually be thus stupid? Yes, yes they could. So imagine youre sitting at a table, and you have two options, one option is free money, the other is a book. You take the money. No questions asked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147638.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. We see, brother, we will see. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147634.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Hmm, thats a great year. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147635.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. When trying to sell a mirror, and you cant not be in the frame. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147637.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I promised babe, Ive changed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147633.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147639.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Thatll show them! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147640.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147643.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Oh is that for me? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147644.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147645.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147646.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Aww he is so damn cute, whats his name? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147642.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147647.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. What is going on here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147648.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147649.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147650.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147652.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147653.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. You wouldnt understand. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147654.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147655.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147656.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147657.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147658.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Is this Jiminem here in the room with us? Yes? What is he saying? Dont worry, he cant hurt you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147659.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Seagulls think theyre higher up on the food chain than they actually are. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147660.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147661.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87147662.jpeg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">British Memes and Pics Confirming What Americans Already Knew</a><br>
+
+<span style="font-size:4em">1. They even have their own version of dad jokes. Bangers & Mash.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012843/87148814/banger.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is the positive vandalism we love to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012844/87148815/bike.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. You know this has had to happen at least one time before.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012854/87148816/cabbage.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh America. Known for their A1 sauce, macaroni and cheese, and a f*ckton of sugar!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012855/87148817/American.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Its funny because its always cloudy and raining in Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012906/87148818/clouds.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Honestly kudos to England for being the only country to get The Killers to record their national anthem.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012917/87148819/clubs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Were only gonna say it once, PUT THAT SH*T BACK.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012951/87148824/moon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Are we sure this wasnt taken in Florida? This feels like a Florida thing.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012928/87148820/gobble.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Get it? Because copper is both a color tone and a nickname for the police in Great Britain.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012940/87148822/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Dude, thats a heck of a deal!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012950/87148823/harry.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Is this animal abuse yay or nay? Hes dragging that thing a little too hard.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013001/87148825/pet.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My guy is absolutely gutted. Just look at his eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013002/87148826/salmon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I AM A FREE I AM NOT MAN A NUMBER.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013012/87148827/sign.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Damn dude. Who hurt you- Oh, nevermind. I see.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/012937/87148821/debbi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Come on, people. You had one job to do.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013013/87148828/stop.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That word means something TOTALLY different over there.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013023/87148829/store.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The best name for a restaurant doesnt exis-</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013025/87148830/titanic.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. People overseas swear a hell of a lot more than we do in the States.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013034/87148831/together.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Its all fun and games until the tube snatches your arm and takes you on a ride.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/013046/87148833/tube.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Please. For the love of God. Stop stealing everything.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/021934/87148921/tower.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">15 Survival Tips for Your First Week in Prison</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115247/87148708/prison-tips-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115226/87148706/prison-tips-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/120312/87148711/prison-tips-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> Dont start sh*t and keep to your own. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115237/87148707/prison-tips-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/115248/87148709/prison-tips-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114847/87148703/prison-tips-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114829/87148700/prison-tips-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114825/87148699/prison-tips-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114836/87148701/prison-tips-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> As a supervisor in a level 4 prison... Dont put yourself in ANY kind of debt EVER. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/114840/87148702/prison-tips-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/101023/87148694/prison-tips-11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/04/19/101028/87148695/prison-tips-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87148693.jpg" style="width:100%"><br>
 
