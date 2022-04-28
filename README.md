@@ -1,49 +1,83 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/28/2022-11:11:31
+Last updated: 04/28/2022-12:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Throwback Companies That We Miss More than Our Ex</a><br>
+## <a href="#linky2" id="linky1">16 Amazing Historical Photos Colorized</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/050950/87155279/ames.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A Giant in the year 1905 enjoying a beer in a tavern</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155248.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/050954/87155280/blockbuster.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A crowded beach in Atlantic City photographed in 1908.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155247.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051002/87155281/bonton.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Boxing aboard the U.S.S. New York in 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155249.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051027/87155286/DZ.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Lt. “Dick” Winters during training at Camp MacKall – 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051013/87155283/boscovs.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Leon Trotsky, Frida Kahlo, Natalya Sedova, Mexico, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051024/87155285/borders.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Joseph Stalin, Franklin D. Roosevelt and Winston Churchill, during the first ‘Big Three’ Conference, November 1943.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051016/87155284/chichis.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Phone in the trench, 1915, WW1, 4th battery of the 10th Artillery Brigade of the Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051038/87155288/ebgames.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Coney Island, New York, 1903</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051046/87155289/hills.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Actress Brigitte Helm having a break in costume on the set of the 1927 Fritz Lang film ‘Metropolis’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051049/87155290/fye.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Theodore Roosevelt, photographed in 1898 during the Spanish-American War while he was a Colonel in the “Rough Riders” 1st United States Volunteer Cavalry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051035/87155287/circuit.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. People at Daytona Beach in Flordia, United States in 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051057/87155291/italian.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. US 17th Airborne Paratroopers, with their hair cut in Mohawk-style, being briefed for the next day’s Jump across the Rhine, Arras, France. March 23, 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155258.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051114/87155294/kaufmann.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. American troops on board a landing craft heading for the beaches at Oran in Algeria during Operation ‘Torch’ in November 1942.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051005/87155282/aladdin.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. World War I chain mail face mask worn by a French Tank gunner. It is designed to help protect the crewmember’s face from shrapnel when looking through the view ports. October 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051118/87155295/kaybee.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The busy Main Street in Sheridan, Wyoming photographed by Farm Security Administration photographer Marion Post Wolcott in August 1941</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051126/87155296/kmart.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. J. Robert Oppenheimer and Albert Einstein, 1947</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155262.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051129/87155297/mediaplay.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">20 Abandoned Things That Were Lost and Found</a><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051137/87155298/moes.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044926/87154177/church.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051140/87155299/Montgomery.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044929/87154178/classic.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051149/87155300/radioshack.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044938/87154179/ballroom.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">22 Cringe Pics Full of Sadness</a><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044940/87154180/creepy.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044949/87154181/cottage.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044951/87154182/helix.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045043/87154188/radioshack.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154183/hotel.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154184/missile.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045012/87154185/piano.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045023/87154186/race.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045034/87154187/remains.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045046/87154189/ship.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045055/87154190/steamengine.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045057/87154191/tank.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045106/87154192/track.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045108/87154193/skate.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045121/87154195/wheel.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045117/87154194/village.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045129/87154196/VW.png" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">22 Cringe Pics Full of Sadness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153782.jpg" style="width:100%"><br>
 
@@ -88,50 +122,6 @@ Last updated: 04/28/2022-11:11:31
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153787.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153788.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">21 Fun Facts That Seem Fake but Aren’t</a><br>
-
-<span style="font-size:4em">1. Allan, Kens Buddy was a real doll that Mattel created.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010221/87155141/allan.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. These bikes actually exist in a few McDonalds restaurants in China.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010227/87155142/bikes.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Book burnings in 1933 and 2022 respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010238/87155144/books.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Fucking was a real village until they changed their name to Fugging.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010244/87155145/fug.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Glass Frog.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010250/87155146/glassfrog.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Well this is terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010255/87155147/goose.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bill Gates real mugshot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010232/87155143/billgates.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. I cant imagine how bad this thing smells.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010301/87155148/jock.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Hole drilled by the Mars Curiosity rover.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010307/87155149/hole.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. This 80s McDonalds.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010319/87155151/mac.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. This real sign in Alberta.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010325/87155152/moose.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Three soldiers survived underwater in a ship hull for 16 days after the Pearl Harbor attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010330/87155153/pearl.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. The one and only, Penis Snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010336/87155154/penis.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Larvae infestation in a gardeners eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010314/87155150/maggot.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Yup, theyre real.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010341/87155155/pork.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. YIKES.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010348/87155156/pox.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. So much ramen!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010352/87155157/ramen.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Magnified seawater.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010359/87155158/seawater.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Magnified puncture from a tattoo/ink gun.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010405/87155159/skin.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Golden Orb Spider silk cape/dress.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010411/87155160/spidersilk.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. A young Teddy Roosevelt was indeed looking over Abe Lincolns funeral.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010416/87155161/teddy.png" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
@@ -331,7 +321,439 @@ Last updated: 04/28/2022-11:11:31
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87154147.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">11 Foods That Can Be Quite Dangerous and Even Deadly</a><br>
+## <a href="#linky7" id="linky6">21 Fun Facts That Seem Fake but Aren’t</a><br>
+
+<span style="font-size:4em">1. Allan, Kens Buddy was a real doll that Mattel created.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010221/87155141/allan.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. These bikes actually exist in a few McDonalds restaurants in China.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010227/87155142/bikes.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Book burnings in 1933 and 2022 respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010238/87155144/books.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Fucking was a real village until they changed their name to Fugging.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010244/87155145/fug.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Glass Frog.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010250/87155146/glassfrog.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Well this is terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010255/87155147/goose.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bill Gates real mugshot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010232/87155143/billgates.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. I cant imagine how bad this thing smells.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010301/87155148/jock.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Hole drilled by the Mars Curiosity rover.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010307/87155149/hole.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. This 80s McDonalds.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010319/87155151/mac.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. This real sign in Alberta.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010325/87155152/moose.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Three soldiers survived underwater in a ship hull for 16 days after the Pearl Harbor attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010330/87155153/pearl.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. The one and only, Penis Snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010336/87155154/penis.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Larvae infestation in a gardeners eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010314/87155150/maggot.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Yup, theyre real.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010341/87155155/pork.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. YIKES.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010348/87155156/pox.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. So much ramen!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010352/87155157/ramen.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Magnified seawater.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010359/87155158/seawater.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Magnified puncture from a tattoo/ink gun.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010405/87155159/skin.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Golden Orb Spider silk cape/dress.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010411/87155160/spidersilk.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. A young Teddy Roosevelt was indeed looking over Abe Lincolns funeral.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010416/87155161/teddy.png" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">29 Situations That Were Total Disasters</a><br>
+
+<span style="font-size:4em">1. Hopefully her husband or boyfriend wasnt the one who hung that cabinet because if he was, hes never going to hear the end of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is what happens when you dont invest in professionals to handle the infrastructure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh hell no. Id have to move. End of story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. How can you even use a computer in this condition?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When you finally get to take your lunch break and then this happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131597.gif" style="width:100%"><br>
+
+<span style="font-size:4em">18. Well, I guess Im not going anywhere today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131603.gif" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I guess the bird thought you needed a little a extra protien.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. When the Hibachi chef gets a little too excited while making the flaming volcano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131599.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">25 Pieces of ‘Life Advice’ That Are Total Bullsh*t</a><br>
+
+<span style="font-size:4em">1. Pretty much anything about what age you have to be to like buy a house, have kids, get married, have a career or anything like that. Seriously every person lives a different life than everyone else. Live your life the way that makes you happy. If you want. Up to you. -u/Ginger-Beefcake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. But they are family! I didnt know being related stopped people from being a**holes. On the flip side, if were family, why are you treating me like sh*t in the first place? -u/KaiJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Money doesnt bring happiness. Maybe not but with it, I can pursue the things that make me happy. -u/creekupwood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Kill them with kindness. F*ck that, sometimes a person needs to be told what’s up. -u/Jimwish32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Cheaters never prosper.” Yes they f*cking do. -u/Quadric0rn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Live every day as if its your last. No. That encourages people to keep up all kinds of terrible habits because YOLO. -u/ErisianMoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154782.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dont be depressed, there are other people doing worse than you. Thanks, I know that and try to help them sometimes. But that wont help my depression leave just because I compare myself to other people having a worse life than me. -u/Scarmaster21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Telling people Its all in your head. -u/my_gender_is_a_glock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “What doesn’t kill you makes you stronger.” Nope— not true. Some things leave you permanently changed, and not always for the better. Yes, it is possible (and oftentimes a good thing) to try and find silver linings regarding crummy situations. But to completely ignore how something may hurt someone is absolutely foolish. -u/itsgoodpain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Ignore the bullying and it will go away.” Like wtf is that logic? If you are actively letting bullying happen to you it will only get worse (in my experience.) -u/kianstartedskating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Youre not married because youre too picky. So Im supposed to settle just so I can be married? You better believe Im going to be picky when it comes to the person Im going to interconnect everything with for the rest of my life. In fact, I know more married people that are in unhappy marriages because they werent picky enough. Better to be single than with the wrong person. -u/CamaroNoir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154786.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Never settle. Reach for the stars.” Sometimes knowing your limits is a good thing. Otherwise you may refuse something good because you’re trying to get something that’ll never be possible. -u/macaronsforeveryone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Do what you love” and its close cousin “Follow your dreams. The best counter advice or aphorism I ever got was from a former boss: “Work is work. If it were fun, they’d call it something else.” -u/gorillamagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anything involving the idea of “soulmates” can really set you up for a big fall. -u/FishingOk3283</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Just get over it. Most people would if they could. -u/AJSK18</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Everything happens for a reason. Tell that to a mother who lost her son to a drunk driver. -u/XizaanxvMohX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Never go to bed angry. When youre tired and cranky, thats not the best time to solve your problems. Get some sleep, clear your head, and talk about it in the morning. Preferably after breakfast, so youre not hangry. -u/Forsaken-Economy-416</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Any husband advice that means he just lays down and rots as long as it keeps his wife from whining. Happy life happy wife. If youre right and she’s wrong, she’s right.  F*ck that advice so hard. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Telling people they are beautiful on the inside does more to convince people that beauty is important than it will convince them that they are actually beautiful. If someone is beautiful on the inside because of their compassion, just call them compassionate. -u/Black-Thirteen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The customer is always right. I dont work retail or anything, but whenever I go shopping, I see a lot of customers verbally abusing store associates. Its terrible. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You can grow up and be whatever you want. -u/SenpaiGandalf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hard work = success. -u/IamJeffreyW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. That going to college will “guarantee you a high paying job. I heard that sh*t all my childhood and it just absolutely is not always true. Trade school degrees that are way cheaper can pay more and give you a better chance at a job. Wish someone would have told me this 15 years ago. -u/Minion0827</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. No pain, no gain. Sometimes sh*t hurts and you should see that as a sign to back off or get some help. -u/fullchargegaming</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Respect your elders.” F*ck that. You’re not entitled to my respect just because you’re old. If someone expects me to treat them with respect, they should at least be respectful as well. -u/thenexthefner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154801.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">18 People Who Did Something Stupid</a><br>
+
+<span style="font-size:4em">1. Whos Gonna Tell Her?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My Sister Went To Paris And Saw Sean Connery Taking Pictures With All These People. She Muscled Her Way In And Asked For A Photo, All Pleased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Team Said We Were Dressing As Dominoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. You Have To Remove The Protective Coating. Please Can Someone Shut Down The Internet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I Did Not Order A Concrete Driveway Or Any Other Type Of Driveway. When The Person That Laid It Came Back To See If I Was Happy With The Job, He Realized It Was The Wrong Address</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I Have Been Buying Bay Leaves When Theres A Bay Tree Outside My Front Door. Ive Lived Here For Over A Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A Customer Called Asking If We Were Practicing Social Distancing With Her Sandwiches. I Told Her We Are, But To Be Honest Guys Im Running Out Of Space</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Was At My Kid’s School For A Costume Parade. One Dad Misunderstood In The Best Way Possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152133.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">24 Shocking “Last Thoughts” From People Who Nearly Died</a><br>
+
+<span style="font-size:4em">1. I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911.I kept thinking “is this really happening? F*ck, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154200.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke, and woke up a week later in the ICU. Wouldnt have been a bad way to go out, actually.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154201.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this - I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didnt say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought Wow, Im going to find out what its like to die in an airplane crash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I have a calculus exam in four hours, I should be sleeping while my body shut down from hypothermia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Oh this is gonna f*cking suck” as a car missed me by inches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When did the train get so close!!!!Almost got hit by a train.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bleeding out after tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital, my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Where is he.”For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time.I was rushed to surgery and he was there when I woke up thankfully</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I thought I had more time……to tell people I loved and appreciated them. That is no longer going to be my last thought - proud to say.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I just felt really tired and was confused about why the doctor was yelling at me to look at him and breathe. He was just figuring out that they’d jabbed an artery during my hysterectomy while I was in the recovery unit post-op. Everything just felt cold and my vision was going dark, but that was because of the tremendous amount of blood I’d lost. I didn’t see any bright lights or god, but I also didn’t see any fire and brimstone either.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I told my wife I love you and then the doctor asked me if I took a whole or just a baby aspirin and I said tell her I love her and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Its gonna make me sound like a lunatic, but I just laughed to myself, paramedics said I was laughing when I came back from it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700’s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f*cking way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 40/30 is really low blood pressure</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “He’s not going to stop. He’s going to kill me”Was “wrestling” with a guy. We were on LSD. He started to choke me, other people were laughing. I could not breathe in air to speak. And he kept going until I saw stars and blacked out. Never play fought with anyone ever again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Im going to die and Im not even going to take the deer with me.They tell you not to swerve when an animal jumps in front of your car and its better to just hit it, but its a really hard thing to follow.As a fun bonus, insurance covers you hitting an animal, as its a moving object, but not the freeway divider you slammed into while avoiding the deer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My last thought when I knew I would live was-One day this will happen, and I wont be able to stop it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. If this doesnt kill me, its gonna really hurt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I almost died on a cheese stick. It was F**** I can’t breathe I need to get the cheese out or I’m going to pass out and die. (I was alone )</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. God, I hope he remembers to feed the dog.Was living with my ex at the time and the primary caretaker for his dog. I was also mildly suicidal so I was much more concerned whether the dog was gonna be okay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154222.jpeg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">21 Pics Filled With Cringe</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155328.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">20 Throwback Companies That We Miss More than Our Ex</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/050950/87155279/ames.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/050954/87155280/blockbuster.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051002/87155281/bonton.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051027/87155286/DZ.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051013/87155283/boscovs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051024/87155285/borders.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051016/87155284/chichis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051038/87155288/ebgames.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051046/87155289/hills.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051049/87155290/fye.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051035/87155287/circuit.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051057/87155291/italian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051114/87155294/kaufmann.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051005/87155282/aladdin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051118/87155295/kaybee.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051126/87155296/kmart.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051129/87155297/mediaplay.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051137/87155298/moes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051140/87155299/Montgomery.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/051149/87155300/radioshack.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">32 Stupid Rules That Backfired Epically</a><br>
+
+<span style="font-size:4em">1. My company has a strict no-alcohol policy. You cant begin work within 10 hours of having had a drink.
+
+So whenever theres a staff shortage and they need me to come in right away, guess who just cracked open a cold one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. One summer in Sweden, bus drivers in some counties started wearing shorts due to the heatwave. After being denied to continue doing so by management, they started wearing skirts instead. Dress code policy had banned shorts, but not skirts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. When a daycare started charging a small fine for parents who picked up their children late. Instead of resulting in more on-time arrivals, the new policy actually caused more late pick-ups. This is because the parents were originally worried that a late pick-up would be a significant burden on the daycare employees, but because the fine was so small (only a few dollars), they decided that it must not be a big inconvenience for the daycare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. One of the high-rise blocks I have to maintain has a sign saying Anything left here will be removed due to it being a fire risk. People just dump the s**t there they dont want like fridges and sofas and by law, we have to take it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The previous school I worked at decided that all shirts needed to have the school name or emblem (which was a fancy letter E) on them to be dress code appropriate. Thats all the handbook said. No clarification on how the name or emblem was designed or the color or if it had to be permanently affixed to the clothing. The students hated the policy and, being in high school, looked for any loophole possible. They found one due to the lack of clarity of the handbook policy. The kids would make paper Es and pin them to their shirts. Thus, they could wear whatever they wanted and by pinning the E to the shirt, were still dress code compliant. I thought it was pretty genius. The administration did not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My work has an infraction system. If youre a minute late thats half a point, if youre up to four hours late thats half a point. So if youre going to be a minute late you might as well be four hours late because its the same penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The middle school wanted to create a trash-free environment so they removed the trash cans from the parking lots, halls, and cafeteria. Then just told the kids to toss your trash when you get home or in a classroom
+
+The amount of litter skyrocketed overnight, after a week or so they brought back the cans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Air pollution became a big problem in late-80s/early-90s Athens, mostly due to the number of old, heavily-polluting cars on the roads. So the Greek government made a law where only cars with odd-numbered final digits on their number plates (1, 3, 5, 7, and 9, etc.) could be driven on odd-numbered days (1st, 3rd, 5th, etc.)- and only evenly-numbered cars could drive on evenly-numbered days. Sounds great doesnt it, theyll halve the number of cars on their roads right - nope, they doubled it - everyone bought one old, highly-polluting car that had an odd-numbered plate and another with an even-numbered plate - nobody could park and the air was worse than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In French Indochina, there was a major problem with rodents eating supplies and bringing disease. Given the plentiful supply of cheap unemployed workers, the colonial authorities thought they could be used to kill the rats and bring their numbers down. The French had a somewhat racially prejudiced view of the work ethic of the locals, so decided to pay them per rat killed rather than per hour worked. Each was compensated for every dead rat they handed over.
+
+A year or so later, the colonial authorities discovered the peasants had set up rat-breeding farms in the jungle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Zero Tolerance Policy for no violence at school. Punishing the victims for getting bullied... yea, THAT was a smart idea...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When Domino’s said all pizzas would be delivered in 30min. or less or your pizza was FREE.
+
+All the delivery drivers kept getting in car accidents to get your pizza to you on time, so it wouldn’t come out of their paycheck. It was a short-lived venture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Brazil in the 1980s (I think) had a massive debt problem, which they tried to solve by simply printing a bunch more money.
+
+Any economist worth their salt would have told Brazil that would cause massive inflation, and thats exactly what happened. People found their life savings were barely enough to buy groceries for a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My city has issues with loud bikes/vehicles. So as a deterrent, the city put up decibel meters that displayed how loud your engine is(similar to those signs that read your speed and display it to you) but instead of deterring anyone, people would pull up to these signs and rev the heck out of their engines to see who could get the highest decibel count. The city took the counters down within a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. During prohibition, the US Government decided to add poison to industrial alcohol as a deterrent to people drinking it since booze was illegal. Except they didn’t tell anyone that they were doing it... so the public had no idea there was poison in the alcohol. AT LEAST 10,000 people passed away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I worked at Macy’s one Christmas and found out the reason why you can never find anyone at the registers is that they don’t allow employees to stand at the register because it’s “intimidating.” I can’t tell you how many times I gave up trying to purchase something there because I couldn’t find anyone to ring me up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Washington State made it mandatory for schools to drop their room temperatures to save on electricity. The result: teachers brought their own heaters into their offices and the use of electricity increased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Dry Counties were meant to reduce the use of alcohol in certain areas, but they result in people who want to get drunk driving further away from home to do so, increasing the odds and frequency of drunk driving accidents. Also, many attempts to rescind dry county laws end up getting countered by campaigns paid for by the bars and liquor stores that are set up on the edge of dry counties, typically under the guise of religious messages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Worked for a warehouse four days a week. 11am-930pm Monday to Thursday. They reiterated many times during the interview process that overtime was optional. My first day my supervisor told me that overtime is indeed optional, but if you dont stay for overtime then everybody else has to stay even later. So if you do leave on time, dont come back.
+
+Eh whatever. I didnt mind the extra hours too much (although a 10.5 hour shift is already long) but the bonus was that we could go early if all the orders were done. As you can imagine, the good workers busted their a** from start to finish cutting as many corners (good and bad ones) as they could in order to get out early. Normally this ended up with us being able to leave around 15 mins early or on a really good day where the stars aligned (re:everybody showed up), we could leave as early as 7:30 or 8. However.. leaving that early only happened once or twice a year at most.
+
+Overtime was every week. Every single Monday we would work until 2am. 11am-2am isnt ideal when you have no idea when youre off. At around 7pm wed start to get an idea if were in for another hour or another 6. One of the genius new hires mentioned to the boss in the office how he was hoping to get out by 6. Oh good. Apparently the boss was thinking us leaving early was a common occurance now and decided that nobody was going to be leaving early any more. Sweep or dust or whatever, but nobody leaves until 9:30.
+
+All of a sudden we were late every single day without fail. Why? We were working our asses off to get out early but failing every day and ending up on time (or still late). By taking away our ability to leave early, everybody gave up working hard. Slow down! Weve got another hour left anyways. Im not sweeping.. Went from about 45 hours a week to 55. 13 hours every day. Nobody ever left early anymore... but nobody left on time either. Losses for everybody involved because the boss didnt realize that us leaving early for 2 days out of a year actually gave us the daily motivation to work our asses off the other 360~.
+
+tl;dr Boss put a stop to leaving early. No incentive to work our asses off anymore means paying overtime every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The infamous housing project Pruitt-Igoe had a policy of supplying housing to single mothers. However, if they stopped being single they would lose their tenancy to their homes. This meant that fathers or step-fathers of children in these poor homes had to stay away. Pruitt Igoe is a legendary social disaster and it was demolished after twenty years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. At one point in history, the president of Paraguay tried to eliminate racism by making it illegal to marry someone within your own ethnic group.
+
+Needless to say, this was quite racist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You have to eat whatever you touch was a rule in my kindergarten which led to all the children touching all the food to call dibs on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A Buddy of mine told me about a Happy Hour promotion a bar ran close to his campus. Apparently the special was something stupid like 50-cent beers that lasted until the first person went to the bathroom.
+
+As he tells it, the first few weeks went without incident, but once it got more popular, people were going to extreme lengths to not be that guy including wearing adult diapers. Once people tried to covertly pee in corners and trash cans, the bar cancelled the promotion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I worked somewhere with a clean desk policy on Friday afternoons. The common way around this was that everyone would just sweep all their paperwork into an envelope, stick it in the internal mail, and then it would arrive back on your desk on Monday morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The one-child policy in China has led to a serious gender imbalance in the population.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. My institute banned p**n sites from its WiFi. Most people werent tech-savvy enough or bold enough to ask how to bypass it. Then the institute banned Facebook. Everyone learned to use proxy in a matter of days.
+
+Lets just say the servers were under heavy pressure from then onwards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. In Kenya, our governor in Nairobi banned public transport from getting to town so people had to walk long distances to work. And since we don’t have enough pavements, people ended up walking on the roads (like 3000) and there was a traffic jam that lasted for more than 5hrs. The next day the ban was removed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Alcohol bans at college football games have led to increased intoxication problems because fans are loading up before going to the stadium.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. The military used to have a 2 beer lunch rule...they never specified the size of the beers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. When I worked for immigration, some bright spark decided that we werent going to remove people who had been caught smuggling drugs from certain countries. They believed it was too risky to deport people, who had failed to complete their jobs, back to pissed off gangs.
+
+News traveled quickly and within a few weeks, there was a huge spike in smuggling. People were smuggling drugs and immediately handing themselves over to authorities to guarantee that they wouldnt get deported. In addition, dealers found it much easier to convince people to attempt to smuggle drugs because it was a win-win for all parties. The whole idea was scrapped pretty quickly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. No cards game at school
+
+When I was in elementary/middle school Magic The Gathering and the Pokemon card game were pretty popular. Almost all of the guys played and would get together after lunch to play before classes started again.
+
+Here is where its important for me to mention that this was a Christian school. It probably didnt take long for a teacher, administrator, or helicopter parent to wonder what all the fuss was about. Sure enough, one of them probably got a hold of an MTG card, saw art depicting a demon, and decided that this had to be the work of Satan to warp our young minds.
+
+Almost over night, all trading card games were banned from school. Any cards would be confiscated until the end of the school year.
+
+Well, you now have several dozen pre-pubescent boys with about 30 minutes of free time and nothing to do. So we did boy s**t. Ran around, pushed each other, went places we werent supposed to, just overall got into mischief. All this time they had a free babysitter that was keeping us all engaged, quiet, and civil, all while reinforcing quick math skills and teaching multi-level problem-solving.
+
+The next year we got a new administrator and card games were allowed at school again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The school I go to has a rule that says if you come late 3 times, you get an unjustified absence, which lowers your grade quite a bit. So if someone is late they pretty much always skip class so they can get an absence that can be justified by simply signing it...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. At my old job, some people abused lunch so they made a few of em text in when they started and finished lunch. One guy specifically would text the start time, a place he got food, his order in detail, the address, price, etc. Even when he bought a snack while out. That stopped a week later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153678.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">11 Foods That Can Be Quite Dangerous and Even Deadly</a><br>
 
 <span style="font-size:4em">1. Fugu. A Japanese delicacy, this blowfish requires special training to properly handle and people still die every year from its consumption.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152627.jpg" style="width:100%"><br>
 
@@ -355,197 +777,7 @@ Last updated: 04/28/2022-11:11:31
 
 <span style="font-size:4em">11. Monkey brains. Consumption can lead to a degenerative brain disease. Ironic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152636.gif" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 Things That Are Absolute Units</a><br>
-
-<span style="font-size:4em">1. Wolf Eel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Vietnamese Street Vendor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This Is One Of The Biggest Personal Weapons Used By Man, The Punt Gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Although Many Are Ignored (Especially In The Third World), There Are Good Artists Everywhere. -Kumi Samuel. Ghana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Chief Of Police</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Absolute Unit Of A Snow Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. We Met Poncho Via, The Longest Longhorn To Ever Longhorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Absolute Unit Of A Toad!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An Absolute Unit Of A Bat (5 Foot 5)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This Bunny Has An Absolute Unit Of An Ear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Absolute Unit Of A Horse!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Absolute Unit Of A Sculpture. Senegal Renaissance Monument</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Komodo Dragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Quartz Crystal Cluster On Display In A Museum In Namibia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The Tallest Mallard Duck To Have Ever Lived Known As Long Boi. He Lives On The Campus Of The University Of York, England. He Stands Just Over 1m Tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. The Worlds Oldest Bonsai Tree - Over 1000 Years Old</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Ukranian Antonov An-225 Mriya - Worlds Largest Aircraft Destroyed By Russian Invaders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This Absolute Unit Of A Baobab Can Hold 120.000 Liters Of Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Unit Of An Iceberg Passing By Newfoundland, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This Absolute Unit Of Statue Of Siva In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. C H O N K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This Eagle Seen In Alberta, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Jeff Dabe, A Competitive Arm Wrestler, Has The Biggest Recorded Ring Size, With His Finger Measuring 4.78 Around</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Gigantic Couch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Gorilla Hand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. These Bananas My Wife Got At The Store</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. The White House Chef Is An Absolute Unit And The Last Line Of Defence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Absolute Unit Of A Spider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. This Bottle Of Vodka My Wife Wouldn’t Let Me Buy…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Crewmembers Standing Inside The Cargo Hold Of An Lng (Liquiid Natural Gas) Tanker....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154834.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">16 Celebrities at the Beginning of Their Careers and Today</a><br>
-
-<span style="font-size:4em">1. Keanu Reeves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Emily Ratajkowski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Robbie Coltrane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Demi Moore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Elle Fanning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Cattrall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Zendaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Andie MacDowell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Anya Taylor-Joy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Sophie Turner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Sandra Bullock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jamie Dornan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gillian Anderson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Frances McDormand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kate Beckinsale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153879.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">20 Abandoned Things That Were Lost and Found</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044926/87154177/church.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044929/87154178/classic.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044938/87154179/ballroom.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044940/87154180/creepy.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044949/87154181/cottage.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044951/87154182/helix.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045043/87154188/radioshack.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154183/hotel.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154184/missile.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045012/87154185/piano.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045023/87154186/race.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045034/87154187/remains.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045046/87154189/ship.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045055/87154190/steamengine.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045057/87154191/tank.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045106/87154192/track.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045108/87154193/skate.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045121/87154195/wheel.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045117/87154194/village.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045129/87154196/VW.png" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">25 Things That Scream TMI</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151686.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">50 Unfortunate Souls Having one Hell of a Bad Day</a><br>
+## <a href="#linky16" id="linky15">50 Unfortunate Souls Having one Hell of a Bad Day</a><br>
 
 <span style="font-size:4em">1. This poor woman’s house burnt down in a flood.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/123516/87155124/87154904.jpg" style="width:100%"><br>
 
@@ -647,305 +879,151 @@ Last updated: 04/28/2022-11:11:31
 
 <span style="font-size:4em">50. “Have you ever put on a pair of brand new Harley boots – & had both heels fall off, within a couple of hours? Well, I have.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152949.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Pieces of ‘Life Advice’ That Are Total Bullsh*t</a><br>
+## <a href="#linky17" id="linky16">25 Things That Scream TMI</a><br>
 
-<span style="font-size:4em">1. Pretty much anything about what age you have to be to like buy a house, have kids, get married, have a career or anything like that. Seriously every person lives a different life than everyone else. Live your life the way that makes you happy. If you want. Up to you. -u/Ginger-Beefcake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154780.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. But they are family! I didnt know being related stopped people from being a**holes. On the flip side, if were family, why are you treating me like sh*t in the first place? -u/KaiJonez</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154777.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Money doesnt bring happiness. Maybe not but with it, I can pursue the things that make me happy. -u/creekupwood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154778.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Kill them with kindness. F*ck that, sometimes a person needs to be told what’s up. -u/Jimwish32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154779.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Cheaters never prosper.” Yes they f*cking do. -u/Quadric0rn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154781.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Live every day as if its your last. No. That encourages people to keep up all kinds of terrible habits because YOLO. -u/ErisianMoon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154782.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Dont be depressed, there are other people doing worse than you. Thanks, I know that and try to help them sometimes. But that wont help my depression leave just because I compare myself to other people having a worse life than me. -u/Scarmaster21</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154788.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Telling people Its all in your head. -u/my_gender_is_a_glock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154783.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “What doesn’t kill you makes you stronger.” Nope— not true. Some things leave you permanently changed, and not always for the better. Yes, it is possible (and oftentimes a good thing) to try and find silver linings regarding crummy situations. But to completely ignore how something may hurt someone is absolutely foolish. -u/itsgoodpain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154784.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Ignore the bullying and it will go away.” Like wtf is that logic? If you are actively letting bullying happen to you it will only get worse (in my experience.) -u/kianstartedskating</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154785.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Youre not married because youre too picky. So Im supposed to settle just so I can be married? You better believe Im going to be picky when it comes to the person Im going to interconnect everything with for the rest of my life. In fact, I know more married people that are in unhappy marriages because they werent picky enough. Better to be single than with the wrong person. -u/CamaroNoir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154786.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Never settle. Reach for the stars.” Sometimes knowing your limits is a good thing. Otherwise you may refuse something good because you’re trying to get something that’ll never be possible. -u/macaronsforeveryone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154787.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Do what you love” and its close cousin “Follow your dreams. The best counter advice or aphorism I ever got was from a former boss: “Work is work. If it were fun, they’d call it something else.” -u/gorillamagnet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154789.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Anything involving the idea of “soulmates” can really set you up for a big fall. -u/FishingOk3283</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154790.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Just get over it. Most people would if they could. -u/AJSK18</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154791.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Everything happens for a reason. Tell that to a mother who lost her son to a drunk driver. -u/XizaanxvMohX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154792.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Never go to bed angry. When youre tired and cranky, thats not the best time to solve your problems. Get some sleep, clear your head, and talk about it in the morning. Preferably after breakfast, so youre not hangry. -u/Forsaken-Economy-416</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154793.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Any husband advice that means he just lays down and rots as long as it keeps his wife from whining. Happy life happy wife. If youre right and she’s wrong, she’s right.  F*ck that advice so hard. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154794.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Telling people they are beautiful on the inside does more to convince people that beauty is important than it will convince them that they are actually beautiful. If someone is beautiful on the inside because of their compassion, just call them compassionate. -u/Black-Thirteen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154795.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The customer is always right. I dont work retail or anything, but whenever I go shopping, I see a lot of customers verbally abusing store associates. Its terrible. -u/yamsnavas2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154796.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. You can grow up and be whatever you want. -u/SenpaiGandalf</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154797.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Hard work = success. -u/IamJeffreyW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154798.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. That going to college will “guarantee you a high paying job. I heard that sh*t all my childhood and it just absolutely is not always true. Trade school degrees that are way cheaper can pay more and give you a better chance at a job. Wish someone would have told me this 15 years ago. -u/Minion0827</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154799.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. No pain, no gain. Sometimes sh*t hurts and you should see that as a sign to back off or get some help. -u/fullchargegaming</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154800.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Respect your elders.” F*ck that. You’re not entitled to my respect just because you’re old. If someone expects me to treat them with respect, they should at least be respectful as well. -u/thenexthefner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154801.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151686.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">24 Shocking “Last Thoughts” From People Who Nearly Died</a><br>
+## <a href="#linky18" id="linky17">30 Things That Are Absolute Units</a><br>
 
-<span style="font-size:4em">1. I was having a heart issue/medication complication which I would find out at the hospital later. I could feel my heart pounding out of my chest but I kept getting weaker and weaker. I fell to my knees and pulled out my phone to dial 911.I kept thinking “is this really happening? F*ck, this is really happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154200.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Wolf Eel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. No last thoughts. Last thing I remember is sitting on the couch watching Friday with my brother and laughing my ass off. Then I had a stroke, and woke up a week later in the ICU. Wouldnt have been a bad way to go out, actually.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154201.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. This Vietnamese Street Vendor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A streetlight fell on the roof of my car after I skidded off an exit ramp and hit it head-on. I didn’t realize that they are intentionally constructed to be lightweight and hollow for instances such as this - I don’t run into lampposts much. My thought as I saw it slowly tilt forward until it came down on my car was literally “Well, I guess I’m going to die”. Then I just waited to for it happen. I didn’t have much time to process anything else. I was relieved when it merely dented my roof and unceremoniously rolled off my car and landed in the grass beside me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154202.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This Is One Of The Biggest Personal Weapons Used By Man, The Punt Gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I was on a commercial jet that caught fire during takeoff. The cabin filled with smoke, the pilot didnt say a word, and the plane suddenly pitched forward as if we were going to nosedive in. I was weirdly calm and just thought Wow, Im going to find out what its like to die in an airplane crash.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154203.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Although Many Are Ignored (Especially In The Third World), There Are Good Artists Everywhere. -Kumi Samuel. Ghana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I have a calculus exam in four hours, I should be sleeping while my body shut down from hypothermia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154204.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The Chief Of Police</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Oh this is gonna f*cking suck” as a car missed me by inches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154205.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Absolute Unit Of A Snow Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. When did the train get so close!!!!Almost got hit by a train.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154206.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. We Met Poncho Via, The Longest Longhorn To Ever Longhorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Bleeding out after tonsillectomy scars came off. As I was lying in the ambulance on the way to the hospital, my thoughts were of my then-fiancee, saying her name three times and telling myself to hang on for her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154207.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Absolute Unit Of A Toad!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I had the most fleeting thought that it would be sad for my parents for me to die on Christmas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154208.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. An Absolute Unit Of A Bat (5 Foot 5)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Mine was that in the moment I thought I knew I was going to die, that ..nothing really mattered aside from my kids being taken care of. Debt, owed and owing, things I hadnt done, places I hadnt seen, none of that mattered. For that short time, it was an incredibly freeing experience, until I realized I was going to make it. Then it also slowly crept back in, the stress, the weight of it all. But I learned at that point, that really, very little in life actually matters, in a good way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154209.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This Bunny Has An Absolute Unit Of An Ear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Where is he.”For context, I was in the hospital and my husband was rushing to get there but he didn’t make it in time.I was rushed to surgery and he was there when I woke up thankfully</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154210.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Absolute Unit Of A Horse!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I thought I had more time……to tell people I loved and appreciated them. That is no longer going to be my last thought - proud to say.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154211.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Absolute Unit Of A Sculpture. Senegal Renaissance Monument</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “I think this water is too deep”. I was 7 or 8 and was walking in the bay and didn’t know how to swim. Walked to a spot where it was over my head and everything went black. I woke up to a lifeguard performing CPR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154212.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Komodo Dragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I just felt really tired and was confused about why the doctor was yelling at me to look at him and breathe. He was just figuring out that they’d jabbed an artery during my hysterectomy while I was in the recovery unit post-op. Everything just felt cold and my vision was going dark, but that was because of the tremendous amount of blood I’d lost. I didn’t see any bright lights or god, but I also didn’t see any fire and brimstone either.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154213.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Quartz Crystal Cluster On Display In A Museum In Namibia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I told my wife I love you and then the doctor asked me if I took a whole or just a baby aspirin and I said tell her I love her and fell over dead. 12 minutes later they got my heart beating. 19 days later when I woke up, my wife was right there holding my hand.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154214.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The Tallest Mallard Duck To Have Ever Lived Known As Long Boi. He Lives On The Campus Of The University Of York, England. He Stands Just Over 1m Tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Its gonna make me sound like a lunatic, but I just laughed to myself, paramedics said I was laughing when I came back from it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154215.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The Worlds Oldest Bonsai Tree - Over 1000 Years Old</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I recently fell twenty-three feet onto rocks. I was climbing a lighthouse built in the 1700’s and was being a little more reckless than I should have when I decided to climb the staircase leading to the top. The stairs could support my weight, but the roof collapsed, dropping me down and collapsing on top of me. As the stairs detached from the ceiling, my “last” thought was “well this is a stupid f*cking way to die.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154216.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Ukranian Antonov An-225 Mriya - Worlds Largest Aircraft Destroyed By Russian Invaders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. 40/30 is really low blood pressure</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154217.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. This Absolute Unit Of A Baobab Can Hold 120.000 Liters Of Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “He’s not going to stop. He’s going to kill me”Was “wrestling” with a guy. We were on LSD. He started to choke me, other people were laughing. I could not breathe in air to speak. And he kept going until I saw stars and blacked out. Never play fought with anyone ever again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154218.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Unit Of An Iceberg Passing By Newfoundland, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Im going to die and Im not even going to take the deer with me.They tell you not to swerve when an animal jumps in front of your car and its better to just hit it, but its a really hard thing to follow.As a fun bonus, insurance covers you hitting an animal, as its a moving object, but not the freeway divider you slammed into while avoiding the deer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154219.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This Absolute Unit Of Statue Of Siva In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. My last thought when I knew I would live was-One day this will happen, and I wont be able to stop it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154198.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. C H O N K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. If this doesnt kill me, its gonna really hurt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154220.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. This Eagle Seen In Alberta, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I almost died on a cheese stick. It was F**** I can’t breathe I need to get the cheese out or I’m going to pass out and die. (I was alone )</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154221.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Jeff Dabe, A Competitive Arm Wrestler, Has The Biggest Recorded Ring Size, With His Finger Measuring 4.78 Around</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. God, I hope he remembers to feed the dog.Was living with my ex at the time and the primary caretaker for his dog. I was also mildly suicidal so I was much more concerned whether the dog was gonna be okay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154222.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Gigantic Couch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154827.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">29 Situations That Were Total Disasters</a><br>
+<span style="font-size:4em">25. Gorilla Hand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Hopefully her husband or boyfriend wasnt the one who hung that cabinet because if he was, hes never going to hear the end of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131613.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. These Bananas My Wife Got At The Store</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131578.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. The White House Chef Is An Absolute Unit And The Last Line Of Defence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This is what happens when you dont invest in professionals to handle the infrastructure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131576.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Absolute Unit Of A Spider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Oh hell no. Id have to move. End of story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131588.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. This Bottle Of Vodka My Wife Wouldn’t Let Me Buy…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131581.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Crewmembers Standing Inside The Cargo Hold Of An Lng (Liquiid Natural Gas) Tanker....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131584.jpg" style="width:100%"><br>
+## <a href="#linky19" id="linky18">16 Celebrities at the Beginning of Their Careers and Today</a><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131586.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Keanu Reeves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. How can you even use a computer in this condition?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131610.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Emily Ratajkowski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131579.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Robbie Coltrane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131590.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Demi Moore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131591.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131580.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Elle Fanning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When you finally get to take your lunch break and then this happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131583.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Kim Cattrall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131593.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Zendaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131594.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Andie MacDowell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131595.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Anya Taylor-Joy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131597.gif" style="width:100%"><br>
+<span style="font-size:4em">11. Sophie Turner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Well, I guess Im not going anywhere today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131577.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Sandra Bullock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131598.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Jamie Dornan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131600.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Gillian Anderson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131602.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Frances McDormand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131603.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I guess the bird thought you needed a little a extra protien.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. When the Hibachi chef gets a little too excited while making the flaming volcano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131599.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">18 People Who Did Something Stupid</a><br>
-
-<span style="font-size:4em">1. Whos Gonna Tell Her?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My Sister Went To Paris And Saw Sean Connery Taking Pictures With All These People. She Muscled Her Way In And Asked For A Photo, All Pleased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Team Said We Were Dressing As Dominoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. You Have To Remove The Protective Coating. Please Can Someone Shut Down The Internet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I Did Not Order A Concrete Driveway Or Any Other Type Of Driveway. When The Person That Laid It Came Back To See If I Was Happy With The Job, He Realized It Was The Wrong Address</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I Have Been Buying Bay Leaves When Theres A Bay Tree Outside My Front Door. Ive Lived Here For Over A Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A Customer Called Asking If We Were Practicing Social Distancing With Her Sandwiches. I Told Her We Are, But To Be Honest Guys Im Running Out Of Space</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Was At My Kid’s School For A Costume Parade. One Dad Misunderstood In The Best Way Possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152133.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">32 Stupid Rules That Backfired Epically</a><br>
-
-<span style="font-size:4em">1. My company has a strict no-alcohol policy. You cant begin work within 10 hours of having had a drink.
-
-So whenever theres a staff shortage and they need me to come in right away, guess who just cracked open a cold one?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. One summer in Sweden, bus drivers in some counties started wearing shorts due to the heatwave. After being denied to continue doing so by management, they started wearing skirts instead. Dress code policy had banned shorts, but not skirts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When a daycare started charging a small fine for parents who picked up their children late. Instead of resulting in more on-time arrivals, the new policy actually caused more late pick-ups. This is because the parents were originally worried that a late pick-up would be a significant burden on the daycare employees, but because the fine was so small (only a few dollars), they decided that it must not be a big inconvenience for the daycare.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. One of the high-rise blocks I have to maintain has a sign saying Anything left here will be removed due to it being a fire risk. People just dump the s**t there they dont want like fridges and sofas and by law, we have to take it</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The previous school I worked at decided that all shirts needed to have the school name or emblem (which was a fancy letter E) on them to be dress code appropriate. Thats all the handbook said. No clarification on how the name or emblem was designed or the color or if it had to be permanently affixed to the clothing. The students hated the policy and, being in high school, looked for any loophole possible. They found one due to the lack of clarity of the handbook policy. The kids would make paper Es and pin them to their shirts. Thus, they could wear whatever they wanted and by pinning the E to the shirt, were still dress code compliant. I thought it was pretty genius. The administration did not.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My work has an infraction system. If youre a minute late thats half a point, if youre up to four hours late thats half a point. So if youre going to be a minute late you might as well be four hours late because its the same penalty.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The middle school wanted to create a trash-free environment so they removed the trash cans from the parking lots, halls, and cafeteria. Then just told the kids to toss your trash when you get home or in a classroom
-
-The amount of litter skyrocketed overnight, after a week or so they brought back the cans.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Air pollution became a big problem in late-80s/early-90s Athens, mostly due to the number of old, heavily-polluting cars on the roads. So the Greek government made a law where only cars with odd-numbered final digits on their number plates (1, 3, 5, 7, and 9, etc.) could be driven on odd-numbered days (1st, 3rd, 5th, etc.)- and only evenly-numbered cars could drive on evenly-numbered days. Sounds great doesnt it, theyll halve the number of cars on their roads right - nope, they doubled it - everyone bought one old, highly-polluting car that had an odd-numbered plate and another with an even-numbered plate - nobody could park and the air was worse than before.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In French Indochina, there was a major problem with rodents eating supplies and bringing disease. Given the plentiful supply of cheap unemployed workers, the colonial authorities thought they could be used to kill the rats and bring their numbers down. The French had a somewhat racially prejudiced view of the work ethic of the locals, so decided to pay them per rat killed rather than per hour worked. Each was compensated for every dead rat they handed over.
-
-A year or so later, the colonial authorities discovered the peasants had set up rat-breeding farms in the jungle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Zero Tolerance Policy for no violence at school. Punishing the victims for getting bullied... yea, THAT was a smart idea...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. When Domino’s said all pizzas would be delivered in 30min. or less or your pizza was FREE.
-
-All the delivery drivers kept getting in car accidents to get your pizza to you on time, so it wouldn’t come out of their paycheck. It was a short-lived venture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Brazil in the 1980s (I think) had a massive debt problem, which they tried to solve by simply printing a bunch more money.
-
-Any economist worth their salt would have told Brazil that would cause massive inflation, and thats exactly what happened. People found their life savings were barely enough to buy groceries for a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My city has issues with loud bikes/vehicles. So as a deterrent, the city put up decibel meters that displayed how loud your engine is(similar to those signs that read your speed and display it to you) but instead of deterring anyone, people would pull up to these signs and rev the heck out of their engines to see who could get the highest decibel count. The city took the counters down within a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. During prohibition, the US Government decided to add poison to industrial alcohol as a deterrent to people drinking it since booze was illegal. Except they didn’t tell anyone that they were doing it... so the public had no idea there was poison in the alcohol. AT LEAST 10,000 people passed away.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I worked at Macy’s one Christmas and found out the reason why you can never find anyone at the registers is that they don’t allow employees to stand at the register because it’s “intimidating.” I can’t tell you how many times I gave up trying to purchase something there because I couldn’t find anyone to ring me up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Washington State made it mandatory for schools to drop their room temperatures to save on electricity. The result: teachers brought their own heaters into their offices and the use of electricity increased.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Dry Counties were meant to reduce the use of alcohol in certain areas, but they result in people who want to get drunk driving further away from home to do so, increasing the odds and frequency of drunk driving accidents. Also, many attempts to rescind dry county laws end up getting countered by campaigns paid for by the bars and liquor stores that are set up on the edge of dry counties, typically under the guise of religious messages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Worked for a warehouse four days a week. 11am-930pm Monday to Thursday. They reiterated many times during the interview process that overtime was optional. My first day my supervisor told me that overtime is indeed optional, but if you dont stay for overtime then everybody else has to stay even later. So if you do leave on time, dont come back.
-
-Eh whatever. I didnt mind the extra hours too much (although a 10.5 hour shift is already long) but the bonus was that we could go early if all the orders were done. As you can imagine, the good workers busted their a** from start to finish cutting as many corners (good and bad ones) as they could in order to get out early. Normally this ended up with us being able to leave around 15 mins early or on a really good day where the stars aligned (re:everybody showed up), we could leave as early as 7:30 or 8. However.. leaving that early only happened once or twice a year at most.
-
-Overtime was every week. Every single Monday we would work until 2am. 11am-2am isnt ideal when you have no idea when youre off. At around 7pm wed start to get an idea if were in for another hour or another 6. One of the genius new hires mentioned to the boss in the office how he was hoping to get out by 6. Oh good. Apparently the boss was thinking us leaving early was a common occurance now and decided that nobody was going to be leaving early any more. Sweep or dust or whatever, but nobody leaves until 9:30.
-
-All of a sudden we were late every single day without fail. Why? We were working our asses off to get out early but failing every day and ending up on time (or still late). By taking away our ability to leave early, everybody gave up working hard. Slow down! Weve got another hour left anyways. Im not sweeping.. Went from about 45 hours a week to 55. 13 hours every day. Nobody ever left early anymore... but nobody left on time either. Losses for everybody involved because the boss didnt realize that us leaving early for 2 days out of a year actually gave us the daily motivation to work our asses off the other 360~.
-
-tl;dr Boss put a stop to leaving early. No incentive to work our asses off anymore means paying overtime every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The infamous housing project Pruitt-Igoe had a policy of supplying housing to single mothers. However, if they stopped being single they would lose their tenancy to their homes. This meant that fathers or step-fathers of children in these poor homes had to stay away. Pruitt Igoe is a legendary social disaster and it was demolished after twenty years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. At one point in history, the president of Paraguay tried to eliminate racism by making it illegal to marry someone within your own ethnic group.
-
-Needless to say, this was quite racist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. You have to eat whatever you touch was a rule in my kindergarten which led to all the children touching all the food to call dibs on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A Buddy of mine told me about a Happy Hour promotion a bar ran close to his campus. Apparently the special was something stupid like 50-cent beers that lasted until the first person went to the bathroom.
-
-As he tells it, the first few weeks went without incident, but once it got more popular, people were going to extreme lengths to not be that guy including wearing adult diapers. Once people tried to covertly pee in corners and trash cans, the bar cancelled the promotion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I worked somewhere with a clean desk policy on Friday afternoons. The common way around this was that everyone would just sweep all their paperwork into an envelope, stick it in the internal mail, and then it would arrive back on your desk on Monday morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The one-child policy in China has led to a serious gender imbalance in the population.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. My institute banned p**n sites from its WiFi. Most people werent tech-savvy enough or bold enough to ask how to bypass it. Then the institute banned Facebook. Everyone learned to use proxy in a matter of days.
-
-Lets just say the servers were under heavy pressure from then onwards.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. In Kenya, our governor in Nairobi banned public transport from getting to town so people had to walk long distances to work. And since we don’t have enough pavements, people ended up walking on the roads (like 3000) and there was a traffic jam that lasted for more than 5hrs. The next day the ban was removed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Alcohol bans at college football games have led to increased intoxication problems because fans are loading up before going to the stadium.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. The military used to have a 2 beer lunch rule...they never specified the size of the beers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. When I worked for immigration, some bright spark decided that we werent going to remove people who had been caught smuggling drugs from certain countries. They believed it was too risky to deport people, who had failed to complete their jobs, back to pissed off gangs.
-
-News traveled quickly and within a few weeks, there was a huge spike in smuggling. People were smuggling drugs and immediately handing themselves over to authorities to guarantee that they wouldnt get deported. In addition, dealers found it much easier to convince people to attempt to smuggle drugs because it was a win-win for all parties. The whole idea was scrapped pretty quickly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. No cards game at school
-
-When I was in elementary/middle school Magic The Gathering and the Pokemon card game were pretty popular. Almost all of the guys played and would get together after lunch to play before classes started again.
-
-Here is where its important for me to mention that this was a Christian school. It probably didnt take long for a teacher, administrator, or helicopter parent to wonder what all the fuss was about. Sure enough, one of them probably got a hold of an MTG card, saw art depicting a demon, and decided that this had to be the work of Satan to warp our young minds.
-
-Almost over night, all trading card games were banned from school. Any cards would be confiscated until the end of the school year.
-
-Well, you now have several dozen pre-pubescent boys with about 30 minutes of free time and nothing to do. So we did boy s**t. Ran around, pushed each other, went places we werent supposed to, just overall got into mischief. All this time they had a free babysitter that was keeping us all engaged, quiet, and civil, all while reinforcing quick math skills and teaching multi-level problem-solving.
-
-The next year we got a new administrator and card games were allowed at school again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. The school I go to has a rule that says if you come late 3 times, you get an unjustified absence, which lowers your grade quite a bit. So if someone is late they pretty much always skip class so they can get an absence that can be justified by simply signing it...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. At my old job, some people abused lunch so they made a few of em text in when they started and finished lunch. One guy specifically would text the start time, a place he got food, his order in detail, the address, price, etc. Even when he bought a snack while out. That stopped a week later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153678.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Kate Beckinsale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153879.jpg" style="width:100%"><br>
 
