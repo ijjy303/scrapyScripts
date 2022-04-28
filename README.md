@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 04/28/2022-09:11:31
+Last updated: 04/28/2022-10:11:31
 <br>
 ## <a href="#linky2" id="linky1">24 Shocking “Last Thoughts” From People Who Nearly Died</a><br>
 
@@ -51,41 +51,7 @@ Last updated: 04/28/2022-09:11:31
 
 <span style="font-size:4em">24. God, I hope he remembers to feed the dog.Was living with my ex at the time and the primary caretaker for his dog. I was also mildly suicidal so I was much more concerned whether the dog was gonna be okay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154222.jpeg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">16 Celebrities at the Beginning of Their Careers and Today</a><br>
-
-<span style="font-size:4em">1. Keanu Reeves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Emily Ratajkowski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Robbie Coltrane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Demi Moore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Elle Fanning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Kim Cattrall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Zendaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Andie MacDowell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Anya Taylor-Joy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Sophie Turner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Sandra Bullock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jamie Dornan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Gillian Anderson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Frances McDormand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Kate Beckinsale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153879.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">32 Stupid Rules That Backfired Epically</a><br>
+## <a href="#linky3" id="linky2">32 Stupid Rules That Backfired Epically</a><br>
 
 <span style="font-size:4em">1. My company has a strict no-alcohol policy. You cant begin work within 10 hours of having had a drink.
 
@@ -187,31 +153,157 @@ The next year we got a new administrator and card games were allowed at school a
 
 <span style="font-size:4em">32. At my old job, some people abused lunch so they made a few of em text in when they started and finished lunch. One guy specifically would text the start time, a place he got food, his order in detail, the address, price, etc. Even when he bought a snack while out. That stopped a week later.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153678.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">11 Foods That Can Be Quite Dangerous and Even Deadly</a><br>
+## <a href="#linky4" id="linky3">22 Cringe Pics Full of Sadness</a><br>
 
-<span style="font-size:4em">1. Fugu. A Japanese delicacy, this blowfish requires special training to properly handle and people still die every year from its consumption.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152627.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Casu marzu. Translated to “rotten cheese” this foul creation has actual maggots in it (yum!) and can cause allergic reactions, food poisoning, and, not surprisingly, larvae infection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152628.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Raw blood soup. Yes its real and is exactly what it sounds like. This is can be found in Vietnamese cuisine and lead to flu and other diseases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152632.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Pangium edule. A nut that’s common in South Asian cuisine with seeds that contains hydrogen cyanide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152629.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Igunaq. A traditional dish of the Arctic indigenous people, this fermented meat (walrus or deer) can contain botulism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152630.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Crow meat pie. Apparently this is real and obviously causes infections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152631.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Raw blood soup. Also real! This is can be found in Vietnamese cuisine and lead to flu and other diseases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152633.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Feseekh. An Egyptian delicacy of fermented fish that’s dangerous enough to get a warning from the Ministry of Health.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152634.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Bullfrog. The legs can be harmless when cooked properly but the skin and organs are poisonous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152635.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Carambola. It does have a lot of Vitamin C but carambola carries a high level of oxalic acid and can cause kidney problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152626.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Monkey brains. Consumption can lead to a degenerative brain disease. Ironic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152636.gif" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153776.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">35 Mildly Painful Memes for People Over 30</a><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153788.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">30 Things That Are Absolute Units</a><br>
+
+<span style="font-size:4em">1. Wolf Eel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This Vietnamese Street Vendor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This Is One Of The Biggest Personal Weapons Used By Man, The Punt Gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Although Many Are Ignored (Especially In The Third World), There Are Good Artists Everywhere. -Kumi Samuel. Ghana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Chief Of Police</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Absolute Unit Of A Snow Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. We Met Poncho Via, The Longest Longhorn To Ever Longhorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Absolute Unit Of A Toad!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An Absolute Unit Of A Bat (5 Foot 5)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This Bunny Has An Absolute Unit Of An Ear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Absolute Unit Of A Horse!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Absolute Unit Of A Sculpture. Senegal Renaissance Monument</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Komodo Dragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Quartz Crystal Cluster On Display In A Museum In Namibia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The Tallest Mallard Duck To Have Ever Lived Known As Long Boi. He Lives On The Campus Of The University Of York, England. He Stands Just Over 1m Tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The Worlds Oldest Bonsai Tree - Over 1000 Years Old</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Ukranian Antonov An-225 Mriya - Worlds Largest Aircraft Destroyed By Russian Invaders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This Absolute Unit Of A Baobab Can Hold 120.000 Liters Of Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Unit Of An Iceberg Passing By Newfoundland, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This Absolute Unit Of Statue Of Siva In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. C H O N K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This Eagle Seen In Alberta, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Jeff Dabe, A Competitive Arm Wrestler, Has The Biggest Recorded Ring Size, With His Finger Measuring 4.78 Around</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Gigantic Couch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Gorilla Hand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. These Bananas My Wife Got At The Store</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. The White House Chef Is An Absolute Unit And The Last Line Of Defence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Absolute Unit Of A Spider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. This Bottle Of Vodka My Wife Wouldn’t Let Me Buy…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Crewmembers Standing Inside The Cargo Hold Of An Lng (Liquiid Natural Gas) Tanker....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154834.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">20 Abandoned Things That Were Lost and Found</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044926/87154177/church.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044929/87154178/classic.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044938/87154179/ballroom.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044940/87154180/creepy.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044949/87154181/cottage.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044951/87154182/helix.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045043/87154188/radioshack.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154183/hotel.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154184/missile.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045012/87154185/piano.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045023/87154186/race.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045034/87154187/remains.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045046/87154189/ship.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045055/87154190/steamengine.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045057/87154191/tank.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045106/87154192/track.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045108/87154193/skate.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045121/87154195/wheel.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045117/87154194/village.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045129/87154196/VW.png" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">35 Mildly Painful Memes for People Over 30</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153613.jpg" style="width:100%"><br>
 
@@ -279,157 +371,155 @@ The next year we got a new administrator and card games were allowed at school a
 
 <span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153643.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">22 Cringe Pics Full of Sadness</a><br>
+## <a href="#linky8" id="linky7">16 Celebrities at the Beginning of Their Careers and Today</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153782.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Keanu Reeves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153769.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Emily Ratajkowski</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153775.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Robbie Coltrane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153774.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Demi Moore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153766.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Gwyneth Paltrow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153767.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Elle Fanning</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153768.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Kim Cattrall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153763.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Zendaya</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153771.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Andie MacDowell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153772.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Anya Taylor-Joy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153873.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153776.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Sophie Turner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153777.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Sandra Bullock</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153778.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Jamie Dornan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153779.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Gillian Anderson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153780.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Frances McDormand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153781.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Kate Beckinsale</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153783.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">25 Things That Scream TMI</a><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153784.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153785.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153786.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153787.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87153788.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151663.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">20 Abandoned Things That Were Lost and Found</a><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044926/87154177/church.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044929/87154178/classic.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044938/87154179/ballroom.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044940/87154180/creepy.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044949/87154181/cottage.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/044951/87154182/helix.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045043/87154188/radioshack.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154183/hotel.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045001/87154184/missile.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045012/87154185/piano.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045023/87154186/race.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045034/87154187/remains.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045046/87154189/ship.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045055/87154190/steamengine.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045057/87154191/tank.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045106/87154192/track.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045108/87154193/skate.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045121/87154195/wheel.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045117/87154194/village.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/04/26/045129/87154196/VW.png" style="width:100%"><br>
+## <a href="#linky10" id="linky9">11 Foods That Can Be Quite Dangerous and Even Deadly</a><br>
 
-## <a href="#linky9" id="linky8">30 Things That Are Absolute Units</a><br>
+<span style="font-size:4em">1. Fugu. A Japanese delicacy, this blowfish requires special training to properly handle and people still die every year from its consumption.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Wolf Eel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154830.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Casu marzu. Translated to “rotten cheese” this foul creation has actual maggots in it (yum!) and can cause allergic reactions, food poisoning, and, not surprisingly, larvae infection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This Vietnamese Street Vendor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154811.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Raw blood soup. Yes its real and is exactly what it sounds like. This is can be found in Vietnamese cuisine and lead to flu and other diseases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This Is One Of The Biggest Personal Weapons Used By Man, The Punt Gun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154835.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Pangium edule. A nut that’s common in South Asian cuisine with seeds that contains hydrogen cyanide.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Although Many Are Ignored (Especially In The Third World), There Are Good Artists Everywhere. -Kumi Samuel. Ghana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154806.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Igunaq. A traditional dish of the Arctic indigenous people, this fermented meat (walrus or deer) can contain botulism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The Chief Of Police</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154815.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Crow meat pie. Apparently this is real and obviously causes infections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Absolute Unit Of A Snow Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154807.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Raw blood soup. Also real! This is can be found in Vietnamese cuisine and lead to flu and other diseases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152633.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. We Met Poncho Via, The Longest Longhorn To Ever Longhorn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154808.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Feseekh. An Egyptian delicacy of fermented fish that’s dangerous enough to get a warning from the Ministry of Health.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Absolute Unit Of A Toad!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154809.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Bullfrog. The legs can be harmless when cooked properly but the skin and organs are poisonous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. An Absolute Unit Of A Bat (5 Foot 5)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154810.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Carambola. It does have a lot of Vitamin C but carambola carries a high level of oxalic acid and can cause kidney problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This Bunny Has An Absolute Unit Of An Ear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154812.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Monkey brains. Consumption can lead to a degenerative brain disease. Ironic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152636.gif" style="width:100%"><br>
 
-<span style="font-size:4em">11. Absolute Unit Of A Horse!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154813.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">18 People Who Did Something Stupid</a><br>
 
-<span style="font-size:4em">12. Absolute Unit Of A Sculpture. Senegal Renaissance Monument</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154814.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Whos Gonna Tell Her?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152127.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Komodo Dragon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154816.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My Sister Went To Paris And Saw Sean Connery Taking Pictures With All These People. She Muscled Her Way In And Asked For A Photo, All Pleased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Quartz Crystal Cluster On Display In A Museum In Namibia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154817.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The Tallest Mallard Duck To Have Ever Lived Known As Long Boi. He Lives On The Campus Of The University Of York, England. He Stands Just Over 1m Tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154818.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The Worlds Oldest Bonsai Tree - Over 1000 Years Old</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154819.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My Team Said We Were Dressing As Dominoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Ukranian Antonov An-225 Mriya - Worlds Largest Aircraft Destroyed By Russian Invaders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154820.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. You Have To Remove The Protective Coating. Please Can Someone Shut Down The Internet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152123.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. This Absolute Unit Of A Baobab Can Hold 120.000 Liters Of Water</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154821.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I Did Not Order A Concrete Driveway Or Any Other Type Of Driveway. When The Person That Laid It Came Back To See If I Was Happy With The Job, He Realized It Was The Wrong Address</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Unit Of An Iceberg Passing By Newfoundland, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154822.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This Absolute Unit Of Statue Of Siva In India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154823.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. C H O N K</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154824.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I Have Been Buying Bay Leaves When Theres A Bay Tree Outside My Front Door. Ive Lived Here For Over A Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152122.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This Eagle Seen In Alberta, Canada</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154825.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152124.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Jeff Dabe, A Competitive Arm Wrestler, Has The Biggest Recorded Ring Size, With His Finger Measuring 4.78 Around</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154826.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Gigantic Couch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154827.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A Customer Called Asking If We Were Practicing Social Distancing With Her Sandwiches. I Told Her We Are, But To Be Honest Guys Im Running Out Of Space</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152125.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Gorilla Hand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154828.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152126.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. These Bananas My Wife Got At The Store</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154829.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152128.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. The White House Chef Is An Absolute Unit And The Last Line Of Defence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154831.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152129.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Absolute Unit Of A Spider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154832.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Was At My Kid’s School For A Costume Parade. One Dad Misunderstood In The Best Way Possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. This Bottle Of Vodka My Wife Wouldn’t Let Me Buy…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154833.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. Crewmembers Standing Inside The Cargo Hold Of An Lng (Liquiid Natural Gas) Tanker....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87154834.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">50 Unfortunate Souls Having one Hell of a Bad Day</a><br>
+## <a href="#linky12" id="linky11">50 Unfortunate Souls Having one Hell of a Bad Day</a><br>
 
 <span style="font-size:4em">1. This poor woman’s house burnt down in a flood.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/123516/87155124/87154904.jpg" style="width:100%"><br>
 
@@ -531,7 +621,67 @@ The next year we got a new administrator and card games were allowed at school a
 
 <span style="font-size:4em">50. “Have you ever put on a pair of brand new Harley boots – & had both heels fall off, within a couple of hours? Well, I have.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152949.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Pieces of ‘Life Advice’ That Are Total Bullsh*t</a><br>
+## <a href="#linky13" id="linky12">29 Situations That Were Total Disasters</a><br>
+
+<span style="font-size:4em">1. Hopefully her husband or boyfriend wasnt the one who hung that cabinet because if he was, hes never going to hear the end of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is what happens when you dont invest in professionals to handle the infrastructure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh hell no. Id have to move. End of story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. How can you even use a computer in this condition?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When you finally get to take your lunch break and then this happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131597.gif" style="width:100%"><br>
+
+<span style="font-size:4em">18. Well, I guess Im not going anywhere today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131603.gif" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I guess the bird thought you needed a little a extra protien.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. When the Hibachi chef gets a little too excited while making the flaming volcano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131599.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Pieces of ‘Life Advice’ That Are Total Bullsh*t</a><br>
 
 <span style="font-size:4em">1. Pretty much anything about what age you have to be to like buy a house, have kids, get married, have a career or anything like that. Seriously every person lives a different life than everyone else. Live your life the way that makes you happy. If you want. Up to you. -u/Ginger-Beefcake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154780.jpg" style="width:100%"><br>
 
@@ -583,197 +733,7 @@ The next year we got a new administrator and card games were allowed at school a
 
 <span style="font-size:4em">25. “Respect your elders.” F*ck that. You’re not entitled to my respect just because you’re old. If someone expects me to treat them with respect, they should at least be respectful as well. -u/thenexthefner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87154801.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">16 Amazing Historical Photos Colorized</a><br>
-
-<span style="font-size:4em">1. A Giant in the year 1905 enjoying a beer in a tavern</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A crowded beach in Atlantic City photographed in 1908.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Boxing aboard the U.S.S. New York in 1899</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155249.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Lt. “Dick” Winters during training at Camp MacKall – 1943</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Leon Trotsky, Frida Kahlo, Natalya Sedova, Mexico, 1937</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Joseph Stalin, Franklin D. Roosevelt and Winston Churchill, during the first ‘Big Three’ Conference, November 1943.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Phone in the trench, 1915, WW1, 4th battery of the 10th Artillery Brigade of the Western Front, Imperial Russian Army</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Coney Island, New York, 1903</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Actress Brigitte Helm having a break in costume on the set of the 1927 Fritz Lang film ‘Metropolis’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Theodore Roosevelt, photographed in 1898 during the Spanish-American War while he was a Colonel in the “Rough Riders” 1st United States Volunteer Cavalry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. People at Daytona Beach in Flordia, United States in 1904</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. US 17th Airborne Paratroopers, with their hair cut in Mohawk-style, being briefed for the next day’s Jump across the Rhine, Arras, France. March 23, 1945.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. American troops on board a landing craft heading for the beaches at Oran in Algeria during Operation ‘Torch’ in November 1942.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. World War I chain mail face mask worn by a French Tank gunner. It is designed to help protect the crewmember’s face from shrapnel when looking through the view ports. October 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The busy Main Street in Sheridan, Wyoming photographed by Farm Security Administration photographer Marion Post Wolcott in August 1941</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. J. Robert Oppenheimer and Albert Einstein, 1947</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155262.png" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">18 People Who Did Something Stupid</a><br>
-
-<span style="font-size:4em">1. Whos Gonna Tell Her?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My Sister Went To Paris And Saw Sean Connery Taking Pictures With All These People. She Muscled Her Way In And Asked For A Photo, All Pleased</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Team Said We Were Dressing As Dominoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. You Have To Remove The Protective Coating. Please Can Someone Shut Down The Internet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I Did Not Order A Concrete Driveway Or Any Other Type Of Driveway. When The Person That Laid It Came Back To See If I Was Happy With The Job, He Realized It Was The Wrong Address</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152121.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I Have Been Buying Bay Leaves When Theres A Bay Tree Outside My Front Door. Ive Lived Here For Over A Year</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152124.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A Customer Called Asking If We Were Practicing Social Distancing With Her Sandwiches. I Told Her We Are, But To Be Honest Guys Im Running Out Of Space</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152125.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Was At My Kid’s School For A Costume Parade. One Dad Misunderstood In The Best Way Possible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87152133.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Terrifying Things Ex-cons Saw in Prison</a><br>
-
-<span style="font-size:4em">1. Not me, but I spoke to a former inmate after his release who had developed severe PTSD from some of the things he witnessed while incarcerated. One of the stories was that he was playing cards with some guys and one of them was smoking a cigarette. Another inmate who was not playing with them approached the table and asked the guy smoking if he could get “shorts” on the cigarette (shorts means before you finished smoking, you gave the cigarette to someone else so they got the last few puffs before putting it out.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The smoker agreed, the inmate wandered off and they went back to playing cards. Well, the guy playing cards must have forgot and finished the cigarette. A little while later the other inmate came back to the table asking for the short, and the guy at the table told him that he had forgotten about it and finished the cigarette. Guy wanders off again and they go back to playing cards. Shortly afterward, the inmate who wanted shorts comes back to the table, comes up behind the player, pulls his head back, and started shanking him in the eye and throat with a pen/pencil. Dude died over forgetting to give someone a damn cigarette butt. -u/GeiCobra</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A convicted murderer explaining how he killed, dismembered with an angle grinder, then disposed of the body. -u/mcchronicles2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My brother said a guy across from him had a new cellmate who had gastrointestinal problems and wouldnt stop farting these rancid horrible farts after the guy told him repeatedly to stop (not like he could help it.) So the guy beat the farter to death in their cell with his bare hands. My brother said he had never seen so much blood from one person before. -u/I_Only_Eat_Tacos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I got stabbed with a Dixon pencil, but that was from Richard Busby. Mr ‘Tie my boss up and burn him alive.’ It was over a gambling debt he owed me, he’s old and weak, I ultimately took twice what he owed me, and we were back at the table playing poker together that same day. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Google his name if you’d like. I believe he just had an appeal denied or some sh*t.
-Either you become one of them, or you live underneath them. And once you’re one of them, they’re surprisingly and frighteningly good-natured and decent. -u/MyExesStalkMyReddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I did a 4-month stint in Kajang (Malaysia). This Nigerian dude used to pilfer from other cells. This Malay gang found him and dipped his hand in boiling oil (basically deep fried it while it was still attached to him). That scream, it still curdles my blood. Poor guy was reduced to an unconscious pool of blood, sweat, tears, vomit, sh*t, and piss. He lost more than his hand on that day. -u/DeusExKFC</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Was playing Scrabble waiting on the phone to open up. A dude was on the phone with his wife and kids and started losing his sh*t all of a sudden. He started yelling in the most guttural heartbreaking way NO NO NO NOOOO!! The guards were like HEY CALM DOWN NOW! While he was on the phone with them someone did a drive-by on his house and shot his wife and killed one of his children. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The guards snatched the phone from him and threw him on the ground, restrained him, and took him where there are no phones. Guy was weeping saying he just heard his baby get killed on the phone. Never saw him again either. -u/The_Revolutionary</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A guy got stomped to death my first day in. The 2 guys fighting were rival gang members. The guards didnt do anything until the guy getting stomped stopped breathing. Then they came in and took them both away. One in a bag and one in cuffs. -u/fosnin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Dude in the cell next to mine tried to kill himself with a sharpened pencil. He just kept stabbing himself in the chest but couldn’t get deep enough. He was hauled off by COs kicking and screaming, begging for death. He was going to be deported. -u/Demurist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Brixton, A Wing. Coming back from the canteen, this scary-looking, wild-eyed dude steps across and tells me to hand over my burn/tobacco. I laugh and say no and walk by, waiting for him to do something. Nothing happened. Few minutes later, the same guy opened some poor lads stomach with one slash and he was lying there trying to hold his intestines in, I saw the fear and panic on his face. The scary guy just casually walked away. No idea what happened to either of them. Alarms went off. Everyone back to their cells and locked up again. -u/Bully2533</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Boiling hot peanut butter dumped on a sleeping child molesters face …. The screaming and thrashing were pretty intense…. The idea is that you can’t wipe it off or something to mitigate the damage caused, it’s going to burn deeply. And in my opinion, that was worse than watching a guy on the bench press take a 35k plate smash to the skull repeatedly…. He was dead pretty quickly… the peanut butter burn is a permanent disfigurement that will have months of pain and suffering. -u/WB-butinagoodway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was never in prison, but in jail a bit for drug charges. I was in my 30s, but my bunky was a really nice 19-year-old kid in there for selling drugs. He seemed a bit over his head, but introduced me to the jits (I didn’t know anyone) and we’d play cards and sh*t. He had a real high bond, and one day they said to get his sh*t he got bail. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-He didn’t know who, but I was so happy for him. The next morning the CO told me he was shot and killed that night (Being very respectful, everyone liked the guy). It was confirmed on the evening news. Really f*cked me up, and I can guess who got him bailed. -u/JoseZiggler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I saw someone take a hotpot fill it up with baby oil add a pound of sugar, add some magic shave, bring it to a boil then splash it in a persons face...It literally melted the guys face off. This happened around 1999 and I still have the occasional nightmare about it. -u/XconJon1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Just the way that some people talk about murder. Some of the people in there would be telling a story, casually drop the fact that they killed someone, then keep going on with the story like nothing happened. -u/DrinkJazzlike3487</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Not a crazy story but was in for a few days and didnt realize they put you in cells based on the color of your skin. Im a white dude with a Hispanic last name and they put me in a cell with a straight Nazi who told me if I went to actual prison (I was only in for a weekend) I would be a misfit because I wasnt one thing or the other. He openly called the black dudes next to our cell horrible things. -u/undego1423</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Two guys in the kitchen made a bet that one of them wouldn’t go through the commercial dishwasher. Guy took the bet and went through...Came out the other side as one human-sized blister, 100% of his skin was blistered full of juice. He was airlifted out in a bubble-wrapped suit to hospital. I was fresh in at the time and working in the kitchen when this happened. But I wasn’t in the dish room. The blood-curdling screaming as the dishwasher cycled on still gives me goosebumps 10 years later. And I can’t un-see what a human covered in blisters looks like. I don’t know if he survived as they don’t give updates to inmates. I do know the guy who bet him was charged with fresh street charges. -u/Giveyourapplesthanks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. I’m not a con but my dad told me when he was upstream, guards informed them that they had a high case child rapist coming in. When the guy got there he ended up being this old white man walking with a cane. He didn’t last very long on the courtyard. (They killed him on the prison yard.) -u/Infamous-Reyug</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Had a guy stick a full-size #2 pencil in his leg, the long way (inserted into his thigh, and shoved it under the skin until you couldn’t see it anymore). Took him to the hospital to have it removed. Days later, he did the same thing, in the same hole with a rubberized pencil. Rinse and repeat, hospital removes the pencil again.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87153170.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">25 Things That Scream TMI</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151686.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
+## <a href="#linky15" id="linky14">50 Awesome Choice Pics To Raise Your Fun Level</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87154703.jpg" style="width:100%"><br>
 
@@ -873,6 +833,50 @@ He didn’t know who, but I was so happy for him. The next morning the CO told m
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87154752.jpg" style="width:100%"><br>
 
+## <a href="#linky16" id="linky15">21 Fun Facts That Seem Fake but Aren’t</a><br>
+
+<span style="font-size:4em">1. Allan, Kens Buddy was a real doll that Mattel created.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010221/87155141/allan.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. These bikes actually exist in a few McDonalds restaurants in China.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010227/87155142/bikes.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Book burnings in 1933 and 2022 respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010238/87155144/books.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Fucking was a real village until they changed their name to Fugging.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010244/87155145/fug.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. The Glass Frog.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010250/87155146/glassfrog.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Well this is terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010255/87155147/goose.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Bill Gates real mugshot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010232/87155143/billgates.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. I cant imagine how bad this thing smells.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010301/87155148/jock.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Hole drilled by the Mars Curiosity rover.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010307/87155149/hole.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. This 80s McDonalds.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010319/87155151/mac.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. This real sign in Alberta.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010325/87155152/moose.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Three soldiers survived underwater in a ship hull for 16 days after the Pearl Harbor attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010330/87155153/pearl.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. The one and only, Penis Snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010336/87155154/penis.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Larvae infestation in a gardeners eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010314/87155150/maggot.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Yup, theyre real.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010341/87155155/pork.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. YIKES.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010348/87155156/pox.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. So much ramen!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010352/87155157/ramen.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Magnified seawater.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010359/87155158/seawater.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Magnified puncture from a tattoo/ink gun.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010405/87155159/skin.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Golden Orb Spider silk cape/dress.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010411/87155160/spidersilk.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. A young Teddy Roosevelt was indeed looking over Abe Lincolns funeral.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010416/87155161/teddy.png" style="width:100%"><br>
+
 ## <a href="#linky17" id="linky16">48 Funny Photos to Flick Through Fast</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87154100.jpg" style="width:100%"><br>
@@ -970,108 +974,4 @@ He didn’t know who, but I was so happy for him. The next morning the CO told m
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87154146.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87154147.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">21 Fun Facts That Seem Fake but Aren’t</a><br>
-
-<span style="font-size:4em">1. Allan, Kens Buddy was a real doll that Mattel created.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010221/87155141/allan.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. These bikes actually exist in a few McDonalds restaurants in China.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010227/87155142/bikes.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Book burnings in 1933 and 2022 respectively.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010238/87155144/books.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Fucking was a real village until they changed their name to Fugging.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010244/87155145/fug.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. The Glass Frog.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010250/87155146/glassfrog.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Well this is terrifying.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010255/87155147/goose.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Bill Gates real mugshot.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010232/87155143/billgates.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. I cant imagine how bad this thing smells.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010301/87155148/jock.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Hole drilled by the Mars Curiosity rover.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010307/87155149/hole.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. This 80s McDonalds.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010319/87155151/mac.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. This real sign in Alberta.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010325/87155152/moose.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Three soldiers survived underwater in a ship hull for 16 days after the Pearl Harbor attack.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010330/87155153/pearl.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. The one and only, Penis Snake.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010336/87155154/penis.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Larvae infestation in a gardeners eye.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010314/87155150/maggot.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Yup, theyre real.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010341/87155155/pork.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. YIKES.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010348/87155156/pox.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. So much ramen!</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010352/87155157/ramen.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Magnified seawater.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010359/87155158/seawater.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Magnified puncture from a tattoo/ink gun.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010405/87155159/skin.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Golden Orb Spider silk cape/dress.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010411/87155160/spidersilk.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. A young Teddy Roosevelt was indeed looking over Abe Lincolns funeral.</span><br><img src="https://cdn.ebaumsworld.com/2022/04/27/010416/87155161/teddy.png" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">29 Situations That Were Total Disasters</a><br>
-
-<span style="font-size:4em">1. Hopefully her husband or boyfriend wasnt the one who hung that cabinet because if he was, hes never going to hear the end of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This is what happens when you dont invest in professionals to handle the infrastructure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh hell no. Id have to move. End of story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. How can you even use a computer in this condition?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. When you finally get to take your lunch break and then this happens.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131597.gif" style="width:100%"><br>
-
-<span style="font-size:4em">18. Well, I guess Im not going anywhere today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131603.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I guess the bird thought you needed a little a extra protien.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. When the Hibachi chef gets a little too excited while making the flaming volcano.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87131599.jpg" style="width:100%"><br>
 
