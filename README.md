@@ -1,215 +1,69 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/03/2022-21:11:31
+Last updated: 05/03/2022-22:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
+## <a href="#linky2" id="linky1">30 Nightmarish Things People Spotted</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Angler Fish Washed Ashore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This Is A Wasp Nest That Has Grown Around The Floodlights On A Garage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Man Finds Huge Spider Hiding Inside Ear Muffs After Feeling Tickle In His Ear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Went Into My Attic Looking For A Water Leak Coming Into My Living Room And It Appears That Im Also In Quarantine With This Whatever Monstrosity Left This Behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well There Is A Water Snake Living In My Toilet Somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Was Playing Video Games When I Heard Sounds To My Left. Looked Over And Saw This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Coconut Crabs Are Attracted To The Smell Of Food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Started Work This Morning, Put My Headset On, Felt Something Furry In My Ear, Looked And There Is A Bat In My Headset</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Remember To Check Your VR Headset For Spiders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Stygian Owl Is Known For The Red Reflection Of Their Eyes That Are Often Associated With The Devil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Creatonotos Gangis Moth Unfurling Its “Hair-Pencils” To Spread Pheromones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I Share A New Jaguar Photo With You, Earlier Than I Wanted. Hopefully, You Will Like This Striking Image</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Hickory Horned Devil. Largest Caterpillar In The World. Turns Into A Regal Moth. Can Grow 6 Inches Long And Is Completely Harmless Except Visually Terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Found In A Harpy Eagles Nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dead Man Fingers Fungus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Found This In My Apartment While Living In Japan. They Are Fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Ceiling Snake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Infested Spider Tent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Moose In Fog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Caught This Storm Above A Bowing Field Of Sunflowers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159198.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Minimalist Mancaves Proving Dudes Are Living Their Best Lives</a><br>
+<span style="font-size:4em">21. Small Tick Sucking On A Big One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012610/87158581/bed.png" style="width:100%"><br>
+<span style="font-size:4em">22. Heron Likes A Bit Of Crocodilian Dinner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012622/87158582/basement.png" style="width:100%"><br>
+<span style="font-size:4em">23. This Cluster Of Fossilised Creatures Look Like They Came From Another Planet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012633/87158583/bike.png" style="width:100%"><br>
+<span style="font-size:4em">24. The Most Metal Eel Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012645/87158584/drive.png" style="width:100%"><br>
+<span style="font-size:4em">25. A Melanistic & Albino Alligator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012653/87158585/coffee.png" style="width:100%"><br>
+<span style="font-size:4em">26. This Moray Tried To Swallow A Pufferfish. Said Puffer Took Her With Him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012656/87158586/furniture.png" style="width:100%"><br>
+<span style="font-size:4em">27. This Looks Like A Scene From A Movie. Six Waterspouts Simultaneously In The Gulf Of Mexico</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012609/87158580/ballin.png" style="width:100%"><br>
+<span style="font-size:4em">28. Australian Problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012706/87158587/guitar.png" style="width:100%"><br>
+<span style="font-size:4em">29. An Old Friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012708/87158588/hanger.png" style="width:100%"><br>
+<span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012717/87158589/liquor.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012719/87158590/music.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012728/87158591/puppers.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012730/87158592/records.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012740/87158593/shoes.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012742/87158594/simple.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012751/87158595/terrace.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012753/87158596/yurt.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013817/87158597/living.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013828/87158598/tv.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013840/87158599/loft.png" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">25 Movie Flaws That Instantly Ruin the Experience </a><br>
-
-<span style="font-size:4em">1. When they murder 1000 henchmen without showing a sign of remorse but then dont kill the person who caused all the problems because suddenly morals.-u/Literally_-_Hitler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. When a character jumps to conclusions after overhearing something without full context as a heavy plot device to push the story forward. Its SO lazy and uncreative.-u/Tonythunder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Lazy exposition. Lifetime/Hallmark movies are especially guilty of this. It drives me nuts when a movie slams the entire exposition of a story into a 5-second dialogue directly after opening credits. E.g. - Honey, I am so proud that you are the CEO of your own company. I cant wait to go back home to meet your family for Christmas. I hope they like me!-u/ta_507john</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. When action sequences have so many cuts it might as well be a slideshow.-u/MyNameIsRay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Anything that treats the audience like morons, makes me embarrassed to watch.-u/rmzalbar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In your face, obvious product placement-u/i-hate-all-ads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Wait I can explain! But I wont explain it right now because its not convenient for the plot. So I’ll keep saying I can explain without explaining anything”-u/Expert_Overthinker</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157486.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. A love story where I never see the two of them in a conversation. Longing looks and passionate scenes are great...unless I dont believe the two people even like each other, much less love.-u/Clapperoth</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Any scene where a clueless victim tells the villain that hes on to his plot and is going to the authorities only to get killed right then and thereby the bad guy because he hadnt said anything to anyone else so nobody else knows. If you have any sense, first you wait for the cops to arrive, then you confront the bad guy.-u/TonyDP2128</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Shoehorning a love story into the plot for no discernable reason.-u/katastrophyx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Trailers that give away the best parts.-u/sternje</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Comedy that doesnt belong where they put it.-u/Mr_Frible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. You just dont get it, do you?-u/Schezzi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Im a horror movie guy, when the main characters start making dumb decisions people would never make. Makes me start rooting for the monster, kinda kills the suspense.-u/TastyPork1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When a scene goes on longer than it should. Fight scenes, car chases, etc.-u/NJCAPE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Bad sound. If a movie has bad camera work it’s either considered stylistic or it’s overlooked. If a movie has bad sounds, there’s no recovery-u/KidneyFailure99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Extreme predictability. Sure, not every movie is going to be super surprising, but if you’re just following the same formula I’ve seen in 100 other movies, I’m going to enjoy your movie less than one that explores some interesting ground or takes some twists and turns.-u/P0ster_Nutbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When it turns out, in a thriller, that the threat is coming from inside the organization! Such a hackneyed plot device.-u/CardboardSoyuz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The ridiculously good-looking cast. Even the “ugly” girl isn’t ugly. She’s just wearing glasses.-u/j250ex</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Cheap death scares that are immediately wiped away by that deep breath gasp “oh I’m awake and alive yay!” or an implied death based on an explosion or something and then oh wait that character wasn’t actually there.-u/jpj77</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Children just screaming all the time. War of the Worlds was almost unwatchable because of the kids’ constant ear-shattering shrieking the whole time. Like Jesus, I’m surprised the aliens didn’t find and kill them just to have some peace and quiet.-u/Osirus1156</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Bad accent imitation. New York, generic southern, Americans mauling Brit accents, Brits mauling American accents. Black Hawk Down was a good movie but Orlando Bloom, Ewen McGregor, and a couple of others were off just enough to take you out of the moment-u/ridleysfiredome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Really cheesy, forced twists either halfway through or at the end of the movie. e.g. the good guy was the bad guy all along! and other tropes.-u/TheDefinitiveRoflmao</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. People not reacting like they would in real life. Ex: the car breaks down in a dark place you have never been. In real life, you call AAA or family/friend to come jumpstart or give you fuel (whatever is needed). Heck, you would even leave the car there and come back tomorrow after being picked up by said family/friend. In the movie, everyone agrees to get out of the safety car and walk towards the dark creepy home they saw 10 miles down, even though everyone knows the area is famous for unsolved murders.-u/Kind-Replacement5788</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. When I see someone carrying coffee and you can clearly tell the cups are empty. Always takes me out of the movie.-u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157504.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">36 Landlords Who Are Just the Worst</a><br>
-
-<span style="font-size:4em">1. Our landlord keeps saying theres nothing wrong with our shower..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Just moved into a new home and found where the landlord patched the carpet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Landlord left a note saying that we need to be prepared for tours from 8:00AM-8:00PM for two weeks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My Landlord is super serious about fire safety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Discovered tonight that the carbon monixide alarm in our apartment hasn’t had a battery for the entire time we’ve lived here and that it was ‘plugged in’ to two slits my landlord had carved in the wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This is how the landlord fixed the leaky ceiling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Landlord said neighbors are quiet..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Called my landlord because when the furnace kicks on it makes the house shake. This is how they fixed it. House still shakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Moved into a new house. Landlord said water the lawn, we left you a hose.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Landlord thought i was a government agent and decided to lock me out to do this. RIP 3080 FE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Landlord ordered a new gas oven to replace the old broken one. He only paid to have it dropped off. He is very shocked that I’m not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My landlord pretended to do do work the flat but ended up installing this 360° wifi surveillance camera which also records audio without telling me about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Landlord decided to turn down the heat today in my MN apartment as it reached -40°. But the idiot must have forgotten he pays my electric and doesnt realize that I value my comfort over safety or energy conservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. When I told my landlord my shower head was leaking, he said he was going to hook me up. This is what I came home to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. DID MY LANDLORD JUST TRY TO USE THE BIBLE TO RAISE MY RENT…LMAOOOO</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I told my landlord that the storage room smelled funky. Today, I found this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. How my landlord handled a nest of spiders in the closet of the apartment I used to rent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Ive been arguing with my landlord about water seeping into my apartment for 2 months now. Found this little guy today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Welcome to renting in London! My landlord has just put our thermostat in a cage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. My landlord sprayed painted this tree guard and the wind blew the paint onto this persons dodge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. Asked landlord to fix our shower handle. Wouldnt exactly call this fixed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158497.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">49 Fun Randoms to Spice up the Day</a><br>
+## <a href="#linky3" id="linky2">49 Fun Randoms to Spice up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156618.jpg" style="width:100%"><br>
 
@@ -309,7 +163,7 @@ Last updated: 05/03/2022-21:11:31
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156666.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">32 Fails From People Who Had One Job</a><br>
+## <a href="#linky4" id="linky3">32 Fails From People Who Had One Job</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158397.jpg" style="width:100%"><br>
 
@@ -375,7 +229,145 @@ Last updated: 05/03/2022-21:11:31
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158428.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">30 Dark Secrets Arlines Don't Want You to Know</a><br>
+## <a href="#linky5" id="linky4">20 Times Influencers Had Absolutely No Clue</a><br>
+
+<span style="font-size:4em">1. I do street photography every so often. I was once offered influence credit for pretending to be in shock that I found her in the streets of my town. I would take a bunch of photos of her at the spot and give them to her. This would all be recorded by her, I hope, boyfriend. I wasnt allowed to use the photos myself and all I would get is a tag at the end of the description.
+
+I said no thanks. Then snapped a couple photos of her.
+
+She said she would sue me.
+
+I said we were on public streets and Im a hobbyist who doesnt sell. I dont need model waivers.
+
+Never heard from her again.
+
+Never used photos either. Shes not interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. She asked for $200/hr with a three hour minimum, without any real prior modeling experience, and had conditions that the photos could not be posted anywhere and that she was going to have them sold exclusively on her Patreon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. She came to me, wanted $200 an hour for three hours work, but also wanted full rights to the photos so I couldnt sell or display them. Basically, to use me as an ATM and for me to pay the pleasure to work with them. Absolutely not. While I have paid $200/hr for a model, I get full rights and 99% of the models agree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I got invited to a friends wedding as a guest. When the wedding was a few weeks away I posted on facebook about some arm surgeries. They messaged me asking if I could still shoot photos. I could not - and they uninvited me. I was never asked to shoot photos, just invited as a guest. Perhaps they assumed I’d bring my camera? I’m a hobbyist, not a pro.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Had an influencer try to set up a shoot with me. When I mentioned my price she was shocked because she was under the assumption that I was going to pay her for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Had someone ask for me to do a videography shoot of their new house being built. They said $200, but they wanted me to go each weekend for 2 years and shoot it to build up a time lapse and stuff. I definitively said no</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Influencer asked me to shoot and before I even had the chance to give her my prices she decided to give me hers, over $300 for ME to shoot with HER for 30 minutes, one of her main selling points was she could “teach me how to leverage and grow my social media”.
+
+Girl was 15...
+
+Edit to clarify: She was asking me to pay her $300+ when in reality at a minimum she should be paying me. I don’t even charge that much haha</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I own a wedding photography and videography company in Florida. A YouTube “famous” couple inquired with us for their wedding and demanded all of the unedited images and video along with the copyrights so they could edit themselves for their YouTube channel. It’s a request we’ll gladly honor, for the correct price. For those of you who don’t know, copyrights to 800-1500 images and 12+ hours of video goes for tens of thousands of dollars.
+
+They offered to pay us less than half our regular coverage price for everything. Hah. Bye girl. When we told them we wouldn’t accommodate their request, the bride had her MOTHER call me to yell at us for “ruining” their wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Work in a camera store and do photography myself, hear stories about this sort of stuff all the time. Usually just ask model shoots for exposure but I’ve heard and seen stories (there is a fairly popular one at the moment about a photographer in Chicago) about people asking for full wedding shoots for exposure. Not always ‘influencers’ asking these questions either, sometimes arsehole people ask this stuff and then say stuff like ‘well if I had that equipment then we’d be able to get the same results’.
+
+They just don’t have respect for the time that goes into the art form.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I do documentary film and I had a non-film job in college and I met this lady who was maybe 30 ask me to do an Instagram video like this and she showed me a professional video-shoot done with a greenscreen, lights and set. I told her I could probably get pretty close to quality (with my Universitys equipment) but it would take time to get a crew together & reserve a studio. She told me no, that I should just record it with my phone. I told her thats not what they did for the Instagram video she just showed me and she said Its on Instagram, that means they recorded it with their phone. She dropped it after I mentioned I charge money and wouldnt just do it to be nice. She has like 10 followers and three of them were pornbots.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Did a shoot with this girl- supposed to be a typical collab. Once we met up she was bossing me around, wouldn’t listen to my suggestions and was talking to me like her employee. After the shoot she demanded I send her the hundreds of raw photos so she could edit them herself and that she didn’t want me to post any so that they would seem like she took them herself. I sent her 3 pics and erased the rest. Never talked to her again. Some models are a trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had someone ask me to do more than a week of videography for them and create a promo video for $200... Not a day... For the whole week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I do photography on the side since I’m mostly film/video.
+
+But I have a friend who has an Instagram account as a side business for fun. I told her I would do a photoshoot for her if she helped me with my resume and cover letter.
+
+Although she has tons of company’s that give her products to review for free, the photo credit she gave me honestly didn’t lead to any followers on my Instagram. So yeah, anyone who wants exposure for crazy work I don’t think knows that they actually don’t give any exposure.
+
+In my case I was the one who brought up the deal and honestly I would have done it for free to get out of the house because she’s my friend. But yeah, that photo credit doesn’t do anything in my experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Not a photographer personally but a few of my close friends are. My friend we’ll call Sara is a pretty successful photographer for only being college student. About a month ago Sara and I were meeting up for lunch at our University’s Food Court and shes fiddling with her cameras prepping them for a big shoot she has that night when this very attractive girl walks over and starts chatting us up. She makes a few minutes of casual conversation mostly inquiring about Saras cameras, and then finally asks if she’d be interested in doing a shoot. She immediately throws her pitch which had to do with modeling some very risqué outfits up in the mountains just outside of the city and then a few photos directly in the center of downtown. Overall the whole pitch was something that bordered very close to being p*rnographic in nature. Sara tells the girl her typically rates and also states that because of the nature of the shoot she’ll have to charge extra as its not something she typically does or is super comfortable with. The girls face when Sara mentioned the price went from enthusiastic to very “are you kidding me?” She then buts in and says “I have over 85k instagram followers, do you know the kind of exposure working with me would give you? This is a once in a lifetime chance for you.” Sara responds telling her that shes an in house photographer for 3 of the cities largest concert venues, works as a photographer for the newspaper, and is a highly recommended wedding photographer on top of it all. “I don’t work for free” My favorite line she said during this was “I work with people much more famous than you on an almost daily basis. I’ve shot photos for Marilyn Manson, Motley Crue, Shania Twain, Post Malone and a bunch of other musicians that come through and was paid for all of it. Your exposure isn’t worth anything to me” after that the girl got really upset and walked off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wedding Photographer here, they said they were influencers with a great following that theyd promote me to but when I asked for their handle online, silence.
+
+I get this is a lot as Im fairly well known so an easy target when people look.
+
+Exposure? People die from exposure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A few years back I was in Acadia National Park and we did the Beehive Trail hike. For those unfamiliar it’s basically as close to rock climbing as you can get non harnessed as you are going straight up a cliff on iron rungs and stuff, so super fun and you are rewarded with an amazing view at the top. Most people take a quick snap there at the lip, as most do at the peak of their hike, and then move on to the more rocky area (but less a nice view) to rest.
+
+Anyway while we were there resting two Instagram girls got to the top, and promptly took over the best view of the lip to take various yoga poses. (Because that was totally a natural thing to do after scrambling up a cliff?) For at least ten minutes- families were coming up asking if they could take a picture, but they literally said “we were here first” and “we’ll be here awhile” when asked if they were almost done.
+
+We ended up leaving before they were done but it still boils my blood thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Been a wedding photographer for 12 years. I ROUTINELY get asked to do entire weddings for free. Not even always from Instagram influencers. One time this guy (whom I didnt even like that much) asked me to do a wedding for free for his friend. Someone I didnt even know existed at all until this interaction.
+
+I just imagine walking into a restaurant and asking for the absolute best meal they have for zero dollars and then telling them it will be good for their business to do so.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Not a photographer but related story...
+
+I was at a private event, The insta user actually had a camera man shooting video. 2 hours into the event one of the celebs noticed this random videographer and spoke with security. Security told them to stop filming and destroy any footage already shot. She refused and started yelling and making a fuss. Another (very large) celeb who didnt like his party being ruined, grabbed the video camera, smashed the camera, took the memory chip and his private bodyguards escorted her away.
+
+She ended up posting an expose` which she bashed the celebs that were there and threatened the location with retaliation. This got her account banned from both Instagram and Facebook. Instagram Influencer no more.... 25+k subs lost..
+
+Sorry no names or I dont get to go to these events anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. As a photo assistant in Chicago, I had a friend tell me there was a popular NY photographer looking for an assistant on Instagram for a shoot in Chicago. I inquired with the gentleman, and he said he only had a day rate of $150. On top of that, he said the day would be a 14 hour day, and he asked me to pick up his equipment rental which included a 12 foot sweep, and store it at my place to be ready for the shoot the next day. Hell no. 150$ for 17 hours worth of work? Idc which photographer you are pay your assistants correctly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Beet Poop
+
+Some influencer that was promoting betanin in beets as healthy diet. She want me to take images of the colored-change poop. That this is actually normal in those that cant process the betanin.
+
+(that week, my DSLR was dropped hard, and now I am without it. It was a bad week...)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157795.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">25 Savage Comebacks To Win Your Next Argument</a><br>
+
+<span style="font-size:4em">1. “I learned this in third grade: If someone sticks their tongue out at you, say, No thanks...I use toilet paper. They will never do it again. Works with ALL ages.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “OH now I see what people were talking about And never fill them in.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Reply by Billy Connolly to a heckler. Save your breath youll need it for your blow up doll” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “If somebody says “what are you looking at?” I respond with “I’m asking myself the same thing”” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “I’ve been called worse by better.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I envy the people whove never met you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “I’m sorry I wasn’t listening.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Anytime a redneck curses at me I say a variation of “You f**k your sister with that mouth?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158968.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Usually in England one of the most common insults is “youre gay” in response say “Don’t get your hopes up”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Not reeeeally an insult, but: if someone says thats what she said! I reply with a solid yeah, not to you. never fails to amuse.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158965.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “When somebody says, “Do you know who my father is?” Just reply, “Why? Your mom didn’t tell you?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158966.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “What people say about you was indeed the truth! even if its fake it will eat anyone from inside thinking how theyre being judged.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158967.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “If anyone tells you that a certain person speaks ill of you, do not make excuses about what is said of you but answer, He was ignorant of my other faults, else he would not have mentioned these alone.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158969.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Not exactly what you asked, but I heard a good reply to someone asking Why are you so quiet: Im in mourning For who? The silence </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158970.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Ill f**k your mum so she can have a child that doesnt disappoint her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158971.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “You want to suck WHAT?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158972.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “You will never die of brain cancer.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158973.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That might be hurtful if anyone gave a s**t what you think. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158974.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Your b**ch ass got that insult from Reddit” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158975.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “I’m impressed you could come up with that witty insult despite your disadvantage.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Your breath is so bad, people look forward to your farts” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I have neither the time nor the crayons to explain this to you.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Cute. A lot of these comebacks are very clever, but they just show that youre spending time memorizing a generic phrase because you get insulted a lot. Its like a pickup line - just cheesy. Cute is dismissive and patronizing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Im only fat because every time I f**k your mom she makes me a sandwich always made me laugh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “The best comeback is to silently pretend you didnt even hear the insult so no one suspects you, then go slash their tires at a designated later time, as well as a simultaneous flaming bag of poo. The divided attention between to two incidents becomes the catalyst for a fight or flight response which will considerably increase the chance that they will actually go right for the stomp in the event that theyve already heard of the flaming bag of poo.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158981.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">30 Dark Secrets Arlines Don't Want You to Know</a><br>
 
 <span style="font-size:4em">1. I used to be a flight attendant and when someone was really rude I’d just go to the computer we had to reset the inflight tv screens and I’d keep resetting theirs sporadically so that they couldn’t watch their movie. Very petty of me I know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157181.jpg" style="width:100%"><br>
 
@@ -481,7 +473,7 @@ Its full of pilots meowing at each other, and people accidentally asking for gat
 
 <span style="font-size:4em">30. My roommate’s a flight attendant and she says the flight crew (including pilots) often stays at the same hotel and parties together, and that the pilots often sleep with flight attendants regardless of marital status. Idk if that counts as a secret of the industry, but she says it is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157210.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 People Reveal Their Scariest Real-Life Incidents</a><br>
+## <a href="#linky8" id="linky7">25 People Reveal Their Scariest Real-Life Incidents</a><br>
 
 <span style="font-size:4em">1. “Im a corrections officer. Which is scary enough. But as a woman, I was lucky to have a very experienced female trainer at the academy. She told me to always trust my gut. One day my male offsider went to the bathroom. So just me and about 80 male prisoners. They all went nuts saying someone in cell 39 was having a heart attack.
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159005.jpg" style="width:100%"><br>
@@ -557,69 +549,79 @@ I had to check my entire house every time we came home for a while, and I was al
 <span style="font-size:4em">
 His eyes were weirdly focused on us but was whimpering and writhing. He kept saying help me, oh god Im going to die. Please, Help me. We said we would call an ambulance and he really didnt like that idea. No! dont call 911 just help me! Im going to die! We called anyway. He stood up in his blood-covered shirt, knife in hand, said f*ck! and ran away.” - Theatre_throw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159004.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 People Who Pulled Real Power Moves</a><br>
+## <a href="#linky9" id="linky8">36 Landlords Who Are Just the Worst</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159235.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Our landlord keeps saying theres nothing wrong with our shower..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159222.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Just moved into a new home and found where the landlord patched the carpet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159223.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Landlord left a note saying that we need to be prepared for tours from 8:00AM-8:00PM for two weeks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159224.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My Landlord is super serious about fire safety.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159225.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159226.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Discovered tonight that the carbon monixide alarm in our apartment hasn’t had a battery for the entire time we’ve lived here and that it was ‘plugged in’ to two slits my landlord had carved in the wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159227.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This is how the landlord fixed the leaky ceiling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159229.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Landlord said neighbors are quiet..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159221.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159220.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Called my landlord because when the furnace kicks on it makes the house shake. This is how they fixed it. House still shakes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159230.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Moved into a new house. Landlord said water the lawn, we left you a hose.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159231.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159232.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159233.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159234.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Landlord thought i was a government agent and decided to lock me out to do this. RIP 3080 FE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159236.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Landlord ordered a new gas oven to replace the old broken one. He only paid to have it dropped off. He is very shocked that I’m not happy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159237.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. My landlord pretended to do do work the flat but ended up installing this 360° wifi surveillance camera which also records audio without telling me about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159238.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Bought The 4th Of July M&ms Specifically To Do This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159239.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Landlord decided to turn down the heat today in my MN apartment as it reached -40°. But the idiot must have forgotten he pays my electric and doesnt realize that I value my comfort over safety or energy conservation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159240.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. When I told my landlord my shower head was leaking, he said he was going to hook me up. This is what I came home to.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159241.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159242.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. 70 Ft Sam I Made By Hand. Was Told To Post This Here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159228.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159243.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. After a grueling day at work without food where I had to wait 4 hours for a sample to arrive which got canceled, I come home at 7pm to find all my shit in garbage bags cause the cleaners my landlord sent cleared the wrong apartment.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159244.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. DID MY LANDLORD JUST TRY TO USE THE BIBLE TO RAISE MY RENT…LMAOOOO</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159245.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. I told my landlord that the storage room smelled funky. Today, I found this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159246.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159247.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. How my landlord handled a nest of spiders in the closet of the apartment I used to rent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159248.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159249.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Ive been arguing with my landlord about water seeping into my apartment for 2 months now. Found this little guy today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158492.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">24 Memes That Became One With The Dankness</a><br>
+<span style="font-size:4em">31. Welcome to renting in London! My landlord has just put our thermostat in a cage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. My landlord sprayed painted this tree guard and the wind blew the paint onto this persons dodge</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Asked landlord to fix our shower handle. Wouldnt exactly call this fixed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158497.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">24 Memes That Became One With The Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158921.jpg" style="width:100%"><br>
 
@@ -669,7 +671,7 @@ His eyes were weirdly focused on us but was whimpering and writhing. He kept say
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158944.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
+## <a href="#linky11" id="linky10">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159525.jpg" style="width:100%"><br>
 
@@ -723,7 +725,7 @@ His eyes were weirdly focused on us but was whimpering and writhing. He kept say
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159554.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">40 Historical Comparisons Showing How Things Have Changed</a><br>
+## <a href="#linky12" id="linky11">40 Historical Comparisons Showing How Things Have Changed</a><br>
 
 <span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
 
@@ -805,143 +807,166 @@ His eyes were weirdly focused on us but was whimpering and writhing. He kept say
 
 <span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Savage Comebacks To Win Your Next Argument</a><br>
+## <a href="#linky13" id="linky12">25 Awesome Things That Disappeared without a Trace</a><br>
 
-<span style="font-size:4em">1. “I learned this in third grade: If someone sticks their tongue out at you, say, No thanks...I use toilet paper. They will never do it again. Works with ALL ages.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158957.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Wonka labeling on Nerds, SweetTarts, etc. -u/PsychedelicLizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “OH now I see what people were talking about And never fill them in.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158958.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Sobe Life Water is mostly gone. -u/AmySchumersAnalTumor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157507.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Reply by Billy Connolly to a heckler. Save your breath youll need it for your blow up doll” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158959.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The live aquarium fish at Walmart. -u/cheerleadersquid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “If somebody says “what are you looking at?” I respond with “I’m asking myself the same thing”” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158960.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Colored toilet paper, tissue and paper towels. In the seventies, toilet paper came in different colors to match the decor of the day. Green, yellow, pink, and so on. Paper towels and tissues too, usually in yellow and green.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157509.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’ve been called worse by better.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158961.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157510.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. I envy the people whove never met you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158962.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+They were discontinued when it was found they were a contributing factor to UTIs in girls along with Mr. Bubble bubble bath soap. Also if you had a septic system the dyes interfered with the biological process in the tank. -u/Ill_Maintenance8161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157511.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I’m sorry I wasn’t listening.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158963.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “ROFL.” Everyone uses “lol” and “lmao”, but “rofl” has fallen out of fashion it seems. -u/Shopping-Puzzled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Anytime a redneck curses at me I say a variation of “You f**k your sister with that mouth?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158968.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. McDonalds salad. I was about to buy one l earlier but I found out they were discontinued. -u/balloonidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157512.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Usually in England one of the most common insults is “youre gay” in response say “Don’t get your hopes up”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Not reeeeally an insult, but: if someone says thats what she said! I reply with a solid yeah, not to you. never fails to amuse.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “When somebody says, “Do you know who my father is?” Just reply, “Why? Your mom didn’t tell you?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158966.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “What people say about you was indeed the truth! even if its fake it will eat anyone from inside thinking how theyre being judged.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158967.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “If anyone tells you that a certain person speaks ill of you, do not make excuses about what is said of you but answer, He was ignorant of my other faults, else he would not have mentioned these alone.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158969.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Not exactly what you asked, but I heard a good reply to someone asking Why are you so quiet: Im in mourning For who? The silence </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158970.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Ill f**k your mum so she can have a child that doesnt disappoint her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158971.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “You want to suck WHAT?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158972.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “You will never die of brain cancer.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That might be hurtful if anyone gave a s**t what you think. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158974.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Your b**ch ass got that insult from Reddit” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158975.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “I’m impressed you could come up with that witty insult despite your disadvantage.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158976.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Your breath is so bad, people look forward to your farts” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158977.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “I have neither the time nor the crayons to explain this to you.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158978.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Cute. A lot of these comebacks are very clever, but they just show that youre spending time memorizing a generic phrase because you get insulted a lot. Its like a pickup line - just cheesy. Cute is dismissive and patronizing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158979.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Im only fat because every time I f**k your mom she makes me a sandwich always made me laugh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “The best comeback is to silently pretend you didnt even hear the insult so no one suspects you, then go slash their tires at a designated later time, as well as a simultaneous flaming bag of poo. The divided attention between to two incidents becomes the catalyst for a fight or flight response which will considerably increase the chance that they will actually go right for the stomp in the event that theyve already heard of the flaming bag of poo.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158981.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">20 Times Influencers Had Absolutely No Clue</a><br>
-
-<span style="font-size:4em">1. I do street photography every so often. I was once offered influence credit for pretending to be in shock that I found her in the streets of my town. I would take a bunch of photos of her at the spot and give them to her. This would all be recorded by her, I hope, boyfriend. I wasnt allowed to use the photos myself and all I would get is a tag at the end of the description.
+<span style="font-size:4em">7. Ronald McDonald
 
-I said no thanks. Then snapped a couple photos of her.
-
-She said she would sue me.
-
-I said we were on public streets and Im a hobbyist who doesnt sell. I dont need model waivers.
-
-Never heard from her again.
-
-Never used photos either. Shes not interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157788.jpg" style="width:100%"><br>
+-u/Boureyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157513.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. She asked for $200/hr with a three hour minimum, without any real prior modeling experience, and had conditions that the photos could not be posted anywhere and that she was going to have them sold exclusively on her Patreon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157791.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Trailer voice-over guy. It was used in every single trailer and then it was like he was snapped by Thanos. -u/Strumfius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. She came to me, wanted $200 an hour for three hours work, but also wanted full rights to the photos so I couldnt sell or display them. Basically, to use me as an ATM and for me to pay the pleasure to work with them. Absolutely not. While I have paid $200/hr for a model, I get full rights and 99% of the models agree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157793.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. 3D TVs. -u/NegInk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157516.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I got invited to a friends wedding as a guest. When the wedding was a few weeks away I posted on facebook about some arm surgeries. They messaged me asking if I could still shoot photos. I could not - and they uninvited me. I was never asked to shoot photos, just invited as a guest. Perhaps they assumed I’d bring my camera? I’m a hobbyist, not a pro.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157777.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Ringback tunes. So when someone called you they heard a song of your choice instead of the ringer. -u/luvzandkisses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157517.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Had an influencer try to set up a shoot with me. When I mentioned my price she was shocked because she was under the assumption that I was going to pay her for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157778.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Sitting in class and being blasted in the nose holes by the smells of someone chewing on a watermelon Bubblicious. -u/SternLecture</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157518.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Had someone ask for me to do a videography shoot of their new house being built. They said $200, but they wanted me to go each weekend for 2 years and shoot it to build up a time lapse and stuff. I definitively said no</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157779.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Butterfinger BBs. -u/valyrianqueen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157520.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Influencer asked me to shoot and before I even had the chance to give her my prices she decided to give me hers, over $300 for ME to shoot with HER for 30 minutes, one of her main selling points was she could “teach me how to leverage and grow my social media”.
-
-Girl was 15...
-
-Edit to clarify: She was asking me to pay her $300+ when in reality at a minimum she should be paying me. I don’t even charge that much haha</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157780.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Philadelphia Cheesecake Bars. Pretty sure if heaven had a taste, that’s what it would taste like. -u/TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I own a wedding photography and videography company in Florida. A YouTube “famous” couple inquired with us for their wedding and demanded all of the unedited images and video along with the copyrights so they could edit themselves for their YouTube channel. It’s a request we’ll gladly honor, for the correct price. For those of you who don’t know, copyrights to 800-1500 images and 12+ hours of video goes for tens of thousands of dollars.
-
-They offered to pay us less than half our regular coverage price for everything. Hah. Bye girl. When we told them we wouldn’t accommodate their request, the bride had her MOTHER call me to yell at us for “ruining” their wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157781.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Fruitopia. For a brief spell it was everywhere. -u/maniacalmustacheride</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157522.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Work in a camera store and do photography myself, hear stories about this sort of stuff all the time. Usually just ask model shoots for exposure but I’ve heard and seen stories (there is a fairly popular one at the moment about a photographer in Chicago) about people asking for full wedding shoots for exposure. Not always ‘influencers’ asking these questions either, sometimes arsehole people ask this stuff and then say stuff like ‘well if I had that equipment then we’d be able to get the same results’.
-
-They just don’t have respect for the time that goes into the art form.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157782.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Altoids sours. -u/drfullofshit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157523.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. I do documentary film and I had a non-film job in college and I met this lady who was maybe 30 ask me to do an Instagram video like this and she showed me a professional video-shoot done with a greenscreen, lights and set. I told her I could probably get pretty close to quality (with my Universitys equipment) but it would take time to get a crew together & reserve a studio. She told me no, that I should just record it with my phone. I told her thats not what they did for the Instagram video she just showed me and she said Its on Instagram, that means they recorded it with their phone. She dropped it after I mentioned I charge money and wouldnt just do it to be nice. She has like 10 followers and three of them were pornbots.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157783.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Y’all remember purple and green ketchup & mustard? The 2000’s was a wild wasteland. It was amazing. -u/kileyweasel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Did a shoot with this girl- supposed to be a typical collab. Once we met up she was bossing me around, wouldn’t listen to my suggestions and was talking to me like her employee. After the shoot she demanded I send her the hundreds of raw photos so she could edit them herself and that she didn’t want me to post any so that they would seem like she took them herself. I sent her 3 pics and erased the rest. Never talked to her again. Some models are a trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157784.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. BBS or Bulletin Board Systems. Just before the internet got popular there were computers that were on 24/7 and available to be dialed into with your modem so that a user could play games, download files, and exchange emails with others around the world. It was a lot of fun and we spent many long hours on them. -u/mojoisthebest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157519.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Had someone ask me to do more than a week of videography for them and create a promo video for $200... Not a day... For the whole week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157785.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Richard Simmons. There’s a whole podcast about it. -u/clutterc0re</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157525.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I do photography on the side since I’m mostly film/video.
-
-But I have a friend who has an Instagram account as a side business for fun. I told her I would do a photoshoot for her if she helped me with my resume and cover letter.
-
-Although she has tons of company’s that give her products to review for free, the photo credit she gave me honestly didn’t lead to any followers on my Instagram. So yeah, anyone who wants exposure for crazy work I don’t think knows that they actually don’t give any exposure.
-
-In my case I was the one who brought up the deal and honestly I would have done it for free to get out of the house because she’s my friend. But yeah, that photo credit doesn’t do anything in my experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157786.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Nerds cereal. It was around for, like, three years in the 80s and tasted delicious. Then it disappeared. I still remember what it tasted like. -u/ethnicbonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157526.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Not a photographer personally but a few of my close friends are. My friend we’ll call Sara is a pretty successful photographer for only being college student. About a month ago Sara and I were meeting up for lunch at our University’s Food Court and shes fiddling with her cameras prepping them for a big shoot she has that night when this very attractive girl walks over and starts chatting us up. She makes a few minutes of casual conversation mostly inquiring about Saras cameras, and then finally asks if she’d be interested in doing a shoot. She immediately throws her pitch which had to do with modeling some very risqué outfits up in the mountains just outside of the city and then a few photos directly in the center of downtown. Overall the whole pitch was something that bordered very close to being p*rnographic in nature. Sara tells the girl her typically rates and also states that because of the nature of the shoot she’ll have to charge extra as its not something she typically does or is super comfortable with. The girls face when Sara mentioned the price went from enthusiastic to very “are you kidding me?” She then buts in and says “I have over 85k instagram followers, do you know the kind of exposure working with me would give you? This is a once in a lifetime chance for you.” Sara responds telling her that shes an in house photographer for 3 of the cities largest concert venues, works as a photographer for the newspaper, and is a highly recommended wedding photographer on top of it all. “I don’t work for free” My favorite line she said during this was “I work with people much more famous than you on an almost daily basis. I’ve shot photos for Marilyn Manson, Motley Crue, Shania Twain, Post Malone and a bunch of other musicians that come through and was paid for all of it. Your exposure isn’t worth anything to me” after that the girl got really upset and walked off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157776.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Grooveshark. Opened it one day years ago to find my 7-years of cultivated music playlists gone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Wedding Photographer here, they said they were influencers with a great following that theyd promote me to but when I asked for their handle online, silence.
-
-I get this is a lot as Im fairly well known so an easy target when people look.
-
-Exposure? People die from exposure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157787.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Sierra Mist with Cranberry. Was my absolute favorite but I can never find it anymore. Not sure if its discontinued or just hard to find in my state. -u/brainyolive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A few years back I was in Acadia National Park and we did the Beehive Trail hike. For those unfamiliar it’s basically as close to rock climbing as you can get non harnessed as you are going straight up a cliff on iron rungs and stuff, so super fun and you are rewarded with an amazing view at the top. Most people take a quick snap there at the lip, as most do at the peak of their hike, and then move on to the more rocky area (but less a nice view) to rest.
-
-Anyway while we were there resting two Instagram girls got to the top, and promptly took over the best view of the lip to take various yoga poses. (Because that was totally a natural thing to do after scrambling up a cliff?) For at least ten minutes- families were coming up asking if they could take a picture, but they literally said “we were here first” and “we’ll be here awhile” when asked if they were almost done.
-
-We ended up leaving before they were done but it still boils my blood thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157789.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Yellow Pages. They use to be the go-to place to advertise our business. -u/Perfect-Resort2778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Been a wedding photographer for 12 years. I ROUTINELY get asked to do entire weddings for free. Not even always from Instagram influencers. One time this guy (whom I didnt even like that much) asked me to do a wedding for free for his friend. Someone I didnt even know existed at all until this interaction.
-
-I just imagine walking into a restaurant and asking for the absolute best meal they have for zero dollars and then telling them it will be good for their business to do so.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157790.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Dog poop doesnt turn white anymore. Something that they put in the food now. -u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Not a photographer but related story...
-
-I was at a private event, The insta user actually had a camera man shooting video. 2 hours into the event one of the celebs noticed this random videographer and spoke with security. Security told them to stop filming and destroy any footage already shot. She refused and started yelling and making a fuss. Another (very large) celeb who didnt like his party being ruined, grabbed the video camera, smashed the camera, took the memory chip and his private bodyguards escorted her away.
-
-She ended up posting an expose` which she bashed the celebs that were there and threatened the location with retaliation. This got her account banned from both Instagram and Facebook. Instagram Influencer no more.... 25+k subs lost..
-
-Sorry no names or I dont get to go to these events anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157792.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
 
-<span style="font-size:4em">19. As a photo assistant in Chicago, I had a friend tell me there was a popular NY photographer looking for an assistant on Instagram for a shoot in Chicago. I inquired with the gentleman, and he said he only had a day rate of $150. On top of that, he said the day would be a 14 hour day, and he asked me to pick up his equipment rental which included a 12 foot sweep, and store it at my place to be ready for the shoot the next day. Hell no. 150$ for 17 hours worth of work? Idc which photographer you are pay your assistants correctly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157794.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Beet Poop
-
-Some influencer that was promoting betanin in beets as healthy diet. She want me to take images of the colored-change poop. That this is actually normal in those that cant process the betanin.
-
-(that week, my DSLR was dropped hard, and now I am without it. It was a bad week...)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157795.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">30 People Who Pulled Real Power Moves</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159222.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159223.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159225.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159220.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Bought The 4th Of July M&ms Specifically To Do This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. 70 Ft Sam I Made By Hand. Was Told To Post This Here</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159249.jpg" style="width:100%"><br>
 
 ## <a href="#linky16" id="linky15">30 CIA and FBI Agents Spill (Some) Beans About Agency Secrets</a><br>
 
@@ -1074,7 +1099,49 @@ Edit: if you guys were wondering, he left to join the Navy. Became a nuke EM but
 
 <span style="font-size:4em">30. I wasnt FBI/CIA, I was NSA. But was integrated with both for a few assignments and the biggest thing is that its all way more Office Space than Tom Clancy. Also, every cafeteria has a buffalo chicken salad day, and its usually the best thing they serve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158255.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">30 Facebook Buy/Sell Postings That Are Sketchy AF</a><br>
+## <a href="#linky17" id="linky16">20 Minimalist Mancaves Proving Dudes Are Living Their Best Lives</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012610/87158581/bed.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012622/87158582/basement.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012633/87158583/bike.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012645/87158584/drive.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012653/87158585/coffee.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012656/87158586/furniture.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012609/87158580/ballin.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012706/87158587/guitar.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012708/87158588/hanger.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012717/87158589/liquor.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012719/87158590/music.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012728/87158591/puppers.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012730/87158592/records.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012740/87158593/shoes.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012742/87158594/simple.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012751/87158595/terrace.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012753/87158596/yurt.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013817/87158597/living.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013828/87158598/tv.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013840/87158599/loft.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">30 Facebook Buy/Sell Postings That Are Sketchy AF</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158350.jpg" style="width:100%"><br>
 
@@ -1137,63 +1204,6 @@ FOUND IN UGANDA THE PEAL OF AFRICA</span><br><img src="https://cdn.ebaumsworld.c
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158354.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158355.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">25 Awesome Things That Disappeared without a Trace</a><br>
-
-<span style="font-size:4em">1. The Wonka labeling on Nerds, SweetTarts, etc. -u/PsychedelicLizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Sobe Life Water is mostly gone. -u/AmySchumersAnalTumor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157507.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The live aquarium fish at Walmart. -u/cheerleadersquid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Colored toilet paper, tissue and paper towels. In the seventies, toilet paper came in different colors to match the decor of the day. Green, yellow, pink, and so on. Paper towels and tissues too, usually in yellow and green.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157510.png" style="width:100%"><br>
-
-<span style="font-size:4em">
-They were discontinued when it was found they were a contributing factor to UTIs in girls along with Mr. Bubble bubble bath soap. Also if you had a septic system the dyes interfered with the biological process in the tank. -u/Ill_Maintenance8161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “ROFL.” Everyone uses “lol” and “lmao”, but “rofl” has fallen out of fashion it seems. -u/Shopping-Puzzled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. McDonalds salad. I was about to buy one l earlier but I found out they were discontinued. -u/balloonidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ronald McDonald
-
--u/Boureyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Trailer voice-over guy. It was used in every single trailer and then it was like he was snapped by Thanos. -u/Strumfius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. 3D TVs. -u/NegInk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ringback tunes. So when someone called you they heard a song of your choice instead of the ringer. -u/luvzandkisses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Sitting in class and being blasted in the nose holes by the smells of someone chewing on a watermelon Bubblicious. -u/SternLecture</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157518.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Butterfinger BBs. -u/valyrianqueen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Philadelphia Cheesecake Bars. Pretty sure if heaven had a taste, that’s what it would taste like. -u/TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Fruitopia. For a brief spell it was everywhere. -u/maniacalmustacheride</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Altoids sours. -u/drfullofshit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157523.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Y’all remember purple and green ketchup & mustard? The 2000’s was a wild wasteland. It was amazing. -u/kileyweasel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. BBS or Bulletin Board Systems. Just before the internet got popular there were computers that were on 24/7 and available to be dialed into with your modem so that a user could play games, download files, and exchange emails with others around the world. It was a lot of fun and we spent many long hours on them. -u/mojoisthebest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Richard Simmons. There’s a whole podcast about it. -u/clutterc0re</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Nerds cereal. It was around for, like, three years in the 80s and tasted delicious. Then it disappeared. I still remember what it tasted like. -u/ethnicbonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Grooveshark. Opened it one day years ago to find my 7-years of cultivated music playlists gone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sierra Mist with Cranberry. Was my absolute favorite but I can never find it anymore. Not sure if its discontinued or just hard to find in my state. -u/brainyolive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Yellow Pages. They use to be the go-to place to advertise our business. -u/Perfect-Resort2778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Dog poop doesnt turn white anymore. Something that they put in the food now. -u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157530.jpg" style="width:100%"><br>
 
 ## <a href="#linky19" id="linky18">30 Things So Massive They Made People Afraid</a><br>
 
