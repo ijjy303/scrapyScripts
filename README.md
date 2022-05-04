@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/03/2022-20:11:31
+Last updated: 05/03/2022-21:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
 
@@ -43,7 +43,49 @@ Last updated: 05/03/2022-20:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Movie Flaws That Instantly Ruin the Experience </a><br>
+## <a href="#linky3" id="linky2">20 Minimalist Mancaves Proving Dudes Are Living Their Best Lives</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012610/87158581/bed.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012622/87158582/basement.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012633/87158583/bike.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012645/87158584/drive.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012653/87158585/coffee.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012656/87158586/furniture.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012609/87158580/ballin.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012706/87158587/guitar.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012708/87158588/hanger.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012717/87158589/liquor.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012719/87158590/music.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012728/87158591/puppers.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012730/87158592/records.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012740/87158593/shoes.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012742/87158594/simple.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012751/87158595/terrace.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012753/87158596/yurt.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013817/87158597/living.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013828/87158598/tv.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013840/87158599/loft.png" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Movie Flaws That Instantly Ruin the Experience </a><br>
 
 <span style="font-size:4em">1. When they murder 1000 henchmen without showing a sign of remorse but then dont kill the person who caused all the problems because suddenly morals.-u/Literally_-_Hitler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157480.jpg" style="width:100%"><br>
 
@@ -94,137 +136,6 @@ Last updated: 05/03/2022-20:11:31
 <span style="font-size:4em">24. People not reacting like they would in real life. Ex: the car breaks down in a dark place you have never been. In real life, you call AAA or family/friend to come jumpstart or give you fuel (whatever is needed). Heck, you would even leave the car there and come back tomorrow after being picked up by said family/friend. In the movie, everyone agrees to get out of the safety car and walk towards the dark creepy home they saw 10 miles down, even though everyone knows the area is famous for unsolved murders.-u/Kind-Replacement5788</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157503.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. When I see someone carrying coffee and you can clearly tell the cups are empty. Always takes me out of the movie.-u/HairoftheDog89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157504.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">30 CIA and FBI Agents Spill (Some) Beans About Agency Secrets</a><br>
-
-<span style="font-size:4em">1. When the government shut down hooker sites on backpage and Craigslist the section responsible for hunting human traffickers got pissed. I perused backpage/Jacksonville for six months flagging individuals that matched the description of missing persons. Found a lot of missing girls.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I have a relative that retired from the NSA a few years ago. She has talked about a few things in generalities, nothing specific. Among them:
-
-You will see things that entirely change your view of the world. People go in there all the time with lofty goals of changing things and within months those goals are mostly gone. Still, if you want to change things, you work for the agency. If you just want to make money, you work for a contractor. No one cares what contractors have to say.
-
-Most people that stay long enough will do a tour in counterterrorism. Many people transfer out after a few months, and the average stay is two years because of the visuals. Those who stick around for a long time often change for the worse, and many struggle with mental illnesses, become alcoholics, get divorced, and generally lead miserable lives with their work their only reason for continuing.
-
-Alcoholism in general is rife in the agency. When you cannot speak to anyone outside the agency about your work, it becomes nearly impossible to confide in anyone close to you. Even if you have close work friends or family, you have to be careful what you say because not everyone is read into every program. Two people can sit next to each other in the same office, working on the same subject for months, and never talk about it with each other even though they’re close friends outside the agency. So people turn to the bottle. Her husband worked for a different government agency and also had a Top Secret-SCI clearance, but she couldn’t talk about her work with him (nor could he with her, but he didn’t involve the intelligence community).
-
-The agency employs psychiatrists who are cleared to be read into almost any program. Going to them, though, is often seen as a mark of shame among other agency employees, so they are not used nearly as often as they should be.
-
-She told me most of these things while trying to recruit me. She believed that I should go in knowing what to expect. I eventually declined to apply.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My spouse is an FBI agent. One of the things they had to do at the FBI Academy was going to the Holocaust Museum in D.C. The lesson was what can happen if you blindly follow orders without ever questioning the morality/intent behind them. I found that pretty compelling, and I was glad to hear that its part of their training.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158228.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. There is a book called Moscow Rules. It was written by 2 CIA people, all about, well, disguise.
-
-The CIA had all these agents in Russia, but the Russians were insane about following literally every single American in Russia, 24/7, looking for spies.
-
-So a huge part of their job was trying to shake off the KGB. They had crazy quick-change disguises, all sorts of stuff.
-
-The movie Argo was based on one of the writers somewhat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. While in College (1978/79), this textbook in my Poli Sci class told of a time when Nixon was in office and demanded to leave the White House to go to a musical. Unplanned no prep for anything. Major s**t storm for the Secret Service. Eventually, They got Nixon to calm down and they never went out.
-
-One of our close new neighbors happened to work for the Secret Service. His family came over to our Family home for dinner one evening. Eventually, it came out he worked on the Nixon Detail a few years back thats when I shared the story I read in my textbook.
-
-He actually almost dropped his fork and say there with his mouth wide open. Apparently, the story was not only true but was supposed to be a secret. I showed him my book and he notated the author. I have no idea the outcome but it made the night more interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Not an FBI or CIA officer here, but my sister is a district attorney, and over the years she has prosecuted a number of animal-cruelty cases. This led to her having an ongoing partnership with the FBI for the last several years. It turns out the FBI started tracking animal cruelty cases about 10-15 years ago due to the incredibly high correlation between harming animals when youre young and becoming a serial violent offender as an adult.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Somewhat unrelated but my great uncle was an FBI agent. Every time we would ask him if he had any interesting stories but he would say he was sworn I to secrecy. After 10 years of hearing this, my sister asked “Really?” and he responded with “No, I just don’t remember anything interesting happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My SIL is involved in these organizations. She cant tell us much about what she does, but she has a large backpack with a radiophone on top. If the phone rings shes told us you dont answer it. You just drop everything and get out of town faster than ASAP.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A friend applied to work at the FBI. He was required to tell them anything illegal he had done so he told them he had illegally downloaded a bunch of media and they laughed and said if that disqualified you, no one would work there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. My dad worked for the government, and he told me that anytime he had a meaningful interaction with someone who wasnt American (ie going over to my friends house for the lunar new year, or going on vacation to Canada) he had to report it all and if he saw anything suspicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158226.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This is anecdotal and years old, but our family still gets a kick out of it...
-
-I had a great uncle who was in construction years ago, he did high-quality rendering and plasterwork - he did some jobs for some security stuff in Australia.
-
-In his later years, he would rave about the CIA and FBI and Australian secret services being in the country, with technology wed never seen nor would see for decades.
-
-In so 60s and 70s, were talking about in-ear communication devices, wristwatches with video and audio, small portable computer tablets, and super small/thin screens in full high-quality color, delivering information worldwide in seconds.
-
-His ramblings got to the point where it was conspiracy theory level, and was before smartphones and pads were really a household item... now though, what he described was VERY accurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I negotiated huge deals with the Russian government. I was tailed 24/7. One time I didnt like the room the hotel gave me (I knew it faced the noisy side bc I stayed there all the time) and instead of just giving me a new room it was a 90-minute wait while they bugged a new room for me. Twice I had bizarro run-ins with very pushy, very hot women who allegedly wanted to f**k me so bad... Even if I was straight, hot in Russia is a mix between a Bratz doll and a hooker, so no thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. My grandfather was CIA.. we all knew better, no one asked. Over time as his assignments became unclassified, he would slowly tell little stories. Was eating dinner. He asks my mom you remember that time y’all dropped me off at Dulles airport? I actually flew to Camp Perry. And was then helicoptered overseas. My mom replied which time. Turns out he was a demo expert. Defused bombs. Spent 30 years all over the world. His claim to fame Toyko Rose used to call him personally. Every time he landed in Japan. Man never traveled under his real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Worked with a woman who was a former NSA. We would always beg her to tell us s**t, but she never did. The one thing she did say, though, was that during training they show them a video of a bunch of things theyve found out about and stopped. She said she hardly slept for two weeks after watching that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My high school girlfriend worked for the National Reconnaissance Office after college. At the time, they were responsible for analyzing the nations spy satellite photos. She told me two things.
-
-Theres a special garbage chute for classified materials. Its in the hallway. When you are new, as a hazing ritual they tell you you have to shout your badge number down the chute before throwing in any materials. This is hilarious.
-
-She wouldnt tell me anything about the resolution quality of the spy photos, of course, but she did let it slip that because Russian sailors will sunbathe nude on the decks of their submarines in the Black Sea, several women in the office would pin those photos up in their cubicles as beefcake photos. So a few decades ago, US spy photos could resolve Russian penis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Met an old, retired, CIA spook at a wedding reception. Spitting image of Col. Sanders, he was amazing.
-
-So I asked him I dont want you to tell me anything you cant, but Id love to know when Kennedy got killed, what was the talk around the water cooler in the office?
-
-He didnt halt, or pause to think.
-
-Hell, we all thought Johnson did it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My dad worked for GCHQ in the 80s doing voice recognition and he cant say anything more for a decade more.
-
-The way they can recognize you by Siri/Google today was being used in the 80s... Just a bit slower...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Any gadget with a microphone that connects to the internet is always listening. Odds are good a human wont ever hear anything said because they are collecting data to sell to other companies. But they are listening, cataloging, and collating it all into databases. I wont get in trouble for that because you already gave permission for your devices to do that. You just clicked accept without reading your terms of use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. We are all told never to use sites like this and social media, in general, is pretty much a no-go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I talked with some CIA recruiters towards the end of college and almost applied earnestly after a large group Q&A and then a much smaller one.
-
-The thing that stuck out to me was that the guys said most CIA agents are out of shape and have limited combat training with guns or hand to hand. They made it clear that it’s the military that uses force. If confronted they were trained to immediately surrender or to drop their bags and run if possible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I worked with the Australian Federal Police with the spider squad doing computer stuff for them in regards to pedos and finding trafficking victims - it is the most heartbreaking work but when you get them the office looked like NASA after the Mars landing
-
-Edit; left 3 and a bit years ago but do get called up to lend a hand every now and then</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Not either of these, but Ive had a clearance so I can weigh in a little.
-
-Two things:
-
-Firstly, most secret s**t happens right in front of peoples faces under the guise of being normal everyday stuff.
-
-Secondly, properly secret programs and operations are never named in any way that indicates what they actually are about. Theyre generally just two words chosen at random and that would rarely come up in normal conversation, stuff like Cracked Gorilla (which I just made up off the top of my head.)
-
-So when people talk about classified stuff and its name is super topical, its either very very old or a nickname at best. Only public programs and operations have topical names as a PR motive, like Desert Storm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I was an analyst at the NSA, AMA.
-Most of the time when people see on my resume that I worked there, they want to know what I did or what its like to work there. (btw, if youre HR and you see someone with this on their resume, please dont make it everyones business)
-What I tell people is that no matter how smart you think you are, or what your view of whats possible is, working there will redefine both of those concepts. There are offices there that worked on unimaginable things--literally stuff you would never think of.
-Obviously, I cant share anything about what I learned, but I always tell people to imagine an office so specialized that their job is to measure the grease spots on satellite photos outside of foreign military bases. By analyzing the size, shape, color, and position of the grease spots, they can extrapolate all kinds of information about what goes into and out of the base (ops tempo, manning, equipment, etc.).
-People talk about the uberization of things, like making use of untapped assets (spare room for Airbnb, downtime for driving for Uber, etc.), but intel agencies mastered it long ago. The world around you is absolutely brimming with collectible intelligence that if leveraged and analyzed smartly, can tell you (or an adversary) a ton.
-I am not special. I worked in a very compartmented area of the intel side, but I also did a night job where I cleaned up offices (because they couldnt just hire any old janitor, they needed people with clearances to empty garbage cans, etc.), and often I would talk to the people in the offices about what they do, or youd just see it since, well... its an office and some workspaces it is impossible to not have an idea of whats going on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I applied for a job as a computer programmer for the CIA in the 1980s which required a top-secret clearance. The application was 17 pages long and wanted to know the exact dates of any illegal drug use, your sexual proclivities as well as every place you have ever lived as well as other things. The second interview would be conducted while taking a polygraph test. I noped out on that one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. 95% of individuals can be uniquely identified using as few as 4 spacio-temporal points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Not CIA but have worked with and know guys in intelligence. Most of the intelligence we get is from OSINT (open source intel. ie news articles, press releases, news networks, and government announcements)
-
-Most people think that everyone in intelligence is some James Bond/ Jason Bourne type of individual when in reality, the majority of analysts sit at a desk and go through news articles all day.
-
-That said, that’s not the only method we have to gather intel, but it is where most of it comes from. Even analysts that are using other methods such as GEOINT, IMINT, and SIGINT spend their day cropping images for minute details or replaying and monitoring the same signal over and over again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Intelligence work is really boring most of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. If you apply for a job at GCHQ/MI5/MI6/Fylingdales/etc. they will talk to every member of your close family and if any minor red flags come up you might not get the job.
-
-And also if you are Chinese/Russian/North Korean/etc. (I think that it probably goes to a grandparent or great grandparent being from that country) you will not even be able to apply.
-
-Source: Stepdad was in MI6 and fun-fact; if he wants to go to certain countries (eg. Israel) he has to ask permission from the MOD to travel there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I dont know if Im allowed to say it but a mentor who definitely wasnt supposed to tell me used to be a white hat for the FBI. Apparently, all he did was search for pedophiles by tracking child pornography.
-
-He said he didnt stay for very long because it was messing with his mentality
-
-Edit: if you guys were wondering, he left to join the Navy. Became a nuke EM but they pulled him out of the program because of his cybersecurity skills and before I left our command, he was helping our CMC connect his computer to a projector. Sorry to put you in the spotlight EM1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I wasnt FBI/CIA, I was NSA. But was integrated with both for a few assignments and the biggest thing is that its all way more Office Space than Tom Clancy. Also, every cafeteria has a buffalo chicken salad day, and its usually the best thing they serve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158255.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">36 Landlords Who Are Just the Worst</a><br>
 
@@ -298,143 +209,171 @@ Edit: if you guys were wondering, he left to join the Navy. Became a nuke EM but
 
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158497.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 Times Influencers Had Absolutely No Clue</a><br>
+## <a href="#linky6" id="linky5">49 Fun Randoms to Spice up the Day</a><br>
 
-<span style="font-size:4em">1. I do street photography every so often. I was once offered influence credit for pretending to be in shock that I found her in the streets of my town. I would take a bunch of photos of her at the spot and give them to her. This would all be recorded by her, I hope, boyfriend. I wasnt allowed to use the photos myself and all I would get is a tag at the end of the description.
-
-I said no thanks. Then snapped a couple photos of her.
-
-She said she would sue me.
-
-I said we were on public streets and Im a hobbyist who doesnt sell. I dont need model waivers.
-
-Never heard from her again.
-
-Never used photos either. Shes not interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157788.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. She asked for $200/hr with a three hour minimum, without any real prior modeling experience, and had conditions that the photos could not be posted anywhere and that she was going to have them sold exclusively on her Patreon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157791.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. She came to me, wanted $200 an hour for three hours work, but also wanted full rights to the photos so I couldnt sell or display them. Basically, to use me as an ATM and for me to pay the pleasure to work with them. Absolutely not. While I have paid $200/hr for a model, I get full rights and 99% of the models agree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157793.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I got invited to a friends wedding as a guest. When the wedding was a few weeks away I posted on facebook about some arm surgeries. They messaged me asking if I could still shoot photos. I could not - and they uninvited me. I was never asked to shoot photos, just invited as a guest. Perhaps they assumed I’d bring my camera? I’m a hobbyist, not a pro.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157777.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Had an influencer try to set up a shoot with me. When I mentioned my price she was shocked because she was under the assumption that I was going to pay her for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157778.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Had someone ask for me to do a videography shoot of their new house being built. They said $200, but they wanted me to go each weekend for 2 years and shoot it to build up a time lapse and stuff. I definitively said no</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157779.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Influencer asked me to shoot and before I even had the chance to give her my prices she decided to give me hers, over $300 for ME to shoot with HER for 30 minutes, one of her main selling points was she could “teach me how to leverage and grow my social media”.
-
-Girl was 15...
-
-Edit to clarify: She was asking me to pay her $300+ when in reality at a minimum she should be paying me. I don’t even charge that much haha</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157780.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I own a wedding photography and videography company in Florida. A YouTube “famous” couple inquired with us for their wedding and demanded all of the unedited images and video along with the copyrights so they could edit themselves for their YouTube channel. It’s a request we’ll gladly honor, for the correct price. For those of you who don’t know, copyrights to 800-1500 images and 12+ hours of video goes for tens of thousands of dollars.
-
-They offered to pay us less than half our regular coverage price for everything. Hah. Bye girl. When we told them we wouldn’t accommodate their request, the bride had her MOTHER call me to yell at us for “ruining” their wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157781.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Work in a camera store and do photography myself, hear stories about this sort of stuff all the time. Usually just ask model shoots for exposure but I’ve heard and seen stories (there is a fairly popular one at the moment about a photographer in Chicago) about people asking for full wedding shoots for exposure. Not always ‘influencers’ asking these questions either, sometimes arsehole people ask this stuff and then say stuff like ‘well if I had that equipment then we’d be able to get the same results’.
-
-They just don’t have respect for the time that goes into the art form.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157782.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I do documentary film and I had a non-film job in college and I met this lady who was maybe 30 ask me to do an Instagram video like this and she showed me a professional video-shoot done with a greenscreen, lights and set. I told her I could probably get pretty close to quality (with my Universitys equipment) but it would take time to get a crew together & reserve a studio. She told me no, that I should just record it with my phone. I told her thats not what they did for the Instagram video she just showed me and she said Its on Instagram, that means they recorded it with their phone. She dropped it after I mentioned I charge money and wouldnt just do it to be nice. She has like 10 followers and three of them were pornbots.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157783.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Did a shoot with this girl- supposed to be a typical collab. Once we met up she was bossing me around, wouldn’t listen to my suggestions and was talking to me like her employee. After the shoot she demanded I send her the hundreds of raw photos so she could edit them herself and that she didn’t want me to post any so that they would seem like she took them herself. I sent her 3 pics and erased the rest. Never talked to her again. Some models are a trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157784.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Had someone ask me to do more than a week of videography for them and create a promo video for $200... Not a day... For the whole week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157785.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. I do photography on the side since I’m mostly film/video.
-
-But I have a friend who has an Instagram account as a side business for fun. I told her I would do a photoshoot for her if she helped me with my resume and cover letter.
-
-Although she has tons of company’s that give her products to review for free, the photo credit she gave me honestly didn’t lead to any followers on my Instagram. So yeah, anyone who wants exposure for crazy work I don’t think knows that they actually don’t give any exposure.
-
-In my case I was the one who brought up the deal and honestly I would have done it for free to get out of the house because she’s my friend. But yeah, that photo credit doesn’t do anything in my experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157786.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Not a photographer personally but a few of my close friends are. My friend we’ll call Sara is a pretty successful photographer for only being college student. About a month ago Sara and I were meeting up for lunch at our University’s Food Court and shes fiddling with her cameras prepping them for a big shoot she has that night when this very attractive girl walks over and starts chatting us up. She makes a few minutes of casual conversation mostly inquiring about Saras cameras, and then finally asks if she’d be interested in doing a shoot. She immediately throws her pitch which had to do with modeling some very risqué outfits up in the mountains just outside of the city and then a few photos directly in the center of downtown. Overall the whole pitch was something that bordered very close to being p*rnographic in nature. Sara tells the girl her typically rates and also states that because of the nature of the shoot she’ll have to charge extra as its not something she typically does or is super comfortable with. The girls face when Sara mentioned the price went from enthusiastic to very “are you kidding me?” She then buts in and says “I have over 85k instagram followers, do you know the kind of exposure working with me would give you? This is a once in a lifetime chance for you.” Sara responds telling her that shes an in house photographer for 3 of the cities largest concert venues, works as a photographer for the newspaper, and is a highly recommended wedding photographer on top of it all. “I don’t work for free” My favorite line she said during this was “I work with people much more famous than you on an almost daily basis. I’ve shot photos for Marilyn Manson, Motley Crue, Shania Twain, Post Malone and a bunch of other musicians that come through and was paid for all of it. Your exposure isn’t worth anything to me” after that the girl got really upset and walked off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157776.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Wedding Photographer here, they said they were influencers with a great following that theyd promote me to but when I asked for their handle online, silence.
-
-I get this is a lot as Im fairly well known so an easy target when people look.
-
-Exposure? People die from exposure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157787.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A few years back I was in Acadia National Park and we did the Beehive Trail hike. For those unfamiliar it’s basically as close to rock climbing as you can get non harnessed as you are going straight up a cliff on iron rungs and stuff, so super fun and you are rewarded with an amazing view at the top. Most people take a quick snap there at the lip, as most do at the peak of their hike, and then move on to the more rocky area (but less a nice view) to rest.
-
-Anyway while we were there resting two Instagram girls got to the top, and promptly took over the best view of the lip to take various yoga poses. (Because that was totally a natural thing to do after scrambling up a cliff?) For at least ten minutes- families were coming up asking if they could take a picture, but they literally said “we were here first” and “we’ll be here awhile” when asked if they were almost done.
-
-We ended up leaving before they were done but it still boils my blood thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157789.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156633.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Been a wedding photographer for 12 years. I ROUTINELY get asked to do entire weddings for free. Not even always from Instagram influencers. One time this guy (whom I didnt even like that much) asked me to do a wedding for free for his friend. Someone I didnt even know existed at all until this interaction.
-
-I just imagine walking into a restaurant and asking for the absolute best meal they have for zero dollars and then telling them it will be good for their business to do so.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157790.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Not a photographer but related story...
-
-I was at a private event, The insta user actually had a camera man shooting video. 2 hours into the event one of the celebs noticed this random videographer and spoke with security. Security told them to stop filming and destroy any footage already shot. She refused and started yelling and making a fuss. Another (very large) celeb who didnt like his party being ruined, grabbed the video camera, smashed the camera, took the memory chip and his private bodyguards escorted her away.
-
-She ended up posting an expose` which she bashed the celebs that were there and threatened the location with retaliation. This got her account banned from both Instagram and Facebook. Instagram Influencer no more.... 25+k subs lost..
-
-Sorry no names or I dont get to go to these events anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157792.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. As a photo assistant in Chicago, I had a friend tell me there was a popular NY photographer looking for an assistant on Instagram for a shoot in Chicago. I inquired with the gentleman, and he said he only had a day rate of $150. On top of that, he said the day would be a 14 hour day, and he asked me to pick up his equipment rental which included a 12 foot sweep, and store it at my place to be ready for the shoot the next day. Hell no. 150$ for 17 hours worth of work? Idc which photographer you are pay your assistants correctly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157794.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Beet Poop
-
-Some influencer that was promoting betanin in beets as healthy diet. She want me to take images of the colored-change poop. That this is actually normal in those that cant process the betanin.
-
-(that week, my DSLR was dropped hard, and now I am without it. It was a bad week...)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157795.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156637.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Savage Comebacks To Win Your Next Argument</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156638.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “I learned this in third grade: If someone sticks their tongue out at you, say, No thanks...I use toilet paper. They will never do it again. Works with ALL ages.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158957.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “OH now I see what people were talking about And never fill them in.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158958.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Reply by Billy Connolly to a heckler. Save your breath youll need it for your blow up doll” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158959.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “If somebody says “what are you looking at?” I respond with “I’m asking myself the same thing”” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158960.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156642.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “I’ve been called worse by better.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158961.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156643.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I envy the people whove never met you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158962.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “I’m sorry I wasn’t listening.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158963.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Anytime a redneck curses at me I say a variation of “You f**k your sister with that mouth?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158968.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Usually in England one of the most common insults is “youre gay” in response say “Don’t get your hopes up”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158964.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Not reeeeally an insult, but: if someone says thats what she said! I reply with a solid yeah, not to you. never fails to amuse.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158965.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “When somebody says, “Do you know who my father is?” Just reply, “Why? Your mom didn’t tell you?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158966.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “What people say about you was indeed the truth! even if its fake it will eat anyone from inside thinking how theyre being judged.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158967.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “If anyone tells you that a certain person speaks ill of you, do not make excuses about what is said of you but answer, He was ignorant of my other faults, else he would not have mentioned these alone.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158969.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Not exactly what you asked, but I heard a good reply to someone asking Why are you so quiet: Im in mourning For who? The silence </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158970.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Ill f**k your mum so she can have a child that doesnt disappoint her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158971.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “You want to suck WHAT?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158972.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “You will never die of brain cancer.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158973.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. That might be hurtful if anyone gave a s**t what you think. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158974.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Your b**ch ass got that insult from Reddit” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158975.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “I’m impressed you could come up with that witty insult despite your disadvantage.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158976.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Your breath is so bad, people look forward to your farts” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158977.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. “I have neither the time nor the crayons to explain this to you.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158978.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Cute. A lot of these comebacks are very clever, but they just show that youre spending time memorizing a generic phrase because you get insulted a lot. Its like a pickup line - just cheesy. Cute is dismissive and patronizing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158979.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Im only fat because every time I f**k your mom she makes me a sandwich always made me laugh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158980.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “The best comeback is to silently pretend you didnt even hear the insult so no one suspects you, then go slash their tires at a designated later time, as well as a simultaneous flaming bag of poo. The divided attention between to two incidents becomes the catalyst for a fight or flight response which will considerably increase the chance that they will actually go right for the stomp in the event that theyve already heard of the flaming bag of poo.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158981.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156666.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">32 Fails From People Who Had One Job</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158428.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">30 Dark Secrets Arlines Don't Want You to Know</a><br>
 
@@ -866,49 +805,276 @@ His eyes were weirdly focused on us but was whimpering and writhing. He kept say
 
 <span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Minimalist Mancaves Proving Dudes Are Living Their Best Lives</a><br>
+## <a href="#linky14" id="linky13">25 Savage Comebacks To Win Your Next Argument</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012610/87158581/bed.png" style="width:100%"><br>
+<span style="font-size:4em">1. “I learned this in third grade: If someone sticks their tongue out at you, say, No thanks...I use toilet paper. They will never do it again. Works with ALL ages.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012622/87158582/basement.png" style="width:100%"><br>
+<span style="font-size:4em">2. “OH now I see what people were talking about And never fill them in.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012633/87158583/bike.png" style="width:100%"><br>
+<span style="font-size:4em">3. “Reply by Billy Connolly to a heckler. Save your breath youll need it for your blow up doll” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012645/87158584/drive.png" style="width:100%"><br>
+<span style="font-size:4em">4. “If somebody says “what are you looking at?” I respond with “I’m asking myself the same thing”” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012653/87158585/coffee.png" style="width:100%"><br>
+<span style="font-size:4em">5. “I’ve been called worse by better.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012656/87158586/furniture.png" style="width:100%"><br>
+<span style="font-size:4em">6. I envy the people whove never met you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012609/87158580/ballin.png" style="width:100%"><br>
+<span style="font-size:4em">7. “I’m sorry I wasn’t listening.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012706/87158587/guitar.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Anytime a redneck curses at me I say a variation of “You f**k your sister with that mouth?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012708/87158588/hanger.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Usually in England one of the most common insults is “youre gay” in response say “Don’t get your hopes up”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012717/87158589/liquor.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Not reeeeally an insult, but: if someone says thats what she said! I reply with a solid yeah, not to you. never fails to amuse.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012719/87158590/music.png" style="width:100%"><br>
+<span style="font-size:4em">11. “When somebody says, “Do you know who my father is?” Just reply, “Why? Your mom didn’t tell you?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012728/87158591/puppers.png" style="width:100%"><br>
+<span style="font-size:4em">12. “What people say about you was indeed the truth! even if its fake it will eat anyone from inside thinking how theyre being judged.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012730/87158592/records.png" style="width:100%"><br>
+<span style="font-size:4em">13. “If anyone tells you that a certain person speaks ill of you, do not make excuses about what is said of you but answer, He was ignorant of my other faults, else he would not have mentioned these alone.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012740/87158593/shoes.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Not exactly what you asked, but I heard a good reply to someone asking Why are you so quiet: Im in mourning For who? The silence </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012742/87158594/simple.png" style="width:100%"><br>
+<span style="font-size:4em">15. “Ill f**k your mum so she can have a child that doesnt disappoint her.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012751/87158595/terrace.png" style="width:100%"><br>
+<span style="font-size:4em">16. “You want to suck WHAT?” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/012753/87158596/yurt.png" style="width:100%"><br>
+<span style="font-size:4em">17. “You will never die of brain cancer.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013817/87158597/living.png" style="width:100%"><br>
+<span style="font-size:4em">18. That might be hurtful if anyone gave a s**t what you think. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013828/87158598/tv.png" style="width:100%"><br>
+<span style="font-size:4em">19. “Your b**ch ass got that insult from Reddit” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/02/013840/87158599/loft.png" style="width:100%"><br>
+<span style="font-size:4em">20. “I’m impressed you could come up with that witty insult despite your disadvantage.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158976.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 Facebook Buy/Sell Postings That Are Sketchy AF</a><br>
+<span style="font-size:4em">21. Your breath is so bad, people look forward to your farts” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158977.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “I have neither the time nor the crayons to explain this to you.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158978.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Cute. A lot of these comebacks are very clever, but they just show that youre spending time memorizing a generic phrase because you get insulted a lot. Its like a pickup line - just cheesy. Cute is dismissive and patronizing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158979.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Im only fat because every time I f**k your mom she makes me a sandwich always made me laugh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “The best comeback is to silently pretend you didnt even hear the insult so no one suspects you, then go slash their tires at a designated later time, as well as a simultaneous flaming bag of poo. The divided attention between to two incidents becomes the catalyst for a fight or flight response which will considerably increase the chance that they will actually go right for the stomp in the event that theyve already heard of the flaming bag of poo.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158981.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">20 Times Influencers Had Absolutely No Clue</a><br>
+
+<span style="font-size:4em">1. I do street photography every so often. I was once offered influence credit for pretending to be in shock that I found her in the streets of my town. I would take a bunch of photos of her at the spot and give them to her. This would all be recorded by her, I hope, boyfriend. I wasnt allowed to use the photos myself and all I would get is a tag at the end of the description.
+
+I said no thanks. Then snapped a couple photos of her.
+
+She said she would sue me.
+
+I said we were on public streets and Im a hobbyist who doesnt sell. I dont need model waivers.
+
+Never heard from her again.
+
+Never used photos either. Shes not interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. She asked for $200/hr with a three hour minimum, without any real prior modeling experience, and had conditions that the photos could not be posted anywhere and that she was going to have them sold exclusively on her Patreon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. She came to me, wanted $200 an hour for three hours work, but also wanted full rights to the photos so I couldnt sell or display them. Basically, to use me as an ATM and for me to pay the pleasure to work with them. Absolutely not. While I have paid $200/hr for a model, I get full rights and 99% of the models agree.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I got invited to a friends wedding as a guest. When the wedding was a few weeks away I posted on facebook about some arm surgeries. They messaged me asking if I could still shoot photos. I could not - and they uninvited me. I was never asked to shoot photos, just invited as a guest. Perhaps they assumed I’d bring my camera? I’m a hobbyist, not a pro.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Had an influencer try to set up a shoot with me. When I mentioned my price she was shocked because she was under the assumption that I was going to pay her for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Had someone ask for me to do a videography shoot of their new house being built. They said $200, but they wanted me to go each weekend for 2 years and shoot it to build up a time lapse and stuff. I definitively said no</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Influencer asked me to shoot and before I even had the chance to give her my prices she decided to give me hers, over $300 for ME to shoot with HER for 30 minutes, one of her main selling points was she could “teach me how to leverage and grow my social media”.
+
+Girl was 15...
+
+Edit to clarify: She was asking me to pay her $300+ when in reality at a minimum she should be paying me. I don’t even charge that much haha</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I own a wedding photography and videography company in Florida. A YouTube “famous” couple inquired with us for their wedding and demanded all of the unedited images and video along with the copyrights so they could edit themselves for their YouTube channel. It’s a request we’ll gladly honor, for the correct price. For those of you who don’t know, copyrights to 800-1500 images and 12+ hours of video goes for tens of thousands of dollars.
+
+They offered to pay us less than half our regular coverage price for everything. Hah. Bye girl. When we told them we wouldn’t accommodate their request, the bride had her MOTHER call me to yell at us for “ruining” their wedding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Work in a camera store and do photography myself, hear stories about this sort of stuff all the time. Usually just ask model shoots for exposure but I’ve heard and seen stories (there is a fairly popular one at the moment about a photographer in Chicago) about people asking for full wedding shoots for exposure. Not always ‘influencers’ asking these questions either, sometimes arsehole people ask this stuff and then say stuff like ‘well if I had that equipment then we’d be able to get the same results’.
+
+They just don’t have respect for the time that goes into the art form.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I do documentary film and I had a non-film job in college and I met this lady who was maybe 30 ask me to do an Instagram video like this and she showed me a professional video-shoot done with a greenscreen, lights and set. I told her I could probably get pretty close to quality (with my Universitys equipment) but it would take time to get a crew together & reserve a studio. She told me no, that I should just record it with my phone. I told her thats not what they did for the Instagram video she just showed me and she said Its on Instagram, that means they recorded it with their phone. She dropped it after I mentioned I charge money and wouldnt just do it to be nice. She has like 10 followers and three of them were pornbots.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Did a shoot with this girl- supposed to be a typical collab. Once we met up she was bossing me around, wouldn’t listen to my suggestions and was talking to me like her employee. After the shoot she demanded I send her the hundreds of raw photos so she could edit them herself and that she didn’t want me to post any so that they would seem like she took them herself. I sent her 3 pics and erased the rest. Never talked to her again. Some models are a trip.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had someone ask me to do more than a week of videography for them and create a promo video for $200... Not a day... For the whole week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. I do photography on the side since I’m mostly film/video.
+
+But I have a friend who has an Instagram account as a side business for fun. I told her I would do a photoshoot for her if she helped me with my resume and cover letter.
+
+Although she has tons of company’s that give her products to review for free, the photo credit she gave me honestly didn’t lead to any followers on my Instagram. So yeah, anyone who wants exposure for crazy work I don’t think knows that they actually don’t give any exposure.
+
+In my case I was the one who brought up the deal and honestly I would have done it for free to get out of the house because she’s my friend. But yeah, that photo credit doesn’t do anything in my experience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Not a photographer personally but a few of my close friends are. My friend we’ll call Sara is a pretty successful photographer for only being college student. About a month ago Sara and I were meeting up for lunch at our University’s Food Court and shes fiddling with her cameras prepping them for a big shoot she has that night when this very attractive girl walks over and starts chatting us up. She makes a few minutes of casual conversation mostly inquiring about Saras cameras, and then finally asks if she’d be interested in doing a shoot. She immediately throws her pitch which had to do with modeling some very risqué outfits up in the mountains just outside of the city and then a few photos directly in the center of downtown. Overall the whole pitch was something that bordered very close to being p*rnographic in nature. Sara tells the girl her typically rates and also states that because of the nature of the shoot she’ll have to charge extra as its not something she typically does or is super comfortable with. The girls face when Sara mentioned the price went from enthusiastic to very “are you kidding me?” She then buts in and says “I have over 85k instagram followers, do you know the kind of exposure working with me would give you? This is a once in a lifetime chance for you.” Sara responds telling her that shes an in house photographer for 3 of the cities largest concert venues, works as a photographer for the newspaper, and is a highly recommended wedding photographer on top of it all. “I don’t work for free” My favorite line she said during this was “I work with people much more famous than you on an almost daily basis. I’ve shot photos for Marilyn Manson, Motley Crue, Shania Twain, Post Malone and a bunch of other musicians that come through and was paid for all of it. Your exposure isn’t worth anything to me” after that the girl got really upset and walked off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wedding Photographer here, they said they were influencers with a great following that theyd promote me to but when I asked for their handle online, silence.
+
+I get this is a lot as Im fairly well known so an easy target when people look.
+
+Exposure? People die from exposure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A few years back I was in Acadia National Park and we did the Beehive Trail hike. For those unfamiliar it’s basically as close to rock climbing as you can get non harnessed as you are going straight up a cliff on iron rungs and stuff, so super fun and you are rewarded with an amazing view at the top. Most people take a quick snap there at the lip, as most do at the peak of their hike, and then move on to the more rocky area (but less a nice view) to rest.
+
+Anyway while we were there resting two Instagram girls got to the top, and promptly took over the best view of the lip to take various yoga poses. (Because that was totally a natural thing to do after scrambling up a cliff?) For at least ten minutes- families were coming up asking if they could take a picture, but they literally said “we were here first” and “we’ll be here awhile” when asked if they were almost done.
+
+We ended up leaving before they were done but it still boils my blood thinking about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Been a wedding photographer for 12 years. I ROUTINELY get asked to do entire weddings for free. Not even always from Instagram influencers. One time this guy (whom I didnt even like that much) asked me to do a wedding for free for his friend. Someone I didnt even know existed at all until this interaction.
+
+I just imagine walking into a restaurant and asking for the absolute best meal they have for zero dollars and then telling them it will be good for their business to do so.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Not a photographer but related story...
+
+I was at a private event, The insta user actually had a camera man shooting video. 2 hours into the event one of the celebs noticed this random videographer and spoke with security. Security told them to stop filming and destroy any footage already shot. She refused and started yelling and making a fuss. Another (very large) celeb who didnt like his party being ruined, grabbed the video camera, smashed the camera, took the memory chip and his private bodyguards escorted her away.
+
+She ended up posting an expose` which she bashed the celebs that were there and threatened the location with retaliation. This got her account banned from both Instagram and Facebook. Instagram Influencer no more.... 25+k subs lost..
+
+Sorry no names or I dont get to go to these events anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. As a photo assistant in Chicago, I had a friend tell me there was a popular NY photographer looking for an assistant on Instagram for a shoot in Chicago. I inquired with the gentleman, and he said he only had a day rate of $150. On top of that, he said the day would be a 14 hour day, and he asked me to pick up his equipment rental which included a 12 foot sweep, and store it at my place to be ready for the shoot the next day. Hell no. 150$ for 17 hours worth of work? Idc which photographer you are pay your assistants correctly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Beet Poop
+
+Some influencer that was promoting betanin in beets as healthy diet. She want me to take images of the colored-change poop. That this is actually normal in those that cant process the betanin.
+
+(that week, my DSLR was dropped hard, and now I am without it. It was a bad week...)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157795.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">30 CIA and FBI Agents Spill (Some) Beans About Agency Secrets</a><br>
+
+<span style="font-size:4em">1. When the government shut down hooker sites on backpage and Craigslist the section responsible for hunting human traffickers got pissed. I perused backpage/Jacksonville for six months flagging individuals that matched the description of missing persons. Found a lot of missing girls.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I have a relative that retired from the NSA a few years ago. She has talked about a few things in generalities, nothing specific. Among them:
+
+You will see things that entirely change your view of the world. People go in there all the time with lofty goals of changing things and within months those goals are mostly gone. Still, if you want to change things, you work for the agency. If you just want to make money, you work for a contractor. No one cares what contractors have to say.
+
+Most people that stay long enough will do a tour in counterterrorism. Many people transfer out after a few months, and the average stay is two years because of the visuals. Those who stick around for a long time often change for the worse, and many struggle with mental illnesses, become alcoholics, get divorced, and generally lead miserable lives with their work their only reason for continuing.
+
+Alcoholism in general is rife in the agency. When you cannot speak to anyone outside the agency about your work, it becomes nearly impossible to confide in anyone close to you. Even if you have close work friends or family, you have to be careful what you say because not everyone is read into every program. Two people can sit next to each other in the same office, working on the same subject for months, and never talk about it with each other even though they’re close friends outside the agency. So people turn to the bottle. Her husband worked for a different government agency and also had a Top Secret-SCI clearance, but she couldn’t talk about her work with him (nor could he with her, but he didn’t involve the intelligence community).
+
+The agency employs psychiatrists who are cleared to be read into almost any program. Going to them, though, is often seen as a mark of shame among other agency employees, so they are not used nearly as often as they should be.
+
+She told me most of these things while trying to recruit me. She believed that I should go in knowing what to expect. I eventually declined to apply.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My spouse is an FBI agent. One of the things they had to do at the FBI Academy was going to the Holocaust Museum in D.C. The lesson was what can happen if you blindly follow orders without ever questioning the morality/intent behind them. I found that pretty compelling, and I was glad to hear that its part of their training.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158228.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. There is a book called Moscow Rules. It was written by 2 CIA people, all about, well, disguise.
+
+The CIA had all these agents in Russia, but the Russians were insane about following literally every single American in Russia, 24/7, looking for spies.
+
+So a huge part of their job was trying to shake off the KGB. They had crazy quick-change disguises, all sorts of stuff.
+
+The movie Argo was based on one of the writers somewhat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. While in College (1978/79), this textbook in my Poli Sci class told of a time when Nixon was in office and demanded to leave the White House to go to a musical. Unplanned no prep for anything. Major s**t storm for the Secret Service. Eventually, They got Nixon to calm down and they never went out.
+
+One of our close new neighbors happened to work for the Secret Service. His family came over to our Family home for dinner one evening. Eventually, it came out he worked on the Nixon Detail a few years back thats when I shared the story I read in my textbook.
+
+He actually almost dropped his fork and say there with his mouth wide open. Apparently, the story was not only true but was supposed to be a secret. I showed him my book and he notated the author. I have no idea the outcome but it made the night more interesting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Not an FBI or CIA officer here, but my sister is a district attorney, and over the years she has prosecuted a number of animal-cruelty cases. This led to her having an ongoing partnership with the FBI for the last several years. It turns out the FBI started tracking animal cruelty cases about 10-15 years ago due to the incredibly high correlation between harming animals when youre young and becoming a serial violent offender as an adult.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Somewhat unrelated but my great uncle was an FBI agent. Every time we would ask him if he had any interesting stories but he would say he was sworn I to secrecy. After 10 years of hearing this, my sister asked “Really?” and he responded with “No, I just don’t remember anything interesting happening.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My SIL is involved in these organizations. She cant tell us much about what she does, but she has a large backpack with a radiophone on top. If the phone rings shes told us you dont answer it. You just drop everything and get out of town faster than ASAP.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A friend applied to work at the FBI. He was required to tell them anything illegal he had done so he told them he had illegally downloaded a bunch of media and they laughed and said if that disqualified you, no one would work there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My dad worked for the government, and he told me that anytime he had a meaningful interaction with someone who wasnt American (ie going over to my friends house for the lunar new year, or going on vacation to Canada) he had to report it all and if he saw anything suspicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158226.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. This is anecdotal and years old, but our family still gets a kick out of it...
+
+I had a great uncle who was in construction years ago, he did high-quality rendering and plasterwork - he did some jobs for some security stuff in Australia.
+
+In his later years, he would rave about the CIA and FBI and Australian secret services being in the country, with technology wed never seen nor would see for decades.
+
+In so 60s and 70s, were talking about in-ear communication devices, wristwatches with video and audio, small portable computer tablets, and super small/thin screens in full high-quality color, delivering information worldwide in seconds.
+
+His ramblings got to the point where it was conspiracy theory level, and was before smartphones and pads were really a household item... now though, what he described was VERY accurate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I negotiated huge deals with the Russian government. I was tailed 24/7. One time I didnt like the room the hotel gave me (I knew it faced the noisy side bc I stayed there all the time) and instead of just giving me a new room it was a 90-minute wait while they bugged a new room for me. Twice I had bizarro run-ins with very pushy, very hot women who allegedly wanted to f**k me so bad... Even if I was straight, hot in Russia is a mix between a Bratz doll and a hooker, so no thanks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. My grandfather was CIA.. we all knew better, no one asked. Over time as his assignments became unclassified, he would slowly tell little stories. Was eating dinner. He asks my mom you remember that time y’all dropped me off at Dulles airport? I actually flew to Camp Perry. And was then helicoptered overseas. My mom replied which time. Turns out he was a demo expert. Defused bombs. Spent 30 years all over the world. His claim to fame Toyko Rose used to call him personally. Every time he landed in Japan. Man never traveled under his real name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Worked with a woman who was a former NSA. We would always beg her to tell us s**t, but she never did. The one thing she did say, though, was that during training they show them a video of a bunch of things theyve found out about and stopped. She said she hardly slept for two weeks after watching that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My high school girlfriend worked for the National Reconnaissance Office after college. At the time, they were responsible for analyzing the nations spy satellite photos. She told me two things.
+
+Theres a special garbage chute for classified materials. Its in the hallway. When you are new, as a hazing ritual they tell you you have to shout your badge number down the chute before throwing in any materials. This is hilarious.
+
+She wouldnt tell me anything about the resolution quality of the spy photos, of course, but she did let it slip that because Russian sailors will sunbathe nude on the decks of their submarines in the Black Sea, several women in the office would pin those photos up in their cubicles as beefcake photos. So a few decades ago, US spy photos could resolve Russian penis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Met an old, retired, CIA spook at a wedding reception. Spitting image of Col. Sanders, he was amazing.
+
+So I asked him I dont want you to tell me anything you cant, but Id love to know when Kennedy got killed, what was the talk around the water cooler in the office?
+
+He didnt halt, or pause to think.
+
+Hell, we all thought Johnson did it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My dad worked for GCHQ in the 80s doing voice recognition and he cant say anything more for a decade more.
+
+The way they can recognize you by Siri/Google today was being used in the 80s... Just a bit slower...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Any gadget with a microphone that connects to the internet is always listening. Odds are good a human wont ever hear anything said because they are collecting data to sell to other companies. But they are listening, cataloging, and collating it all into databases. I wont get in trouble for that because you already gave permission for your devices to do that. You just clicked accept without reading your terms of use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. We are all told never to use sites like this and social media, in general, is pretty much a no-go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I talked with some CIA recruiters towards the end of college and almost applied earnestly after a large group Q&A and then a much smaller one.
+
+The thing that stuck out to me was that the guys said most CIA agents are out of shape and have limited combat training with guns or hand to hand. They made it clear that it’s the military that uses force. If confronted they were trained to immediately surrender or to drop their bags and run if possible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I worked with the Australian Federal Police with the spider squad doing computer stuff for them in regards to pedos and finding trafficking victims - it is the most heartbreaking work but when you get them the office looked like NASA after the Mars landing
+
+Edit; left 3 and a bit years ago but do get called up to lend a hand every now and then</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Not either of these, but Ive had a clearance so I can weigh in a little.
+
+Two things:
+
+Firstly, most secret s**t happens right in front of peoples faces under the guise of being normal everyday stuff.
+
+Secondly, properly secret programs and operations are never named in any way that indicates what they actually are about. Theyre generally just two words chosen at random and that would rarely come up in normal conversation, stuff like Cracked Gorilla (which I just made up off the top of my head.)
+
+So when people talk about classified stuff and its name is super topical, its either very very old or a nickname at best. Only public programs and operations have topical names as a PR motive, like Desert Storm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I was an analyst at the NSA, AMA.
+Most of the time when people see on my resume that I worked there, they want to know what I did or what its like to work there. (btw, if youre HR and you see someone with this on their resume, please dont make it everyones business)
+What I tell people is that no matter how smart you think you are, or what your view of whats possible is, working there will redefine both of those concepts. There are offices there that worked on unimaginable things--literally stuff you would never think of.
+Obviously, I cant share anything about what I learned, but I always tell people to imagine an office so specialized that their job is to measure the grease spots on satellite photos outside of foreign military bases. By analyzing the size, shape, color, and position of the grease spots, they can extrapolate all kinds of information about what goes into and out of the base (ops tempo, manning, equipment, etc.).
+People talk about the uberization of things, like making use of untapped assets (spare room for Airbnb, downtime for driving for Uber, etc.), but intel agencies mastered it long ago. The world around you is absolutely brimming with collectible intelligence that if leveraged and analyzed smartly, can tell you (or an adversary) a ton.
+I am not special. I worked in a very compartmented area of the intel side, but I also did a night job where I cleaned up offices (because they couldnt just hire any old janitor, they needed people with clearances to empty garbage cans, etc.), and often I would talk to the people in the offices about what they do, or youd just see it since, well... its an office and some workspaces it is impossible to not have an idea of whats going on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I applied for a job as a computer programmer for the CIA in the 1980s which required a top-secret clearance. The application was 17 pages long and wanted to know the exact dates of any illegal drug use, your sexual proclivities as well as every place you have ever lived as well as other things. The second interview would be conducted while taking a polygraph test. I noped out on that one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. 95% of individuals can be uniquely identified using as few as 4 spacio-temporal points</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Not CIA but have worked with and know guys in intelligence. Most of the intelligence we get is from OSINT (open source intel. ie news articles, press releases, news networks, and government announcements)
+
+Most people think that everyone in intelligence is some James Bond/ Jason Bourne type of individual when in reality, the majority of analysts sit at a desk and go through news articles all day.
+
+That said, that’s not the only method we have to gather intel, but it is where most of it comes from. Even analysts that are using other methods such as GEOINT, IMINT, and SIGINT spend their day cropping images for minute details or replaying and monitoring the same signal over and over again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Intelligence work is really boring most of the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. If you apply for a job at GCHQ/MI5/MI6/Fylingdales/etc. they will talk to every member of your close family and if any minor red flags come up you might not get the job.
+
+And also if you are Chinese/Russian/North Korean/etc. (I think that it probably goes to a grandparent or great grandparent being from that country) you will not even be able to apply.
+
+Source: Stepdad was in MI6 and fun-fact; if he wants to go to certain countries (eg. Israel) he has to ask permission from the MOD to travel there</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I dont know if Im allowed to say it but a mentor who definitely wasnt supposed to tell me used to be a white hat for the FBI. Apparently, all he did was search for pedophiles by tracking child pornography.
+
+He said he didnt stay for very long because it was messing with his mentality
+
+Edit: if you guys were wondering, he left to join the Navy. Became a nuke EM but they pulled him out of the program because of his cybersecurity skills and before I left our command, he was helping our CMC connect his computer to a projector. Sorry to put you in the spotlight EM1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I wasnt FBI/CIA, I was NSA. But was integrated with both for a few assignments and the biggest thing is that its all way more Office Space than Tom Clancy. Also, every cafeteria has a buffalo chicken salad day, and its usually the best thing they serve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158255.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">30 Facebook Buy/Sell Postings That Are Sketchy AF</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158350.jpg" style="width:100%"><br>
 
@@ -972,7 +1138,64 @@ FOUND IN UGANDA THE PEAL OF AFRICA</span><br><img src="https://cdn.ebaumsworld.c
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158355.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">30 Things So Massive They Made People Afraid</a><br>
+## <a href="#linky18" id="linky17">25 Awesome Things That Disappeared without a Trace</a><br>
+
+<span style="font-size:4em">1. The Wonka labeling on Nerds, SweetTarts, etc. -u/PsychedelicLizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sobe Life Water is mostly gone. -u/AmySchumersAnalTumor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157507.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The live aquarium fish at Walmart. -u/cheerleadersquid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Colored toilet paper, tissue and paper towels. In the seventies, toilet paper came in different colors to match the decor of the day. Green, yellow, pink, and so on. Paper towels and tissues too, usually in yellow and green.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157510.png" style="width:100%"><br>
+
+<span style="font-size:4em">
+They were discontinued when it was found they were a contributing factor to UTIs in girls along with Mr. Bubble bubble bath soap. Also if you had a septic system the dyes interfered with the biological process in the tank. -u/Ill_Maintenance8161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “ROFL.” Everyone uses “lol” and “lmao”, but “rofl” has fallen out of fashion it seems. -u/Shopping-Puzzled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. McDonalds salad. I was about to buy one l earlier but I found out they were discontinued. -u/balloonidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ronald McDonald
+
+-u/Boureyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Trailer voice-over guy. It was used in every single trailer and then it was like he was snapped by Thanos. -u/Strumfius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. 3D TVs. -u/NegInk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ringback tunes. So when someone called you they heard a song of your choice instead of the ringer. -u/luvzandkisses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Sitting in class and being blasted in the nose holes by the smells of someone chewing on a watermelon Bubblicious. -u/SternLecture</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157518.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Butterfinger BBs. -u/valyrianqueen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Philadelphia Cheesecake Bars. Pretty sure if heaven had a taste, that’s what it would taste like. -u/TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Fruitopia. For a brief spell it was everywhere. -u/maniacalmustacheride</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Altoids sours. -u/drfullofshit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157523.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Y’all remember purple and green ketchup & mustard? The 2000’s was a wild wasteland. It was amazing. -u/kileyweasel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. BBS or Bulletin Board Systems. Just before the internet got popular there were computers that were on 24/7 and available to be dialed into with your modem so that a user could play games, download files, and exchange emails with others around the world. It was a lot of fun and we spent many long hours on them. -u/mojoisthebest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Richard Simmons. There’s a whole podcast about it. -u/clutterc0re</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Nerds cereal. It was around for, like, three years in the 80s and tasted delicious. Then it disappeared. I still remember what it tasted like. -u/ethnicbonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Grooveshark. Opened it one day years ago to find my 7-years of cultivated music playlists gone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Sierra Mist with Cranberry. Was my absolute favorite but I can never find it anymore. Not sure if its discontinued or just hard to find in my state. -u/brainyolive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Yellow Pages. They use to be the go-to place to advertise our business. -u/Perfect-Resort2778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Dog poop doesnt turn white anymore. Something that they put in the food now. -u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157530.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">30 Things So Massive They Made People Afraid</a><br>
 
 <span style="font-size:4em">1. Weta Workshops Realistic Giants For The Dubai Expo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157820.jpg" style="width:100%"><br>
 
@@ -1033,227 +1256,4 @@ FOUND IN UGANDA THE PEAL OF AFRICA</span><br><img src="https://cdn.ebaumsworld.c
 <span style="font-size:4em">29. Bizarre Towers In Korea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157825.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. That’s Big</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87157826.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">25 Awesome Things That Disappeared without a Trace</a><br>
-
-<span style="font-size:4em">1. The Wonka labeling on Nerds, SweetTarts, etc. -u/PsychedelicLizard</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Sobe Life Water is mostly gone. -u/AmySchumersAnalTumor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157507.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The live aquarium fish at Walmart. -u/cheerleadersquid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Colored toilet paper, tissue and paper towels. In the seventies, toilet paper came in different colors to match the decor of the day. Green, yellow, pink, and so on. Paper towels and tissues too, usually in yellow and green.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157510.png" style="width:100%"><br>
-
-<span style="font-size:4em">
-They were discontinued when it was found they were a contributing factor to UTIs in girls along with Mr. Bubble bubble bath soap. Also if you had a septic system the dyes interfered with the biological process in the tank. -u/Ill_Maintenance8161</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “ROFL.” Everyone uses “lol” and “lmao”, but “rofl” has fallen out of fashion it seems. -u/Shopping-Puzzled</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. McDonalds salad. I was about to buy one l earlier but I found out they were discontinued. -u/balloonidiot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ronald McDonald
-
--u/Boureyn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Trailer voice-over guy. It was used in every single trailer and then it was like he was snapped by Thanos. -u/Strumfius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. 3D TVs. -u/NegInk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ringback tunes. So when someone called you they heard a song of your choice instead of the ringer. -u/luvzandkisses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Sitting in class and being blasted in the nose holes by the smells of someone chewing on a watermelon Bubblicious. -u/SternLecture</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157518.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Butterfinger BBs. -u/valyrianqueen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Philadelphia Cheesecake Bars. Pretty sure if heaven had a taste, that’s what it would taste like. -u/TeHNyboR</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Fruitopia. For a brief spell it was everywhere. -u/maniacalmustacheride</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Altoids sours. -u/drfullofshit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157523.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Y’all remember purple and green ketchup & mustard? The 2000’s was a wild wasteland. It was amazing. -u/kileyweasel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. BBS or Bulletin Board Systems. Just before the internet got popular there were computers that were on 24/7 and available to be dialed into with your modem so that a user could play games, download files, and exchange emails with others around the world. It was a lot of fun and we spent many long hours on them. -u/mojoisthebest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Richard Simmons. There’s a whole podcast about it. -u/clutterc0re</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Nerds cereal. It was around for, like, three years in the 80s and tasted delicious. Then it disappeared. I still remember what it tasted like. -u/ethnicbonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Grooveshark. Opened it one day years ago to find my 7-years of cultivated music playlists gone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Sierra Mist with Cranberry. Was my absolute favorite but I can never find it anymore. Not sure if its discontinued or just hard to find in my state. -u/brainyolive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Yellow Pages. They use to be the go-to place to advertise our business. -u/Perfect-Resort2778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Dog poop doesnt turn white anymore. Something that they put in the food now. -u/Scrappy_Larue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157530.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">49 Fun Randoms to Spice up the Day</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87156666.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">32 Fails From People Who Had One Job</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158428.jpg" style="width:100%"><br>
 
