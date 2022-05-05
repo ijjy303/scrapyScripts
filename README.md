@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/04/2022-19:11:32
+Last updated: 05/04/2022-20:11:32
 <br>
 ## <a href="#linky2" id="linky1">42 People Who Just Didn't Get the Joke</a><br>
 
@@ -87,7 +87,109 @@ Last updated: 05/04/2022-19:11:32
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Pics and Posts That Aged like a Fine Wine</a><br>
+## <a href="#linky3" id="linky2">50 Funny Photos To Make Your Work Go Away</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159132.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159135.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159154.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">20 Pics and Posts That Aged like a Fine Wine</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023657/87159662/dislike.jpg" style="width:100%"><br>
 
@@ -129,7 +231,7 @@ Last updated: 05/04/2022-19:11:32
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023827/87159681/zodiac.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
+## <a href="#linky5" id="linky4">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
 
 <span style="font-size:4em">1. Mother Theresa. My father was a taxi driver in Australia and one of his customers was a man whod been raised in Mother Theresas orphanage. He said she beat him terribly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155840.jpg" style="width:100%"><br>
 
@@ -237,7 +339,7 @@ She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">26. Queen Elizabeth I not the current one. -her cousin got married without her permission so she locked her in a tower for a long time. Her other cousin also did this and the Queen had her locked there until she died. -when she took over Munster she abused many native Irish people. -she spent more money than she had. Despite this slot of British ppl I talk too think she is one of the greatest monarchs they have had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155866.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">24 Places People Say You Shouldn't Visit </a><br>
+## <a href="#linky6" id="linky5">24 Places People Say You Shouldn't Visit </a><br>
 
 <span style="font-size:4em">1. “Afghanistan. Reason? Taliban” - LazyLion65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158861.jpg" style="width:100%"><br>
 
@@ -284,88 +386,6 @@ She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/
 <span style="font-size:4em">22. “Anywhere with bot flies” - HorizontalPotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158882.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. “Somalia and North Korea. why? According to studies, Somalia is so violent that not even the health and police personnel care what happens and a good part of the country is nominated for gangs and drug trafficking. and north korea for their laws like: only 30 haircuts available 15 women and 15 men” - DepartmentTough6031</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158885.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">40 Historical Comparisons Showing How Things Have Changed</a><br>
-
-<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">20 People Who Are The Worst Kind Of Trash</a><br>
 
@@ -465,107 +485,57 @@ She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87159094.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky9" id="linky8">25 Seemingly Innocent Songs That Are Really about Sex</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159105.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Foo Fighters All My Life is about going down on a girl. It never occurred to me at all until I read that Dave Grohl said in an interview, That song is a little dirty. Im very fond of giving oral sex to women. Its a pleasure-giving experience - giving someone something that theyll remember for the rest of their lives, and if you do it right, they will. - -eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159106.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Poker Face by Lady Gaga. She said its actually about having sex with a man while she’s thinking about a woman. - PsychologicalPen1604</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159107.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I grew up listening to Meat Loaf a lot because my dad played it on every car ride. One of my favorite songs was Paradise by the Dashboard Lights. My oh-so-innocent child mind didn’t pick up on the meaning of the lyrics until I rediscovered the song about a month ago. I guess this one isn’t so innocent. The song is blatantly about having sex in a car and I just never realized it when I was a kid. - breakthefifthwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158896.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159108.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Hellfire from The Hunchback of Notre Dame. I never related it to sex until a friend of mine told me about it and I listened to it under that context” - erriuga_leon27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158897.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159109.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I once had to put together a playlist for a kids fashion runway show, so had to make sure that all the lyrics were family-friendly and clean etc. It was only then that I realized that 90% of the top 40 hits (past and present) are basically about sex lmao. - justacheesestick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158898.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159110.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Madonna Like a Prayer. I grew up Catholic and people used to play it unaware. When I got older it seemed pretty obviously to be about giving a BJ. - KaiserTNT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159111.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Layla is about wanting to nail George Harrisons wife. - itamarka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158903.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159112.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Mint Car by The Cure. It feels so big it almost hurts. I guess its pretty obvious after all. - Silverwake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158899.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159113.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Pretty much every Village People hit was a lightly veiled reference to being gay. Fool around with other guys at the YMCA.m Appeal to more gay guys if you act like a Macho Man. You can bang lots of guys In the Navy. If we Go West to San Francisco, we can be out of the closet. - TriTri14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159114.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The original version of Shake, Rattle, and Roll is pretty raunchy. Check out this verse: Im like a one-eyed cat peepin in a seafood store, Im like a one-eyed cat peepin in a seafood store, Well, I can look at you an tell you aint no child no more” - Cipius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159115.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. 2 Become 1 by the Spice Girls. - aledba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158900.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159116.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Im not positive, but I think Pony by Ginuwine might be about something sexual. - kliman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158901.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159117.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. I really thought Shut Up and Drive by Rihanna was about him driving her cool car. - illuminatiprincess99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158895.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159118.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Cyndi Lauper, She Bop Its about masturbation.” - zoqfotpik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158902.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159119.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Me when I was seven singing “cAn YoU bLOw mY WhISTle bABy, wHiSTle BabY” at full volume in the car. - Moose_dude16439</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158904.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159120.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “The Macarena. Its a song about a woman having a threesome with her boyfriends friends. - AggravatingControl43</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158905.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159121.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “(I Just) Died in Your Arms by Cutting Crew - Smock710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159122.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. There was a time when literally everybody who didnt speak Spanish played Despacito non-stop. - VaTechDoorDashDriver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159123.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Big and Chunky” by Will.I.Am from Madagascar 2. - Goldenpearl01</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159124.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Won’t you play with my ding-a-ling by Chuck Berry. - thecian2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159125.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Cake by the Ocean.” - ButteredToast2500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159126.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. I have heard that Gen Xs Dancing With Myself is about masturbation. - Leharen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159127.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. “Come on Eileen - Dexys Midnight Runners.” - socaltony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159128.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “Brand New Key, well, I got a brand new pair of roller skates. You got a brand new key, I think that we should get together, and try them out, you see.” - NightMgr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159154.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The Beatles - “Why Don’t We Do It In the Road” isn’t really about changing a flat tire. It’s about sex. - fbomb33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158919.jpg" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">23 Funny Memes of the Dank Variety </a><br>
 
@@ -755,121 +725,7 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">30 Nightmarish Things People Spotted</a><br>
-
-<span style="font-size:4em">1. Angler Fish Washed Ashore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Is A Wasp Nest That Has Grown Around The Floodlights On A Garage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Man Finds Huge Spider Hiding Inside Ear Muffs After Feeling Tickle In His Ear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Went Into My Attic Looking For A Water Leak Coming Into My Living Room And It Appears That Im Also In Quarantine With This Whatever Monstrosity Left This Behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well There Is A Water Snake Living In My Toilet Somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Was Playing Video Games When I Heard Sounds To My Left. Looked Over And Saw This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Coconut Crabs Are Attracted To The Smell Of Food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Started Work This Morning, Put My Headset On, Felt Something Furry In My Ear, Looked And There Is A Bat In My Headset</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Remember To Check Your VR Headset For Spiders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Stygian Owl Is Known For The Red Reflection Of Their Eyes That Are Often Associated With The Devil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Creatonotos Gangis Moth Unfurling Its “Hair-Pencils” To Spread Pheromones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I Share A New Jaguar Photo With You, Earlier Than I Wanted. Hopefully, You Will Like This Striking Image</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Hickory Horned Devil. Largest Caterpillar In The World. Turns Into A Regal Moth. Can Grow 6 Inches Long And Is Completely Harmless Except Visually Terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Found In A Harpy Eagles Nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dead Man Fingers Fungus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found This In My Apartment While Living In Japan. They Are Fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Ceiling Snake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Infested Spider Tent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Moose In Fog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Caught This Storm Above A Bowing Field Of Sunflowers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Small Tick Sucking On A Big One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Heron Likes A Bit Of Crocodilian Dinner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This Cluster Of Fossilised Creatures Look Like They Came From Another Planet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Most Metal Eel Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A Melanistic & Albino Alligator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. This Moray Tried To Swallow A Pufferfish. Said Puffer Took Her With Him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This Looks Like A Scene From A Movie. Six Waterspouts Simultaneously In The Gulf Of Mexico</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Australian Problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. An Old Friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Seemingly Innocent Songs That Are Really about Sex</a><br>
-
-<span style="font-size:4em">1. The Foo Fighters All My Life is about going down on a girl. It never occurred to me at all until I read that Dave Grohl said in an interview, That song is a little dirty. Im very fond of giving oral sex to women. Its a pleasure-giving experience - giving someone something that theyll remember for the rest of their lives, and if you do it right, they will. - -eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Poker Face by Lady Gaga. She said its actually about having sex with a man while she’s thinking about a woman. - PsychologicalPen1604</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I grew up listening to Meat Loaf a lot because my dad played it on every car ride. One of my favorite songs was Paradise by the Dashboard Lights. My oh-so-innocent child mind didn’t pick up on the meaning of the lyrics until I rediscovered the song about a month ago. I guess this one isn’t so innocent. The song is blatantly about having sex in a car and I just never realized it when I was a kid. - breakthefifthwall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158896.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Hellfire from The Hunchback of Notre Dame. I never related it to sex until a friend of mine told me about it and I listened to it under that context” - erriuga_leon27</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158897.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I once had to put together a playlist for a kids fashion runway show, so had to make sure that all the lyrics were family-friendly and clean etc. It was only then that I realized that 90% of the top 40 hits (past and present) are basically about sex lmao. - justacheesestick</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158898.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Madonna Like a Prayer. I grew up Catholic and people used to play it unaware. When I got older it seemed pretty obviously to be about giving a BJ. - KaiserTNT</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Layla is about wanting to nail George Harrisons wife. - itamarka</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158903.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Mint Car by The Cure. It feels so big it almost hurts. I guess its pretty obvious after all. - Silverwake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158899.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Pretty much every Village People hit was a lightly veiled reference to being gay. Fool around with other guys at the YMCA.m Appeal to more gay guys if you act like a Macho Man. You can bang lots of guys In the Navy. If we Go West to San Francisco, we can be out of the closet. - TriTri14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The original version of Shake, Rattle, and Roll is pretty raunchy. Check out this verse: Im like a one-eyed cat peepin in a seafood store, Im like a one-eyed cat peepin in a seafood store, Well, I can look at you an tell you aint no child no more” - Cipius</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 2 Become 1 by the Spice Girls. - aledba</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158900.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Im not positive, but I think Pony by Ginuwine might be about something sexual. - kliman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158901.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. I really thought Shut Up and Drive by Rihanna was about him driving her cool car. - illuminatiprincess99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158895.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Cyndi Lauper, She Bop Its about masturbation.” - zoqfotpik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158902.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Me when I was seven singing “cAn YoU bLOw mY WhISTle bABy, wHiSTle BabY” at full volume in the car. - Moose_dude16439</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158904.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The Macarena. Its a song about a woman having a threesome with her boyfriends friends. - AggravatingControl43</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158905.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “(I Just) Died in Your Arms by Cutting Crew - Smock710</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. There was a time when literally everybody who didnt speak Spanish played Despacito non-stop. - VaTechDoorDashDriver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Big and Chunky” by Will.I.Am from Madagascar 2. - Goldenpearl01</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Won’t you play with my ding-a-ling by Chuck Berry. - thecian2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Cake by the Ocean.” - ButteredToast2500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I have heard that Gen Xs Dancing With Myself is about masturbation. - Leharen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Come on Eileen - Dexys Midnight Runners.” - socaltony</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Brand New Key, well, I got a brand new pair of roller skates. You got a brand new key, I think that we should get together, and try them out, you see.” - NightMgr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. The Beatles - “Why Don’t We Do It In the Road” isn’t really about changing a flat tire. It’s about sex. - fbomb33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158919.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">30 People Who Pulled Real Power Moves</a><br>
+## <a href="#linky13" id="linky12">30 People Who Pulled Real Power Moves</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159235.jpg" style="width:100%"><br>
 
@@ -931,7 +787,7 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159249.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">24 Memes That Became One With The Dankness</a><br>
+## <a href="#linky14" id="linky13">24 Memes That Became One With The Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158921.jpg" style="width:100%"><br>
 
@@ -981,7 +837,69 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158944.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
+## <a href="#linky15" id="linky14">30 Nightmarish Things People Spotted</a><br>
+
+<span style="font-size:4em">1. Angler Fish Washed Ashore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This Is A Wasp Nest That Has Grown Around The Floodlights On A Garage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Man Finds Huge Spider Hiding Inside Ear Muffs After Feeling Tickle In His Ear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Went Into My Attic Looking For A Water Leak Coming Into My Living Room And It Appears That Im Also In Quarantine With This Whatever Monstrosity Left This Behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Well There Is A Water Snake Living In My Toilet Somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Was Playing Video Games When I Heard Sounds To My Left. Looked Over And Saw This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Coconut Crabs Are Attracted To The Smell Of Food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Started Work This Morning, Put My Headset On, Felt Something Furry In My Ear, Looked And There Is A Bat In My Headset</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Remember To Check Your VR Headset For Spiders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Stygian Owl Is Known For The Red Reflection Of Their Eyes That Are Often Associated With The Devil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Creatonotos Gangis Moth Unfurling Its “Hair-Pencils” To Spread Pheromones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I Share A New Jaguar Photo With You, Earlier Than I Wanted. Hopefully, You Will Like This Striking Image</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Hickory Horned Devil. Largest Caterpillar In The World. Turns Into A Regal Moth. Can Grow 6 Inches Long And Is Completely Harmless Except Visually Terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Found In A Harpy Eagles Nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Dead Man Fingers Fungus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Found This In My Apartment While Living In Japan. They Are Fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Ceiling Snake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Infested Spider Tent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Moose In Fog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Caught This Storm Above A Bowing Field Of Sunflowers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Small Tick Sucking On A Big One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Heron Likes A Bit Of Crocodilian Dinner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. This Cluster Of Fossilised Creatures Look Like They Came From Another Planet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Most Metal Eel Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A Melanistic & Albino Alligator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. This Moray Tried To Swallow A Pufferfish. Said Puffer Took Her With Him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This Looks Like A Scene From A Movie. Six Waterspouts Simultaneously In The Gulf Of Mexico</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Australian Problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. An Old Friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159525.jpg" style="width:100%"><br>
 
@@ -1035,7 +953,7 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159554.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
+## <a href="#linky17" id="linky16">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
 
@@ -1076,4 +994,86 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">40 Historical Comparisons Showing How Things Have Changed</a><br>
+
+<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
 
