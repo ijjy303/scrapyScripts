@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/05/2022-04:11:31
+Last updated: 05/05/2022-05:11:31
 <br>
 ## <a href="#linky2" id="linky1">21 Most Cringe Posts from the Depths of the Internet</a><br>
 
@@ -107,55 +107,7 @@ Last updated: 05/05/2022-04:11:31
 
 <span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">24 Places People Say You Shouldn't Visit </a><br>
-
-<span style="font-size:4em">1. “Afghanistan. Reason? Taliban” - LazyLion65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “I was going to say there is no place in the world I wouldn’t want to visit just would wait for any political issues to be resolved before visiting etc but yes North Sentinel Island is the only place in the world I would never want to visit because the inhabitants have made it clear to leave them the hell alone” - Titties_Farts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “On WikiTravel, they used to have a warning that you should be prepared to possibly die if you visited Mogadishu” - beck-hassen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4.  “Qatar so I wish YouTube would stop trying to sell it to me!” - TheBoyNabs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “South Sudan. Its civil wars and deserts. Cant even do any unethical profiteering, since all sides are broke-ass militias.” - RATKAT48</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6.  “All of them, bc I’m poor af” - PWRHTX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “NGL, there are occasional official tours of North Korea and Id love to go on one. I know some people whove been, and its the closest thing in the world to visiting another planet. However, Im a techie type of person, and Id be slightly concerned about being invited to stay.” - cleon42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Egypt. After watching Best Ever Food Show on YouTube. What a mess” - Im_Da_Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The one time I went to Australia, I got out of the shower and took the towel off the wall, and a spider as big as my hand fell out of the towel. Jesus Fucking Christ. I will never go back to that fucking country ever again.” - librarianbleue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Honduras. I (white blonde female) travelled alone a lot in my 20s all over the world backpacking style and never had issues. Then I met a dude in university who was originally from Honduras and we talked about travelling and backpacking and he told me in a very serious manner that I should NEVER EVER even think about going backpacking or any type of individual travel to Honduras. He said staying in a tourist facility with a travel agency for an all inclusive holiday would PROBABLY be okay but I should not by any means just travel there on my own if I didnt want to be murdered, raped and robbed. This left quite an impression on me.” - Susannah_Mio_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “So this isnt answering your question directly, just a little story. My great aunt, who just passed away last week at 106, was a world traveler. She visited something like 166 countries in her life. She was a highschool teacher and would travel every summer, even after she retired she traveled all the time. She always had great stories about her travels and generally spoke positively of every country she visited. The one time I really remember her speaking negatively, or saying she didnt like a location was about India. It was something about the extreme wealth juxtaposed with extreme poverty and slums right next to each other. However, Im not sure when she traveled there. Most of her travelling was between the 1950s-2000s.” - tenaciousE56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12.  “Donkey Kong Country because of King K Rool. He seems mean.” - B0rtles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13.  “China because I hear they arent too fond of black people.” - cliffbot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “There are no countries that I would say unequivocally I would never visit. There are however, many countries whose current social and or political climate means I would not travel there until things change.” - Superfly1503</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Sierra Leone. Lord Of War taught me it’s a bad place” - KZMountainRider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Qatar - all of the deaths and slave labor used to build the World Cup stadiums” - jwall4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Not a country but that island (think its off India) that has that untouched tribe living there cos I wouldnt want to affect them. Anywhere else I would if it was safe to do so at the time.” - a_guy_called_craig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18.  “Pakistan / Afghanistan: because of their stellar women’s rights record” - fuckstraya56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Russia, mostly cause my family was exiled from there during the reign of Peter the Great and I’m not sure if that was ever rescinded” - king-geass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20.  “Probably Saudi Arabia because I do not want to finance the human right abuses” - geej47</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21.  “Iran, Iraq, Saudi Arabia. Any country that can bang you in prison for 10 years just for farting in the wrong place lol” - Nizmo57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Anywhere with bot flies” - HorizontalPotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Somalia and North Korea. why? According to studies, Somalia is so violent that not even the health and police personnel care what happens and a good part of the country is nominated for gangs and drug trafficking. and north korea for their laws like: only 30 haircuts available 15 women and 15 men” - DepartmentTough6031</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158885.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">20 People Who Are The Worst Kind Of Trash</a><br>
+## <a href="#linky4" id="linky3">20 People Who Are The Worst Kind Of Trash</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159502.jpg" style="width:100%"><br>
 
@@ -197,7 +149,7 @@ Last updated: 05/05/2022-04:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159522.png" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">27 Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky5" id="linky4">27 Fresh Pics And Memes For The Exquisite Minds</a><br>
 
 <span style="font-size:4em">1. Just play the damn show. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87159064.jpeg" style="width:100%"><br>
 
@@ -253,7 +205,7 @@ Last updated: 05/05/2022-04:11:31
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87159094.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Seemingly Innocent Songs That Are Really about Sex</a><br>
+## <a href="#linky6" id="linky5">25 Seemingly Innocent Songs That Are Really about Sex</a><br>
 
 <span style="font-size:4em">1. The Foo Fighters All My Life is about going down on a girl. It never occurred to me at all until I read that Dave Grohl said in an interview, That song is a little dirty. Im very fond of giving oral sex to women. Its a pleasure-giving experience - giving someone something that theyll remember for the rest of their lives, and if you do it right, they will. - -eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158911.jpg" style="width:100%"><br>
 
@@ -305,7 +257,7 @@ Last updated: 05/05/2022-04:11:31
 
 <span style="font-size:4em">25. The Beatles - “Why Don’t We Do It In the Road” isn’t really about changing a flat tire. It’s about sex. - fbomb33</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158919.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">23 Funny Memes of the Dank Variety </a><br>
+## <a href="#linky7" id="linky6">23 Funny Memes of the Dank Variety </a><br>
 
 <span style="font-size:4em">1. They just keep getting better and better. How is this possible? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158100.jpg" style="width:100%"><br>
 
@@ -353,7 +305,7 @@ Last updated: 05/05/2022-04:11:31
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87158122.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+## <a href="#linky8" id="linky7">30 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
 
 <span style="font-size:4em">1. Nevaeh. Its heaven backwards. Anyone that tells you their daughter is named Nevaeh will also tell you that its heaven spelled backwards. Every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158293.jpg" style="width:100%"><br>
 
@@ -453,189 +405,155 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">30. My mom worked in a maternity ward and a family with the last name Dollar named their infant child Needa...poor kid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158322.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
+## <a href="#linky9" id="linky8">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
+## <a href="#linky10" id="linky9">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
 
-## <a href="#linky11" id="linky10">42 People Who Just Didn't Get the Joke</a><br>
+<span style="font-size:4em">1. Mother Theresa. My father was a taxi driver in Australia and one of his customers was a man whod been raised in Mother Theresas orphanage. He said she beat him terribly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
+<span style="font-size:4em">2. Christopher columbus...didnt discover s**t and brought misery wherever he went.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
+<span style="font-size:4em">3. Pablo Picasso, he was misogynistic and sexually assaulted women</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
+<span style="font-size:4em">4. Thomas Edison. I’ll never forgive him for what he did to Tesla.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
+<span style="font-size:4em">5. Gandhi. After learning all the colorist and racist s**t he would say to those who had darker complexion or those of African descent in my 8th grade year i haven’t seen him the same.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
+<span style="font-size:4em">6. Bill Cosby. Americas dad. Up until those allegations started</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
+<span style="font-size:4em">7. Elvis Presley. He groomed a then 14 year old and slept with her while he toured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
+<span style="font-size:4em">8. Alfred Hitchcock, the guy probably was one of the best filmmakers ever, yes. but its worth mentioning how much he abused his actors, including sexually harassing Tippi Hedren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
+<span style="font-size:4em">9. Charles Dickens had his wife, the mother of his children, committed to an insane asylum so he could run off with a teenage actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
+<span style="font-size:4em">10. PT BARNUM.
+
+Most people know but due to the romanticization of The Greatest Showman, people should know that he was a maniac that did an ungodly experiments on living beings, locked people in cages, abused them, and mocked them. All whilst earning pocket from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
+<span style="font-size:4em">11. Einstein wasn’t a great guy. Brilliant, sure, but kinda douchy in his personal life.
+
+He refused to marry his long time lover for years, even after she got pregnant. The child was assumed to be given up for adoption, but no record has ever been found.
+
+He and his wife, Mileva Marić, worked together on their research. People saw them do it. They made jokes about it at parties. He proudly told people that she did all his calculations. They only put his name on their work and he went on to claim all the credit - ignoring any work she had done. Part of their agreement was that she would get the Nobel prize money but he tried to prevent that.
+
+She raised two children - one schizophrenic - took care of the house and tutored to bring in extra money because he couldn’t get a job for a long time. He started getting more notoriety and then began an affair with his first cousin.
+
+He moved to a different country to be with his new hillbilly mistress. He divorced his wife and quickly married the new, younger model. He had rules she had to abide by, such as leaving the room immediately when told and not expecting or asking for any sort of affection except when necessary for appearances sake.
+
+Elsa, his second wife, was dying and he worked nonstop because he didn’t know what to do (I guess). She was basically abandoned her last few months.
+
+He cheated on both his wives, numerous times. Ignored his children. Oh - and he was pretty into his second wife’s daughter and thought about marrying her instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
+<span style="font-size:4em">12. King Edward the VIII was a nazi sympathizer who possibly colluded with the Germans to retake the throne in the event of an invasion and conquest of Britain.
+
+He wasn’t just a love sick romantic who gave up his kingdom for a woman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
+<span style="font-size:4em">13. Charlie Chaplin definitely. Dude groped/assaulted girls and married a woman 40 years younger than him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
+<span style="font-size:4em">14. Oliver Cromwell
+
+Tried to make England a republic, ended up being a king in all but name. Butchered the Irish, banned Christmas and is partially responsible for the puritans (who fled to America after the monarchy was restarted)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
+<span style="font-size:4em">15. Steve Jobs. The way he treated his family is horrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
+<span style="font-size:4em">16. Coco Chanel was a goddamn Nazi spy. Yes, she was an incredible designer, and shes probably one of the most influential humans of the 20th century, based on the number of people who have worn clothing directly inspired by her over the past 100 years. She really did change the way women dress in a truly radical way, and I respect that - knitwear, feminized menswear, ditching the corset, transforming black into an everyday color, the essential skirt suit, costume jewelry, synthetic fragrances in perfume, the list goes on.
+
+But she was a goddamn Nazi spy. Coco was a wretched anti-Semite, like so many other members of the European elite during the 30s. She dated a number of staggeringly wealthy British aristocrats and theyd all sit around talking about the Protocols of Zion and s**t, trying to figure out whether any members of the royal family were secretly Jews, etc. When war broke out, the two Jewish brothers who ran her perfume empire (aka Chanel No 5, the best selling perfume in the world then and now) had to flee to the US for safety. How did Coco respond? By writing to the Nazis to ask them to transfer ownership over to her, a good Aryan, so she could make more money. But thats not the half of it.
+
+She fell in love with a dashing German spy named Spitz whod been seducing bluebloods all over France and England for years leading up the war. Coco was a useful woman - she was simply one of the richest women in the world, and she knew everyone in the British aristocracy, including her old hunting buddy and dear friend, Winston Churchill himself. She and Spitz socialized with all the biggest Nazi names in town, especially Otto Abetz, the Nazi ambassador to France, who invited them to every party in town. Spitz convinced her to join the Abwehr (aka the German secret service) and make trips to Spain. Operating under the code name Westminster, she attempted to broker a separate peace between Germany and England. (In the meantime, she may or may not have reported at least one woman at the Hotel Ritz whom she suspected of being Jewish to the SS.) She had a grand old time going on her adventures, and wrote about the excitement of working for the Abwehr in her private notes.
+
+Chanel was arrested only a few days after the liberation of Paris - absolutely everyone in town knew what shed been doing and who shed been doing it with - but for rEaSoNs UnKnOwN she was released without charges. Its widely believed that Winston Churchill personally intervened. It might be because the two of them had been close friends for decades. It might be because she was going to embarrass the s**t out of Britain by outing all the anti-Semites and pro-Nazis in the British aristocracy - including the recently abdicated Edward VIII who used his f***ng honeymoon as an excuse to tour Nazi Germany and shake Hitlers hand. She spent the rest of her life being a nasty, bitter morphine addict living in the Hotel Ritz. The House of Chanel has very, very little to say about the matter, and every few years a few more bits of damning evidence are declassified from the vaults.
+
+If you want to learn more, I did a whole episode about her Nazi days in my French history podcast: The Collaborator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159554.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">64 Interesting Images and Random Pics for Your Peepers</a><br>
+<span style="font-size:4em">17. Andy Warhol was a fraud and an abuser.
+
+The book Edie is a great read, but sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Kinda coming much more into light now but The Founding Fathers, all of them owned slaves and by modern day standards they would be horrible people. But something I think lots of people don’t remember is even if these things are utterly reprehensible, everyone was doing it and they were all children of their time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Benito Juárez
+
+He was the type of president who kills his opposition instead of negotiating. He did a lot of illegal executions.
+
+He was going to be executed in Guadalajara, however one of his ministers convinced the soldiers not to kill him with a famous phrase alto, los valientes no asesinan, the soldiers forgave his life and risked theirs as the disobey an order. Well, as soon as Juarez returned to Mexico city, he immediately ordered to kill all of those soldiers with no mercy (source: my sister worked with the Sargents descendant)
+
+After Juárezs government, theres a period Known as the porfiriato, where Porfirio Díaz was Mexicos president for 30 years. It was possible just because there was no opposition alive
+
+Juarez suddenly died in 1872 from a heart attack. Its believed that a woman, to avenge his husband, worked on his home as a maid, and when she had the opportunity, she put an infusion of veintiunilla a herb known by the natives for being poisonous and cause a heart attack 21 days (veintiún dias) after it was drank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Churchill. He started the Bengal Famine which killed 3 million people. He also was incredibly racist and liked killing through gas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Not quite beloved, but Joseph P. Kennedy Sr..
+
+He decided that Rosemary (his daughter) who was 23 at the time should have a lobotomy; he did not inform his wife of this decision until after the procedure was completed. And then they sent her away to an institute.
+
+In her early young adult years, Rosemary Kennedy experienced seizures and violent mood swings. In response to these issues, her father arranged a prefrontal lobotomy for her in 1941 when she was 23 years of age; the procedure left her permanently incapacitated and rendered her unable to speak intelligibly.
+
+Sick f**k, who would do this to their own child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. William Hurt. I remember seeing tons of praise for him when he passed recently.
+
+Thing is, he beat and raped Marlee Matlin back in the 80s. She discussed it in her memoir. When he was approached about it, his response wasnt to deny it, but to apologize for any pain he may have caused to her.
+
+If you want to praise his acting, fine. But remember what sort of person he was behind the characters you loved on film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Joseph Smith-
+
+I grew up LDS and left with my family when I was in junior high. After some reading and learning from historical documents without church bias, I realized how drastically different he was when he wasn’t viewed in the eyes of the church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Dr Suess cheated on his partially disabled wife and she eventually committed suicide because of how distraught she was.
+
+“I am too old and enmeshed in everything you do and are, that I cannot conceive of life without you,”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Margaret Sanger was pro-eugenics and a racist.
+
+In promoting birth control, she advanced a controversial Negro Project, wrote in her autobiography about speaking to a Ku Klux Klan group and advocated for a eugenics approach to breeding for “the gradual suppression, elimination and eventual extinction, of defective stocks — those human weeds which threaten the blooming of the finest flowers of American civilization.”
+
+She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Queen Elizabeth I not the current one. -her cousin got married without her permission so she locked her in a tower for a long time. Her other cousin also did this and the Queen had her locked there until she died. -when she took over Munster she abused many native Irish people. -she spent more money than she had. Despite this slot of British ppl I talk too think she is one of the greatest monarchs they have had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155866.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">64 Interesting Images and Random Pics for Your Peepers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120709/87160255/87160204.jpg" style="width:100%"><br>
 
@@ -765,7 +683,223 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120714/87160257/87160201.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Pics and Posts That Aged like a Fine Wine</a><br>
+## <a href="#linky12" id="linky11">24 Places People Say You Shouldn't Visit </a><br>
+
+<span style="font-size:4em">1. “Afghanistan. Reason? Taliban” - LazyLion65</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “I was going to say there is no place in the world I wouldn’t want to visit just would wait for any political issues to be resolved before visiting etc but yes North Sentinel Island is the only place in the world I would never want to visit because the inhabitants have made it clear to leave them the hell alone” - Titties_Farts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “On WikiTravel, they used to have a warning that you should be prepared to possibly die if you visited Mogadishu” - beck-hassen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4.  “Qatar so I wish YouTube would stop trying to sell it to me!” - TheBoyNabs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “South Sudan. Its civil wars and deserts. Cant even do any unethical profiteering, since all sides are broke-ass militias.” - RATKAT48</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6.  “All of them, bc I’m poor af” - PWRHTX</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “NGL, there are occasional official tours of North Korea and Id love to go on one. I know some people whove been, and its the closest thing in the world to visiting another planet. However, Im a techie type of person, and Id be slightly concerned about being invited to stay.” - cleon42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Egypt. After watching Best Ever Food Show on YouTube. What a mess” - Im_Da_Bear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The one time I went to Australia, I got out of the shower and took the towel off the wall, and a spider as big as my hand fell out of the towel. Jesus Fucking Christ. I will never go back to that fucking country ever again.” - librarianbleue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Honduras. I (white blonde female) travelled alone a lot in my 20s all over the world backpacking style and never had issues. Then I met a dude in university who was originally from Honduras and we talked about travelling and backpacking and he told me in a very serious manner that I should NEVER EVER even think about going backpacking or any type of individual travel to Honduras. He said staying in a tourist facility with a travel agency for an all inclusive holiday would PROBABLY be okay but I should not by any means just travel there on my own if I didnt want to be murdered, raped and robbed. This left quite an impression on me.” - Susannah_Mio_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “So this isnt answering your question directly, just a little story. My great aunt, who just passed away last week at 106, was a world traveler. She visited something like 166 countries in her life. She was a highschool teacher and would travel every summer, even after she retired she traveled all the time. She always had great stories about her travels and generally spoke positively of every country she visited. The one time I really remember her speaking negatively, or saying she didnt like a location was about India. It was something about the extreme wealth juxtaposed with extreme poverty and slums right next to each other. However, Im not sure when she traveled there. Most of her travelling was between the 1950s-2000s.” - tenaciousE56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12.  “Donkey Kong Country because of King K Rool. He seems mean.” - B0rtles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13.  “China because I hear they arent too fond of black people.” - cliffbot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “There are no countries that I would say unequivocally I would never visit. There are however, many countries whose current social and or political climate means I would not travel there until things change.” - Superfly1503</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Sierra Leone. Lord Of War taught me it’s a bad place” - KZMountainRider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Qatar - all of the deaths and slave labor used to build the World Cup stadiums” - jwall4</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Not a country but that island (think its off India) that has that untouched tribe living there cos I wouldnt want to affect them. Anywhere else I would if it was safe to do so at the time.” - a_guy_called_craig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18.  “Pakistan / Afghanistan: because of their stellar women’s rights record” - fuckstraya56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Russia, mostly cause my family was exiled from there during the reign of Peter the Great and I’m not sure if that was ever rescinded” - king-geass</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20.  “Probably Saudi Arabia because I do not want to finance the human right abuses” - geej47</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21.  “Iran, Iraq, Saudi Arabia. Any country that can bang you in prison for 10 years just for farting in the wrong place lol” - Nizmo57</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Anywhere with bot flies” - HorizontalPotato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Somalia and North Korea. why? According to studies, Somalia is so violent that not even the health and police personnel care what happens and a good part of the country is nominated for gangs and drug trafficking. and north korea for their laws like: only 30 haircuts available 15 women and 15 men” - DepartmentTough6031</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158885.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">42 People Who Just Didn't Get the Joke</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">40 Historical Comparisons Showing How Things Have Changed</a><br>
+
+<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">20 Pics and Posts That Aged like a Fine Wine</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023657/87159662/dislike.jpg" style="width:100%"><br>
 
@@ -807,7 +941,7 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023827/87159681/zodiac.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky16" id="linky15">50 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159105.jpg" style="width:100%"><br>
 
@@ -909,233 +1043,45 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159154.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
-
-<span style="font-size:4em">1. Mother Theresa. My father was a taxi driver in Australia and one of his customers was a man whod been raised in Mother Theresas orphanage. He said she beat him terribly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Christopher columbus...didnt discover s**t and brought misery wherever he went.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Pablo Picasso, he was misogynistic and sexually assaulted women</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Thomas Edison. I’ll never forgive him for what he did to Tesla.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Gandhi. After learning all the colorist and racist s**t he would say to those who had darker complexion or those of African descent in my 8th grade year i haven’t seen him the same.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155845.jpg" style="width:100%"><br>
+## <a href="#linky17" id="linky16">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
 
-<span style="font-size:4em">6. Bill Cosby. Americas dad. Up until those allegations started</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155846.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Elvis Presley. He groomed a then 14 year old and slept with her while he toured.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155847.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Alfred Hitchcock, the guy probably was one of the best filmmakers ever, yes. but its worth mentioning how much he abused his actors, including sexually harassing Tippi Hedren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155848.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Charles Dickens had his wife, the mother of his children, committed to an insane asylum so he could run off with a teenage actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155849.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. PT BARNUM.
-
-Most people know but due to the romanticization of The Greatest Showman, people should know that he was a maniac that did an ungodly experiments on living beings, locked people in cages, abused them, and mocked them. All whilst earning pocket from them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155850.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Einstein wasn’t a great guy. Brilliant, sure, but kinda douchy in his personal life.
-
-He refused to marry his long time lover for years, even after she got pregnant. The child was assumed to be given up for adoption, but no record has ever been found.
-
-He and his wife, Mileva Marić, worked together on their research. People saw them do it. They made jokes about it at parties. He proudly told people that she did all his calculations. They only put his name on their work and he went on to claim all the credit - ignoring any work she had done. Part of their agreement was that she would get the Nobel prize money but he tried to prevent that.
-
-She raised two children - one schizophrenic - took care of the house and tutored to bring in extra money because he couldn’t get a job for a long time. He started getting more notoriety and then began an affair with his first cousin.
-
-He moved to a different country to be with his new hillbilly mistress. He divorced his wife and quickly married the new, younger model. He had rules she had to abide by, such as leaving the room immediately when told and not expecting or asking for any sort of affection except when necessary for appearances sake.
-
-Elsa, his second wife, was dying and he worked nonstop because he didn’t know what to do (I guess). She was basically abandoned her last few months.
-
-He cheated on both his wives, numerous times. Ignored his children. Oh - and he was pretty into his second wife’s daughter and thought about marrying her instead.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155851.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. King Edward the VIII was a nazi sympathizer who possibly colluded with the Germans to retake the throne in the event of an invasion and conquest of Britain.
-
-He wasn’t just a love sick romantic who gave up his kingdom for a woman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155852.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Charlie Chaplin definitely. Dude groped/assaulted girls and married a woman 40 years younger than him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155853.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Oliver Cromwell
-
-Tried to make England a republic, ended up being a king in all but name. Butchered the Irish, banned Christmas and is partially responsible for the puritans (who fled to America after the monarchy was restarted)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155854.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Steve Jobs. The way he treated his family is horrible.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155855.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Coco Chanel was a goddamn Nazi spy. Yes, she was an incredible designer, and shes probably one of the most influential humans of the 20th century, based on the number of people who have worn clothing directly inspired by her over the past 100 years. She really did change the way women dress in a truly radical way, and I respect that - knitwear, feminized menswear, ditching the corset, transforming black into an everyday color, the essential skirt suit, costume jewelry, synthetic fragrances in perfume, the list goes on.
-
-But she was a goddamn Nazi spy. Coco was a wretched anti-Semite, like so many other members of the European elite during the 30s. She dated a number of staggeringly wealthy British aristocrats and theyd all sit around talking about the Protocols of Zion and s**t, trying to figure out whether any members of the royal family were secretly Jews, etc. When war broke out, the two Jewish brothers who ran her perfume empire (aka Chanel No 5, the best selling perfume in the world then and now) had to flee to the US for safety. How did Coco respond? By writing to the Nazis to ask them to transfer ownership over to her, a good Aryan, so she could make more money. But thats not the half of it.
-
-She fell in love with a dashing German spy named Spitz whod been seducing bluebloods all over France and England for years leading up the war. Coco was a useful woman - she was simply one of the richest women in the world, and she knew everyone in the British aristocracy, including her old hunting buddy and dear friend, Winston Churchill himself. She and Spitz socialized with all the biggest Nazi names in town, especially Otto Abetz, the Nazi ambassador to France, who invited them to every party in town. Spitz convinced her to join the Abwehr (aka the German secret service) and make trips to Spain. Operating under the code name Westminster, she attempted to broker a separate peace between Germany and England. (In the meantime, she may or may not have reported at least one woman at the Hotel Ritz whom she suspected of being Jewish to the SS.) She had a grand old time going on her adventures, and wrote about the excitement of working for the Abwehr in her private notes.
-
-Chanel was arrested only a few days after the liberation of Paris - absolutely everyone in town knew what shed been doing and who shed been doing it with - but for rEaSoNs UnKnOwN she was released without charges. Its widely believed that Winston Churchill personally intervened. It might be because the two of them had been close friends for decades. It might be because she was going to embarrass the s**t out of Britain by outing all the anti-Semites and pro-Nazis in the British aristocracy - including the recently abdicated Edward VIII who used his f***ng honeymoon as an excuse to tour Nazi Germany and shake Hitlers hand. She spent the rest of her life being a nasty, bitter morphine addict living in the Hotel Ritz. The House of Chanel has very, very little to say about the matter, and every few years a few more bits of damning evidence are declassified from the vaults.
-
-If you want to learn more, I did a whole episode about her Nazi days in my French history podcast: The Collaborator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155844.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Andy Warhol was a fraud and an abuser.
-
-The book Edie is a great read, but sad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155856.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Kinda coming much more into light now but The Founding Fathers, all of them owned slaves and by modern day standards they would be horrible people. But something I think lots of people don’t remember is even if these things are utterly reprehensible, everyone was doing it and they were all children of their time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155857.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Benito Juárez
-
-He was the type of president who kills his opposition instead of negotiating. He did a lot of illegal executions.
-
-He was going to be executed in Guadalajara, however one of his ministers convinced the soldiers not to kill him with a famous phrase alto, los valientes no asesinan, the soldiers forgave his life and risked theirs as the disobey an order. Well, as soon as Juarez returned to Mexico city, he immediately ordered to kill all of those soldiers with no mercy (source: my sister worked with the Sargents descendant)
-
-After Juárezs government, theres a period Known as the porfiriato, where Porfirio Díaz was Mexicos president for 30 years. It was possible just because there was no opposition alive
-
-Juarez suddenly died in 1872 from a heart attack. Its believed that a woman, to avenge his husband, worked on his home as a maid, and when she had the opportunity, she put an infusion of veintiunilla a herb known by the natives for being poisonous and cause a heart attack 21 days (veintiún dias) after it was drank</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155858.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Churchill. He started the Bengal Famine which killed 3 million people. He also was incredibly racist and liked killing through gas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155859.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Not quite beloved, but Joseph P. Kennedy Sr..
-
-He decided that Rosemary (his daughter) who was 23 at the time should have a lobotomy; he did not inform his wife of this decision until after the procedure was completed. And then they sent her away to an institute.
-
-In her early young adult years, Rosemary Kennedy experienced seizures and violent mood swings. In response to these issues, her father arranged a prefrontal lobotomy for her in 1941 when she was 23 years of age; the procedure left her permanently incapacitated and rendered her unable to speak intelligibly.
-
-Sick f**k, who would do this to their own child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155860.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. William Hurt. I remember seeing tons of praise for him when he passed recently.
-
-Thing is, he beat and raped Marlee Matlin back in the 80s. She discussed it in her memoir. When he was approached about it, his response wasnt to deny it, but to apologize for any pain he may have caused to her.
-
-If you want to praise his acting, fine. But remember what sort of person he was behind the characters you loved on film.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155861.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Joseph Smith-
-
-I grew up LDS and left with my family when I was in junior high. After some reading and learning from historical documents without church bias, I realized how drastically different he was when he wasn’t viewed in the eyes of the church.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155862.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Dr Suess cheated on his partially disabled wife and she eventually committed suicide because of how distraught she was.
-
-“I am too old and enmeshed in everything you do and are, that I cannot conceive of life without you,”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155863.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Margaret Sanger was pro-eugenics and a racist.
-
-In promoting birth control, she advanced a controversial Negro Project, wrote in her autobiography about speaking to a Ku Klux Klan group and advocated for a eugenics approach to breeding for “the gradual suppression, elimination and eventual extinction, of defective stocks — those human weeds which threaten the blooming of the finest flowers of American civilization.”
-
-She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Queen Elizabeth I not the current one. -her cousin got married without her permission so she locked her in a tower for a long time. Her other cousin also did this and the Queen had her locked there until she died. -when she took over Munster she abused many native Irish people. -she spent more money than she had. Despite this slot of British ppl I talk too think she is one of the greatest monarchs they have had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155866.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">40 Historical Comparisons Showing How Things Have Changed</a><br>
-
-<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
-
-<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
 
