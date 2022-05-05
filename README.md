@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/05/2022-03:11:32
+Last updated: 05/05/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">21 Most Cringe Posts from the Depths of the Internet</a><br>
 
@@ -45,59 +45,67 @@ Last updated: 05/05/2022-03:11:32
 
 <span style="font-size:4em">21. Oof. Tell me youre whipped without telling me youre whipped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159061.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
+## <a href="#linky3" id="linky2">30 Nightmarish Things People Spotted</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159525.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Angler Fish Washed Ashore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159528.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This Is A Wasp Nest That Has Grown Around The Floodlights On A Garage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159529.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Man Finds Huge Spider Hiding Inside Ear Muffs After Feeling Tickle In His Ear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159530.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Went Into My Attic Looking For A Water Leak Coming Into My Living Room And It Appears That Im Also In Quarantine With This Whatever Monstrosity Left This Behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159531.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Well There Is A Water Snake Living In My Toilet Somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159532.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Was Playing Video Games When I Heard Sounds To My Left. Looked Over And Saw This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159533.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Coconut Crabs Are Attracted To The Smell Of Food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159534.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Started Work This Morning, Put My Headset On, Felt Something Furry In My Ear, Looked And There Is A Bat In My Headset</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159535.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Remember To Check Your VR Headset For Spiders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159536.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Stygian Owl Is Known For The Red Reflection Of Their Eyes That Are Often Associated With The Devil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159537.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Creatonotos Gangis Moth Unfurling Its “Hair-Pencils” To Spread Pheromones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159538.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I Share A New Jaguar Photo With You, Earlier Than I Wanted. Hopefully, You Will Like This Striking Image</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159539.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Hickory Horned Devil. Largest Caterpillar In The World. Turns Into A Regal Moth. Can Grow 6 Inches Long And Is Completely Harmless Except Visually Terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159541.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Found In A Harpy Eagles Nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159542.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Dead Man Fingers Fungus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159543.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Found This In My Apartment While Living In Japan. They Are Fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159545.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Ceiling Snake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159546.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Infested Spider Tent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159196.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159547.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Moose In Fog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159548.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Caught This Storm Above A Bowing Field Of Sunflowers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159549.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Small Tick Sucking On A Big One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159550.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Heron Likes A Bit Of Crocodilian Dinner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159551.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. This Cluster Of Fossilised Creatures Look Like They Came From Another Planet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159552.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. The Most Metal Eel Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159553.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. A Melanistic & Albino Alligator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159554.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. This Moray Tried To Swallow A Pufferfish. Said Puffer Took Her With Him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This Looks Like A Scene From A Movie. Six Waterspouts Simultaneously In The Gulf Of Mexico</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Australian Problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. An Old Friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">24 Places People Say You Shouldn't Visit </a><br>
 
@@ -445,129 +453,189 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">30. My mom worked in a maternity ward and a family with the last name Dollar named their infant child Needa...poor kid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158322.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
+## <a href="#linky10" id="linky9">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
 
-<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">40 Historical Comparisons Showing How Things Have Changed</a><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">42 People Who Just Didn't Get the Joke</a><br>
 
-<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
 
-<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
 
-<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
 
-<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
 
-<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
 
-<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
 
-<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
 
-<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
 
-<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
 
-<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
 
-<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
 
-<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">64 Interesting Images and Random Pics for Your Peepers</a><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">26 Horrible Bosses Who Lost Their Dammed Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159530.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159531.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87159554.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">64 Interesting Images and Random Pics for Your Peepers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120709/87160255/87160204.jpg" style="width:100%"><br>
 
@@ -697,7 +765,49 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120714/87160257/87160201.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">50 Funny Photos To Make Your Work Go Away</a><br>
+## <a href="#linky14" id="linky13">20 Pics and Posts That Aged like a Fine Wine</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023657/87159662/dislike.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023702/87159663/cup.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023709/87159664/batman.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023714/87159665/hill.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023720/87159666/jackblack.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023725/87159667/glinda.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023815/87159678/twentieth.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023730/87159668/jim.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023736/87159669/mcrib.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023742/87159670/meta.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023747/87159671/octo.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023753/87159672/onion.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023758/87159673/phone.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023801/87159674/kanye.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023804/87159675/pokemon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023809/87159676/time.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023812/87159677/trump.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023820/87159679/ukraine.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023823/87159680/will.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023827/87159681/zodiac.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">50 Funny Photos To Make Your Work Go Away</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159105.jpg" style="width:100%"><br>
 
@@ -799,153 +909,7 @@ They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.eba
 
 <span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87159154.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">30 Nightmarish Things People Spotted</a><br>
-
-<span style="font-size:4em">1. Angler Fish Washed Ashore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This Is A Wasp Nest That Has Grown Around The Floodlights On A Garage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Man Finds Huge Spider Hiding Inside Ear Muffs After Feeling Tickle In His Ear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Went Into My Attic Looking For A Water Leak Coming Into My Living Room And It Appears That Im Also In Quarantine With This Whatever Monstrosity Left This Behind</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Well There Is A Water Snake Living In My Toilet Somehow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Was Playing Video Games When I Heard Sounds To My Left. Looked Over And Saw This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Coconut Crabs Are Attracted To The Smell Of Food</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Started Work This Morning, Put My Headset On, Felt Something Furry In My Ear, Looked And There Is A Bat In My Headset</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Remember To Check Your VR Headset For Spiders</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Stygian Owl Is Known For The Red Reflection Of Their Eyes That Are Often Associated With The Devil</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Creatonotos Gangis Moth Unfurling Its “Hair-Pencils” To Spread Pheromones</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I Share A New Jaguar Photo With You, Earlier Than I Wanted. Hopefully, You Will Like This Striking Image</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Hickory Horned Devil. Largest Caterpillar In The World. Turns Into A Regal Moth. Can Grow 6 Inches Long And Is Completely Harmless Except Visually Terrifying</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Found In A Harpy Eagles Nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Dead Man Fingers Fungus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Found This In My Apartment While Living In Japan. They Are Fast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Ceiling Snake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Infested Spider Tent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Moose In Fog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Caught This Storm Above A Bowing Field Of Sunflowers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Small Tick Sucking On A Big One</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Heron Likes A Bit Of Crocodilian Dinner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. This Cluster Of Fossilised Creatures Look Like They Came From Another Planet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The Most Metal Eel Ever</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A Melanistic & Albino Alligator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. This Moray Tried To Swallow A Pufferfish. Said Puffer Took Her With Him</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This Looks Like A Scene From A Movie. Six Waterspouts Simultaneously In The Gulf Of Mexico</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Australian Problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. An Old Friend</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This Harmless Snail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159209.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">20 Cringeworthy Dudes Who Posed with Their Favorite Pornstars</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121213/87159480/awkward.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121236/87159482/butt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121243/87159483/boob.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121244/87159484/bald.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121247/87159485/creepy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121258/87159487/cuddle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121224/87159481/booty.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121305/87159488/handsy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121309/87159489/happy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121316/87159490/lap.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121320/87159491/hat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121328/87159492/old.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121330/87159493/penguin.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121255/87159486/glasses.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121339/87159494/red.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121341/87159495/pink.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121350/87159496/scary.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121353/87159497/selfie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121402/87159498/vegas.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/121403/87159499/venom.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">20 Pics and Posts That Aged like a Fine Wine</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023657/87159662/dislike.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023702/87159663/cup.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023709/87159664/batman.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023714/87159665/hill.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023720/87159666/jackblack.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023725/87159667/glinda.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023815/87159678/twentieth.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023730/87159668/jim.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023736/87159669/mcrib.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023742/87159670/meta.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023747/87159671/octo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023753/87159672/onion.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023758/87159673/phone.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023801/87159674/kanye.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023804/87159675/pokemon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023809/87159676/time.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023812/87159677/trump.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023820/87159679/ukraine.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023823/87159680/will.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/023827/87159681/zodiac.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
+## <a href="#linky16" id="linky15">27 Historical Figures That Maybe Don't Deserve All The Praise</a><br>
 
 <span style="font-size:4em">1. Mother Theresa. My father was a taxi driver in Australia and one of his customers was a man whod been raised in Mother Theresas orphanage. He said she beat him terribly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155840.jpg" style="width:100%"><br>
 
@@ -1053,89 +1017,125 @@ She is seen as a saint to many.</span><br><img src="https://cdn.ebaumsworld.com/
 
 <span style="font-size:4em">26. Queen Elizabeth I not the current one. -her cousin got married without her permission so she locked her in a tower for a long time. Her other cousin also did this and the Queen had her locked there until she died. -when she took over Munster she abused many native Irish people. -she spent more money than she had. Despite this slot of British ppl I talk too think she is one of the greatest monarchs they have had.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87155866.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">42 People Who Just Didn't Get the Joke</a><br>
+## <a href="#linky17" id="linky16">40 Historical Comparisons Showing How Things Have Changed</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Curtiss C-46 Commando, One Of Pablo Escobar / Carlos Lehder’s Drug Smuggling Planes Near Norman’s Cay In The Bahamas, After 35 Years Submerged In Saltwater”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
+<span style="font-size:4em">2. “The Big Oak; Thomasville, Ga (1895/2020)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
+<span style="font-size:4em">3. “Mount Rushmore”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158640.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
+<span style="font-size:4em">4. “Visitors In The Metropolitan Museum Of Art, Viewing Painting (Emanuel Leutze’s Washington Crossing The Delaware – 1851) 1910 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
+<span style="font-size:4em">5. “Unfinished Manhattan Bridge In 1908 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
+<span style="font-size:4em">6. “My Family Farm C.1900/2000. It Was In Our Family For 125 Years. My Childhood Bedroom Window Is In The Top Center. It Was Also My Father’s And My Grandfather’s Bedroom”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
+<span style="font-size:4em">7. “Here Is My Great Great Grandfather’s Nashville House In 1896, Two Years Before My Grandfather Was Born. This Picture Has Always Been In The Family Of Course, But Only Today Did I Use Google Maps To Look Up The Address And Find It How It Looks Today. I’m Thrilled That I Found It”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158605.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Ancient Greece Before And After Excavation”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158606.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
+<span style="font-size:4em">9. “The Golden Cross Inn, Coventry. 1819 vs. Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158608.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Machu Picchu, Peru. 1915 & 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158609.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
+<span style="font-size:4em">11. “The Berlin Wall Fell 31 Years Ago Today!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
+<span style="font-size:4em">12. “Hiroshima 75 Years Ago”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158611.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
+<span style="font-size:4em">13. “Czech Out Prague 1910 And 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
+<span style="font-size:4em">14. “Amazing Looking Home Restored In Detroit. 1993 And Now”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158613.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
+<span style="font-size:4em">15. “Hick’s Court, St Ives, England – 1888 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
+<span style="font-size:4em">17. “Milan, Italy 1950s And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
+<span style="font-size:4em">18. “Town Square In Uelzen, Lower Saxony, Germany- During The Battle Of The Rhine, April 1945 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
+<span style="font-size:4em">19. “English Tank In The Streets Of My Town, 1945-2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
+<span style="font-size:4em">20. “Today vs. Childhood Memory”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
+<span style="font-size:4em">21. “Van Gogh’s ‘Cafe Terrace At Night’ From 1888 And Present”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
+<span style="font-size:4em">22. “Church St. Martin In Cologne, Germany 1946 And 2021”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
+<span style="font-size:4em">23. “In 2005, Some Friends And I Found The Road To Jabba’s Palace Off Twenty Mule Team Canyon In Death Valley, Ca”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
+<span style="font-size:4em">24. “Theodore Roosevelt Would Be Proud”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158623.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
+<span style="font-size:4em">25. “The Main Entrance To The City, York, England 1865 – 2015”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158624.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
+<span style="font-size:4em">26. “The Royal Crescent, Bath, UK. 1829-2020. Built 1774”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158625.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
+<span style="font-size:4em">27. “Court Of The Lions, Granada, Spain – 1840 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158626.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
+<span style="font-size:4em">28. “It Hasn’t Changed Much In 157 Years, Aside From The Platform Height And Electrification. The World’s Oldest Undeground Station, Baker Street! *saxophone Plays In The Distance*”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158627.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
+<span style="font-size:4em">29. “The Royal Mile, Edinburgh, Scotland – C.1847 And Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158628.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
+<span style="font-size:4em">30. “Abandoned Restaurant In Petrópolis, Brazil (1960’s And 2013)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158629.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
+<span style="font-size:4em">31. “Buenos Aires, Argentina [1925, 1980, 2002, 2021]”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158630.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
+<span style="font-size:4em">32. “Brihadisvara Temple, Thanjavur, India. 1798 Lithograph By Thomas Daniell And 2016. Built Between 1003-1010”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158632.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
+<span style="font-size:4em">33. “Kraków, Poland (1939 And 2010s)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158633.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
+<span style="font-size:4em">34. “Stonehenge: 1877 And 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158634.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
+<span style="font-size:4em">35. “Arch Of Constantine In Rome, 1943 (Taken By My Grandfather), And What It Looks Like Today”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158635.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
+<span style="font-size:4em">36. “St Francis Of Assisi Church”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158636.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
+<span style="font-size:4em">37. “Woodstock Festival Site- 1969 / 2020”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158637.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
+<span style="font-size:4em">38. “Hong Kong’s Kowloon Peninsula 1964 – 2016”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158638.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
+<span style="font-size:4em">39. “A Former Public Bath In Wuppertal, Germany, Now A Brewery And Beer Hall. 1993 vs. 2019”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158639.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
+<span style="font-size:4em">40. “Trains At Harper’s Ferry, Wv In 1947 And 2021. The 1947 Image Taken By Ed Wittekind, 2021 Image Shot By Me In The Same Exact Spot”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158641.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
+## <a href="#linky18" id="linky17">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
+<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
 
