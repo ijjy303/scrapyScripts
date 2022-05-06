@@ -1,85 +1,117 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/06/2022-14:11:31
+Last updated: 05/06/2022-15:11:31
 <br>
-## <a href="#linky2" id="linky1">23 Redneck Life Hacks to Show Your Cousi- I Mean Wife</a><br>
+## <a href="#linky2" id="linky1">34 Work Memes that Perfectly Sum Up Why We Hate It</a><br>
 
-<span style="font-size:4em">1. Duct tape is the gift that keeps on giving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160785.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Yeah Im really happy for you Susan, now can you leave me alone for a few  minutes!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Listen, were on a tight budget okay?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160786.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. More often than not, the extra work you do to pick up the slack becomes expected.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113320/87161820/work-memes-captain-picard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160787.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sometimes it takes everything inside you not to unleash and explode on those annoying customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Gotta dry your clothes somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160788.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Seriously, just stop.  The second worse thing is those who werent paying attention and ask a question that has already been addressed and open up a whole new conversation.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113331/87161821/work-memes-asking-dumb-questions.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I need to know more details about this story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160789.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113342/87161822/work-memes-do-i-love-my-job-no.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Classy, sophisticated, useful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160790.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Now these are life goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Does this actually work? Can someone confirm?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160791.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Show me another person this smart and this savvy...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160792.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Desperate times call for desperate measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160793.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. But if it were rich people theyd say its repurposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160794.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113353/87161824/work-memes-dorothy-wizard-of-oz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I mean...do what you got to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160795.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113402/87161825/work-memes-eliane-rubber-pencil.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cant tell if this is genius or insanity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160796.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When you need that first layer of sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160797.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113404/87161826/work-memes-game-of-thrones-dragon-queen.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. How have I never thought of this??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160798.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113414/87161827/work-memes-hayden-pannetierre.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Stealing a page right out of Walmarts book. Love to see it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160799.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113416/87161828/work-memes-interview-listening.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Maybe Im the idiot. Im beginning to see that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160800.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113424/87161829/work-memes-kermit-building-still-standing.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. It...Its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160801.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My OCD absolutely loves this life hack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160802.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Who said CDs are a dying technology?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160803.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113427/87161830/work-memes-shia-lebouf-then-vs-now.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This is what they should have been teaching us in High School</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160804.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113438/87161832/work-memes-tyler-perry-interview.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Make your own bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160805.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113448/87161833/work-memes-wednesday-adams.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This is perfection. No notes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160806.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The fanciest door latch Ive ever laid eyes on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160807.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161811.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">15 Cool Pics to Open Your Perspective on Life </a><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. 6’9″ compared to 5’1″</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158654.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Catalytic converter thieves caught in the act</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158645.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Shanghai’s residents have endured an extreme COVID lockdown since the end of March — and metal fencing is being installed to keep people inside their homes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158646.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A shark’s brain, and a dolphin’s brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158647.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161804.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A Bronze Age man and woman have been found locked in a loving embrace for 3,000 years in a grave in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158648.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113351/87161823/work-memes-annoyed-beatlejuice.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. On April 9, 1987, Princess Diana of Wales was photographed shaking hands with an AIDS patient . The gesture challenged the once common belief that the disease could be transmitted by touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158649.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A hedgehog being anaesthetised</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158650.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. LeVar Burton’s wedding, 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158651.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Great Peace of Montréal (1701): a peace treaty between New France, the Iroquois Confederacy, and 38 other indigenous nations which brought an end to the Beaver Wars (c.1609-1701). Here are the signatures of 31 indigenous representatives, who used pictograms instead of signatures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158652.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. An alignment of Earth, Mars, Venus, Saturn and Jupiter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158653.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113437/87161831/work-memes-the-office-cheese-balls.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158655.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">Ancient Artifacts That Totally Piqued Our Interest</a><br>
 
-<span style="font-size:4em">12. The head size difference between a man and a cane corso</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158656.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. An astronomical toolkit from 1557 including a sundial, a world map, and a compass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030021/87160388/1557sundialmapcompass.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Casu Marzu is a Sardinian cheese that contains live maggots. The maggots can jump up to five inches out of the cheese while eating it, so it’s recommended to cover the eyes with a hand while eating.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158657.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This personal collection of books and manuscripts dating from the 15th century to the 20th century.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030032/87160389/books15thto20th.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. The Arctic ocean photographed in the same place 105 years ago vs today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158658.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Gold sandals from Egypt - 1479 B.C.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030044/87160391/goldsandalsegypt1479BC.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. In 1731 King Frederick I of Sweden sent a taxidermist his favorite lion who had died and this is what he received back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158659.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A figurine sculpture of a man grating cheese - 500 B.C.E.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030055/87160392/cheese500BCE.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Marble statue of the Goddess of Health, Hygieia - 5 B.C.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030106/87160393/hygieiamarbel5BC.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Blue glass decanter/shaker set Hindenburg replica - 1920.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030115/87160394/hindenburgdecantershaker1920.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. A 13th century Iranian bowl painted with fish and stained turquoise.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030118/87160395/iranfishbowl13th.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Ivory male and female figurines with organs - 1600.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030126/87160396/ivoryMF1600.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. A carving from Japan. Ghost nursing a baby - 1850.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030128/87160397/japannurseghost1850.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Korean cannonball with a delayed fuse. When shot, it acted almost as if it were a grenade.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030137/87160398/koreancannonballfuse.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. A Korean knife with detachable chopsticks.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030139/87160399/knifewithchopstickskorea.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Founded in 1939 this Lion Man sculpture is the oldest known anthropomorphic animal carving in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030149/87160400/lionmanoldestfound1939.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. A 2000-year-old Roman dagger that has been fully restored.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030150/87160401/romandagger2000yr.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. This gorgeous Samurai helmet dating back to 1525.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030200/87160402/samurai1525.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. This ancient roman water faucet thought to have been located in Pompeii.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030201/87160403/romanfaucetpompeii.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. The bejeweled corpse of Saint Coronatus dating back to 1676.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030211/87160404/stcoronatus1676.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. This mosquito-themed holding vessel for tobacco - 600 A.D.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030212/87160405/tobaccoholder600AD.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Japanese carving of a wasp and its nest - 1800.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030223/87160406/waspcarvingjapan1800.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Translated work absence slate dating all the way back to 1250.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030223/87160407/workabsence1250.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. The arrest warrant for wanted criminal, Nicollo Machiavelli.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030621/87160408/nicollomachiavelli.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">20 Trashy Marriages to Avoid This Wedding Season</a><br>
 
@@ -583,7 +615,49 @@ Last updated: 05/06/2022-14:11:31
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141732.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">30 Spine-Chilling Things Kids Have Said Or Done</a><br>
+## <a href="#linky12" id="linky11">20 Vintage PSAs That Scared Us Half to Death</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/032123/87162016/tmnt.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161770.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161768.gif" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161767.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161777.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87161785.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">30 Spine-Chilling Things Kids Have Said Or Done</a><br>
 
 <span style="font-size:4em">1. Mommy, will you ever hurt me with a knife I told her no. She followed up with ok good. I know some moms do that she was 3 when this happened. She had never seen videos or anything that showed child abuse, so Im not sure how she was aware that some parents hurt their kids. Shes also never been abused by anyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161653.jpg" style="width:100%"><br>
 
@@ -685,7 +759,97 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">30. Telling this story on my Mothers behalf. Ever since I was little Ive been a sleepwalker. I dont know when it started or why all I know is that my mom was the one that would find me walking about and send me back to bed when I was living with her. Apparently one night (I have no memory of the event my mom told me the next morning) I got up, walked into the doorway of my parents room, and just stood there, head down, while softly muttering something under my breath. Mom tells me she woke up and nearly had a heart attack. As she got up to help me back upstairs I sloooowly turned around and walked myself back to bed. Moms locked her door ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161678.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">30 Times Things Went From 0 to 100</a><br>
+## <a href="#linky14" id="linky13">23 Redneck Life Hacks to Show Your Cousi- I Mean Wife</a><br>
+
+<span style="font-size:4em">1. Duct tape is the gift that keeps on giving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Listen, were on a tight budget okay?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Gotta dry your clothes somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I need to know more details about this story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Classy, sophisticated, useful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Does this actually work? Can someone confirm?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Show me another person this smart and this savvy...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Desperate times call for desperate measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. But if it were rich people theyd say its repurposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I mean...do what you got to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cant tell if this is genius or insanity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. When you need that first layer of sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. How have I never thought of this??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Stealing a page right out of Walmarts book. Love to see it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Maybe Im the idiot. Im beginning to see that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. It...Its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My OCD absolutely loves this life hack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Who said CDs are a dying technology?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is what they should have been teaching us in High School</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Make your own bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is perfection. No notes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The fanciest door latch Ive ever laid eyes on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160807.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">21 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159939.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159945.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159956.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">30 Times Things Went From 0 to 100</a><br>
 
 <span style="font-size:4em">1. I always had a feeling there was a much darker side to life on Sesame Street</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159635.jpg" style="width:100%"><br>
 
@@ -747,142 +911,51 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159643.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Brains That Got the Short End of the Stick</a><br>
+## <a href="#linky17" id="linky16">21 Fails to Improve Your Self-Confidence</a><br>
 
-<span style="font-size:4em">1. A girl in my high school asked if Hitler was some sort of Nazi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160216.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. A coworker couldn’t figure out why Alaska was cold and Hawaii was hot, because “they’re next to each other on the map.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160208.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. A guy I knew thought that human bones were made of wood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160209.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I love a confidently incorrect correction. Once at school we were discussing Monet and how he had cataracts which affected the colors of his later paintings (they grew more and more orangey-brown over time.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160211.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160212.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-One girl raised her hand to ask what cataracts are, and her friend immediately interrupted to say “ugh you don’t know anything, it’s a kind of boat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160213.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A sous chef who made more money than me, a line cook, sincerely thought leaving a lid on a pot makes bringing water to a boil go slower because it “holds the heat down. I will refrain from repeating the other very horrible things this person has said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160217.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “How do dogs in China learn Chinese?” This person was under the assumption that dogs just naturally spoke English.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160214.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Wait, wait. Why have you been lying to me?! You said you were from Liverpool, not England!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160215.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In my freshman year of college, a biology professor started his semester with a speech about how science is how we explain everything in the modern world through experiments and peer review. A girl next to me had a smug look on her face and said, “If science can explain everything then why are people still doing experiments? Can’t science just explain it? I mean just read a book.”
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160210.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159843.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160218.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-It took me a while to realize her wisdom and then it took me even longer to hold down my laughter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160219.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. A girl in middle school thought that trees flapping created wind rather than the other way around.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160220.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Once when I took a class trip to Washington D.C. we went to a museum and saw a reenactment of something featuring George Washington on a big screen. While we were watching it I heard two girls from the front row. One of them asked the other, “Is this real footage?” And the other replied, “No, if it was real it would be in black and white.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160221.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I used to work as a paralegal and had to fight with Social Security when they accused my clients of fraud. Got on a call with an agent who insisted my client was faking the disability her daughter had. The daughter died of the disability and it says it on the death certificate. The agent told me it wasn’t enough proof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160222.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A woman in my office asked another woman if The Martian” with Matt Damon was based on a true story and the other woman said she wasn’t sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160223.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My friend once thought Aloe Vera was some European model who was hired for every cosmetic commercial because they would always say the product name and then “with aloe vera” as they showed models in the back dancing or washing their face or whatever. He thought she was one of them.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160224.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160225.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I believe the direct quote was something to the effect of “it’s crazy how she gets hired for literally every single commercial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160226.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Why Mexico’s Independence Day isn’t the same as the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160227.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159862.jpeg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Ancient Artifacts That Totally Piqued Our Interest</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159863.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. An astronomical toolkit from 1557 including a sundial, a world map, and a compass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030021/87160388/1557sundialmapcompass.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. This personal collection of books and manuscripts dating from the 15th century to the 20th century.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030032/87160389/books15thto20th.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gold sandals from Egypt - 1479 B.C.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030044/87160391/goldsandalsegypt1479BC.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. A figurine sculpture of a man grating cheese - 500 B.C.E.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030055/87160392/cheese500BCE.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Marble statue of the Goddess of Health, Hygieia - 5 B.C.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030106/87160393/hygieiamarbel5BC.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Blue glass decanter/shaker set Hindenburg replica - 1920.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030115/87160394/hindenburgdecantershaker1920.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. A 13th century Iranian bowl painted with fish and stained turquoise.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030118/87160395/iranfishbowl13th.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Ivory male and female figurines with organs - 1600.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030126/87160396/ivoryMF1600.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. A carving from Japan. Ghost nursing a baby - 1850.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030128/87160397/japannurseghost1850.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Korean cannonball with a delayed fuse. When shot, it acted almost as if it were a grenade.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030137/87160398/koreancannonballfuse.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. A Korean knife with detachable chopsticks.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030139/87160399/knifewithchopstickskorea.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Founded in 1939 this Lion Man sculpture is the oldest known anthropomorphic animal carving in the world.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030149/87160400/lionmanoldestfound1939.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. A 2000-year-old Roman dagger that has been fully restored.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030150/87160401/romandagger2000yr.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. This gorgeous Samurai helmet dating back to 1525.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030200/87160402/samurai1525.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. This ancient roman water faucet thought to have been located in Pompeii.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030201/87160403/romanfaucetpompeii.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. The bejeweled corpse of Saint Coronatus dating back to 1676.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030211/87160404/stcoronatus1676.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. This mosquito-themed holding vessel for tobacco - 600 A.D.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030212/87160405/tobaccoholder600AD.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Japanese carving of a wasp and its nest - 1800.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030223/87160406/waspcarvingjapan1800.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Translated work absence slate dating all the way back to 1250.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030223/87160407/workabsence1250.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. The arrest warrant for wanted criminal, Nicollo Machiavelli.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/030621/87160408/nicollomachiavelli.png" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">21 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159939.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159945.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87159956.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">The 25 Scariest Things People Saw in Prison</a><br>
+## <a href="#linky18" id="linky17">The 25 Scariest Things People Saw in Prison</a><br>
 
 <span style="font-size:4em">1. 1. “My cell mate was truly crazy and was tortured by hallucinations.One day he managed to gouge one of his eyes out with a fork at lunch in front of everyone, then puncture the other eye with something before the screws could get to him.He was screaming like a banshee when he ripped the first one out and threw it on the floor, and everyone just stared in shock, including the screws, at first it looked like a skit or something. After the one was out he went really quiet and pulled something from his waist and started rapidly stabbing the other eye with it. I heard it pop.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158803.jpg" style="width:100%"><br>
 
@@ -934,47 +1007,102 @@ I believe the direct quote was something to the effect of “it’s crazy how sh
 
 <span style="font-size:4em">25. 25. “Ok so unfortunately, my bunk was close to the corner where everybody came to fight or whatever. So this one guy claimed that he was a gang member but it was discovered that he was a false-flagger. So, the gang members put him in the corner and took turns beating and raping him. He was in the infirmary for bout a week. When he came back, the gang got him all over again. He was transferred after that. I promise there arent many things more terrifying than hearing a grown man scream while hes being raped.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158827.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">21 Fails to Improve Your Self-Confidence</a><br>
+## <a href="#linky19" id="linky18">20 Brains That Got the Short End of the Stick</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159844.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. A girl in my high school asked if Hitler was some sort of Nazi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159845.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A coworker couldn’t figure out why Alaska was cold and Hawaii was hot, because “they’re next to each other on the map.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159853.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. A guy I knew thought that human bones were made of wood.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159859.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I love a confidently incorrect correction. Once at school we were discussing Monet and how he had cataracts which affected the colors of his later paintings (they grew more and more orangey-brown over time.)
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159846.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159847.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+One girl raised her hand to ask what cataracts are, and her friend immediately interrupted to say “ugh you don’t know anything, it’s a kind of boat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159848.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A sous chef who made more money than me, a line cook, sincerely thought leaving a lid on a pot makes bringing water to a boil go slower because it “holds the heat down. I will refrain from repeating the other very horrible things this person has said.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159849.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “How do dogs in China learn Chinese?” This person was under the assumption that dogs just naturally spoke English.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159850.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Wait, wait. Why have you been lying to me?! You said you were from Liverpool, not England!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159843.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. In my freshman year of college, a biology professor started his semester with a speech about how science is how we explain everything in the modern world through experiments and peer review. A girl next to me had a smug look on her face and said, “If science can explain everything then why are people still doing experiments? Can’t science just explain it? I mean just read a book.”
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159851.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159852.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+It took me a while to realize her wisdom and then it took me even longer to hold down my laughter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160219.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159854.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. A girl in middle school thought that trees flapping created wind rather than the other way around.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160220.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159855.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Once when I took a class trip to Washington D.C. we went to a museum and saw a reenactment of something featuring George Washington on a big screen. While we were watching it I heard two girls from the front row. One of them asked the other, “Is this real footage?” And the other replied, “No, if it was real it would be in black and white.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160221.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159856.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I used to work as a paralegal and had to fight with Social Security when they accused my clients of fraud. Got on a call with an agent who insisted my client was faking the disability her daughter had. The daughter died of the disability and it says it on the death certificate. The agent told me it wasn’t enough proof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160222.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159857.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. A woman in my office asked another woman if The Martian” with Matt Damon was based on a true story and the other woman said she wasn’t sure.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159858.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My friend once thought Aloe Vera was some European model who was hired for every cosmetic commercial because they would always say the product name and then “with aloe vera” as they showed models in the back dancing or washing their face or whatever. He thought she was one of them.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160224.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159860.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160225.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159861.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I believe the direct quote was something to the effect of “it’s crazy how she gets hired for literally every single commercial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160226.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159862.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Why Mexico’s Independence Day isn’t the same as the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160227.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159863.jpeg" style="width:100%"><br>
+## <a href="#linky20" id="linky19">23 Ruthless Comments That Hit Their Mark</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161883.jpg" style="width:100%"><br>
 
