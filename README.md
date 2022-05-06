@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/06/2022-00:11:31
+Last updated: 05/06/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">39 Funny Randoms to Uplift Your Mood</a><br>
 
@@ -81,191 +81,77 @@ Last updated: 05/06/2022-00:11:31
 
 <span style="font-size:4em">39. “Oversized band-aid on this dented car in the parking garage at work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160158.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
+## <a href="#linky3" id="linky2">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
 
-<span style="font-size:4em">1. Nevaeh. Its heaven backwards. Anyone that tells you their daughter is named Nevaeh will also tell you that its heaven spelled backwards. Every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158293.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Heard a lady yell at her kid. “Graceland Tennessee stop running around!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158308.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I know a girl named Random. While at an Easter egg hunt years ago (eggs were labeled for each kid), I took the eggs labeled Random thinking they were up for grabs. Random’s parents were unamused to say the least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158294.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My neighbor was the 12th kid. His parents named him Twelver. That’s gotta be the worst I’ve ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158295.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. An ex had friends who named their kids Haight and Rayge (hate and rage). Good luck kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158296.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I went to high school with a guy named John John John. Yes, his first name, middle name and last name were all “John”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158297.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Baby girl
-
-Yes this was their legal name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158298.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I work at a college and often go through the new applications to process them, Ive seen all kinds.
-
-Most ridiculous name Ive seen thus far though:
-
-Starscream Anakin as his first and middle names. He has a normal last name. When I first saw it, I was certain that it was a kid f**king with our application system. Then I met him in person, and he showed me his ID.
-
-His name is legally Starscream Anakin. I get the Anakin part, but of all the Transformers to name your kid after, why on Earth make it Starscream? He was just awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158299.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Wednesday Passion. That was a little girl i use to babysit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158300.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Real name, silly: Batman bin Suparman. Hes a guy in Indonesia.
-
-Real name, awful for other reasons: Null. Any kid with that name will have no end of trouble with databases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158301.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. My favorite I saw while working as a banker was...
-
-Subway Club Allah Is Supreme Middle Name (last name)
-
-His parents named him this and he wanted a loan to open a weed store in a state where it is illegal.
-
-To clarify his middle name is Middle Name, i forgot the last name, but it was just a normal last name</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158302.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My sister met some kids in an international airport named Yellow, Flash, and No Exit. My sister asked No Exit why his mom picked that name; he said when she couldn’t think of anything else she saw a no exit sign from her maternity bed and settled on that.
-
-Went to school with a guy named Dude. He was named after his grandad.
-
-There was a college football quarterback in Missouri whose first name was Kokaine; named after his Grandad.
-
-I worked with a lady named Crystal Wineglass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158303.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Some friends of mine in high school knew a girl named Cash Money. Met her once and she said her name with some made up accent.
-
-One recently I ran into was Kaideynse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158304.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Lihburtee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158305.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Okay Arthur Doak. We called him Okay. He was the youngest of 5 kids.
-
-Fancy (named after the Reba song) and her sister Truly (named after Truly Scrumptious from Chitty Chitty Bang Bang)
-
-Secretlove. She was a kid my mom met when my mom worked at a pediatrician’s office. Secretlove’s mom laid out the whole story to my mom about the name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158306.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A family friend named his son Sir and its pretty cringe. Honorable mention goes to the former coworker who named his daughter Khaleesi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158307.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Christgift, Christwill and Christgood all siblings. Bless their hearts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158309.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Did data entry at an amusement park. One pass holder was named “Asthma.” That was her first name. Asthma, as in the breathing condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158310.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Novemba.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158311.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Well... lets just say that the state I live in doesnt have a significant english-speaking population, especially in the rural regions, despite the official language of the country ( India) being English and most of the urban population being educated. However; I have friends whose parents gave them names like Benadryl, Goodbye, Very helpful and the absolute worst Dishwasher. This, however is because people from the rural regions ( especially in the North-East) come to the cities, and see words in ads and billboards that they find pretty and innocently name their children after a variety of brands. I dont always blame them, I had a family friend who came off as very posh and educated, spoke perfect English... but named his daughter Darth Vader. Some of them are just trolling. Do not underestimate people of the hills; they dont take your bullshit, educated or otherwise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158312.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">15 Cool Pics to Open Your Perspective on Life </a><br>
 
-<span style="font-size:4em">21. Had a little boy in my program named Rowdy. Eh... kind of rednecky but, whatever.
-
-Then I found out his older brother is named Howdy! WTF?
-
-Found out later that the older boys legal name is Howard. Thats less ridiculous, at least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158313.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. 6’9″ compared to 5’1″</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Graduated with a girl named Bodacious
-
-Edit: As a side note: when I was in basic training I met a native American fella whose name was Knows His Gun. Just thought that was a bada** name and Ive never forgotten it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158314.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Catalytic converter thieves caught in the act</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158645.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I once encountered a plump young woman whose name, according to her ID, was Rotunda.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158315.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Shanghai’s residents have endured an extreme COVID lockdown since the end of March — and metal fencing is being installed to keep people inside their homes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158646.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. When I was pregnant my now exMIL wanted me to name our son Rock which is stupid as it is but the last name is Bowler so my sons name would be Rock Bowler and I couldnt do that to the poor kid. My ex thought it would be funny to name him Rocky with the middle name Bal so his name would be Rocky Bal Bowler...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158316.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A shark’s brain, and a dolphin’s brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. The neighbour of my dads ex had a son and daughter called Blaiyz (blaze) and Ainjayl (angel). I dont understand the strange spelling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158317.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. A Bronze Age man and woman have been found locked in a loving embrace for 3,000 years in a grave in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Yo’Majesty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158318.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. On April 9, 1987, Princess Diana of Wales was photographed shaking hands with an AIDS patient . The gesture challenged the once common belief that the disease could be transmitted by touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. There’s this girl in my high school that everyone knows about. She wears cat ears, furry tails and paws, pastel and anime clothing items, fake fangs, and refers to herself as a “pastel monster” with her body pillow. Her legal name is Honeybunny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158319.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A hedgehog being anaesthetised</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. I went to high school with a guy named Zip Daub.
-
-His middle name was Adydo.
-
-They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158320.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. LeVar Burton’s wedding, 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Queeth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158321.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The Great Peace of Montréal (1701): a peace treaty between New France, the Iroquois Confederacy, and 38 other indigenous nations which brought an end to the Beaver Wars (c.1609-1701). Here are the signatures of 31 indigenous representatives, who used pictograms instead of signatures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. My mom worked in a maternity ward and a family with the last name Dollar named their infant child Needa...poor kid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158322.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. An alignment of Earth, Mars, Venus, Saturn and Jupiter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158653.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">42 People Who Just Didn't Get the Joke</a><br>
+<span style="font-size:4em">11. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
+<span style="font-size:4em">12. The head size difference between a man and a cane corso</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
+<span style="font-size:4em">13. Casu Marzu is a Sardinian cheese that contains live maggots. The maggots can jump up to five inches out of the cheese while eating it, so it’s recommended to cover the eyes with a hand while eating.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
+<span style="font-size:4em">14. The Arctic ocean photographed in the same place 105 years ago vs today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
+<span style="font-size:4em">15. In 1731 King Frederick I of Sweden sent a taxidermist his favorite lion who had died and this is what he received back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158659.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">Ancient Artifacts That Totally Piqued Our Interest</a><br>
 
@@ -516,37 +402,49 @@ I believe the direct quote was something to the effect of “it’s crazy how sh
 
 <span style="font-size:4em">25. 25. “Ok so unfortunately, my bunk was close to the corner where everybody came to fight or whatever. So this one guy claimed that he was a gang member but it was discovered that he was a false-flagger. So, the gang members put him in the corner and took turns beating and raping him. He was in the infirmary for bout a week. When he came back, the gang got him all over again. He was transferred after that. I promise there arent many things more terrifying than hearing a grown man scream while hes being raped.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158827.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">15 Cool Pics to Open Your Perspective on Life </a><br>
+## <a href="#linky10" id="linky9">21 Fails to Improve Your Self-Confidence</a><br>
 
-<span style="font-size:4em">1. 6’9″ compared to 5’1″</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158654.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Catalytic converter thieves caught in the act</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158645.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Shanghai’s residents have endured an extreme COVID lockdown since the end of March — and metal fencing is being installed to keep people inside their homes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158646.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. A shark’s brain, and a dolphin’s brain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158647.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. A Bronze Age man and woman have been found locked in a loving embrace for 3,000 years in a grave in Ukraine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158648.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. On April 9, 1987, Princess Diana of Wales was photographed shaking hands with an AIDS patient . The gesture challenged the once common belief that the disease could be transmitted by touch.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158649.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A hedgehog being anaesthetised</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158650.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. LeVar Burton’s wedding, 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158651.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The Great Peace of Montréal (1701): a peace treaty between New France, the Iroquois Confederacy, and 38 other indigenous nations which brought an end to the Beaver Wars (c.1609-1701). Here are the signatures of 31 indigenous representatives, who used pictograms instead of signatures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158652.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. An alignment of Earth, Mars, Venus, Saturn and Jupiter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158653.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159843.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Snorkeller finds lost wedding ring wrapped around a mullet fish off of Norfolk Island</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158655.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The head size difference between a man and a cane corso</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158656.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Casu Marzu is a Sardinian cheese that contains live maggots. The maggots can jump up to five inches out of the cheese while eating it, so it’s recommended to cover the eyes with a hand while eating.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158657.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The Arctic ocean photographed in the same place 105 years ago vs today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158658.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In 1731 King Frederick I of Sweden sent a taxidermist his favorite lion who had died and this is what he received back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158659.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159862.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159863.jpeg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">20 Trashy Marriages to Avoid This Wedding Season</a><br>
 
@@ -730,129 +628,193 @@ I believe the direct quote was something to the effect of “it’s crazy how sh
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160059.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">21 Most Cringe Posts from the Depths of the Internet</a><br>
+## <a href="#linky14" id="linky13">30 Dumb People Who Couldn't Have Picked a Worse Name for Their Kid</a><br>
 
-<span style="font-size:4em">1. Back when everyone wanted attention on social media. Oh wait, it is still the same. LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159045.png" style="width:100%"><br>
+<span style="font-size:4em">1. Nevaeh. Its heaven backwards. Anyone that tells you their daughter is named Nevaeh will also tell you that its heaven spelled backwards. Every time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Just regular, good old-fashioned family interactions. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159042.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Heard a lady yell at her kid. “Graceland Tennessee stop running around!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. What in the actual f**k is this? What is he talking about? Whats with the nine-year-old kid? Is this the true definition of a modern family?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159043.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I know a girl named Random. While at an Easter egg hunt years ago (eggs were labeled for each kid), I took the eggs labeled Random thinking they were up for grabs. Random’s parents were unamused to say the least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Yes, men invented pants for men. And it has always been a big plot against women. *Sarcasm has entered the chat*</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159044.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My neighbor was the 12th kid. His parents named him Twelver. That’s gotta be the worst I’ve ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Not sure about miss or care, but posting such a cringe will ensure that people remember you for a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159047.png" style="width:100%"><br>
+<span style="font-size:4em">5. An ex had friends who named their kids Haight and Rayge (hate and rage). Good luck kids.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Awww, true love does exist after all!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159062.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I went to high school with a guy named John John John. Yes, his first name, middle name and last name were all “John”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If you think the caption is bad, just look at his hand in the picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159046.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Baby girl
+
+Yes this was their legal name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. This....ladies and gentlemen, is why one must not follow TikTok life hacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159048.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I work at a college and often go through the new applications to process them, Ive seen all kinds.
+
+Most ridiculous name Ive seen thus far though:
+
+Starscream Anakin as his first and middle names. He has a normal last name. When I first saw it, I was certain that it was a kid f**king with our application system. Then I met him in person, and he showed me his ID.
+
+His name is legally Starscream Anakin. I get the Anakin part, but of all the Transformers to name your kid after, why on Earth make it Starscream? He was just awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Everybody look at him. His name? Oh its Anonymous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159049.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Wednesday Passion. That was a little girl i use to babysit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Welp. That relationship is off to a GREAT start.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159050.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Real name, silly: Batman bin Suparman. Hes a guy in Indonesia.
+
+Real name, awful for other reasons: Null. Any kid with that name will have no end of trouble with databases.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Because making content is the MOST important thing in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159051.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My favorite I saw while working as a banker was...
+
+Subway Club Allah Is Supreme Middle Name (last name)
+
+His parents named him this and he wanted a loan to open a weed store in a state where it is illegal.
+
+To clarify his middle name is Middle Name, i forgot the last name, but it was just a normal last name</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Grandpa really roasted this newborn baby. Grandpa - 1, Little Baby - 0.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159052.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. My sister met some kids in an international airport named Yellow, Flash, and No Exit. My sister asked No Exit why his mom picked that name; he said when she couldn’t think of anything else she saw a no exit sign from her maternity bed and settled on that.
+
+Went to school with a guy named Dude. He was named after his grandad.
+
+There was a college football quarterback in Missouri whose first name was Kokaine; named after his Grandad.
+
+I worked with a lady named Crystal Wineglass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Everyone is an artist in 2022, so there is absolutely nothing wrong with this image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159054.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Some friends of mine in high school knew a girl named Cash Money. Met her once and she said her name with some made up accent.
+
+One recently I ran into was Kaideynse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Its a bold strategy, Cotton lets see if it pays off for him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159055.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Lihburtee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Oh dear Lord, please deliver us from this evil cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159053.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Okay Arthur Doak. We called him Okay. He was the youngest of 5 kids.
+
+Fancy (named after the Reba song) and her sister Truly (named after Truly Scrumptious from Chitty Chitty Bang Bang)
+
+Secretlove. She was a kid my mom met when my mom worked at a pediatrician’s office. Secretlove’s mom laid out the whole story to my mom about the name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. But answer the question, does she have a bf?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159056.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. A family friend named his son Sir and its pretty cringe. Honorable mention goes to the former coworker who named his daughter Khaleesi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. If youre eating at McDonalds in this day and age, just assume your food is being f**ked with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159057.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Christgift, Christwill and Christgood all siblings. Bless their hearts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. LMAO. Yes, because the two are totally the same thing. Go off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159058.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Did data entry at an amusement park. One pass holder was named “Asthma.” That was her first name. Asthma, as in the breathing condition.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Dang. I guess Ill just get fired then.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159059.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Novemba.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The hashtag what have I become really does it for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159060.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Well... lets just say that the state I live in doesnt have a significant english-speaking population, especially in the rural regions, despite the official language of the country ( India) being English and most of the urban population being educated. However; I have friends whose parents gave them names like Benadryl, Goodbye, Very helpful and the absolute worst Dishwasher. This, however is because people from the rural regions ( especially in the North-East) come to the cities, and see words in ads and billboards that they find pretty and innocently name their children after a variety of brands. I dont always blame them, I had a family friend who came off as very posh and educated, spoke perfect English... but named his daughter Darth Vader. Some of them are just trolling. Do not underestimate people of the hills; they dont take your bullshit, educated or otherwise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Oof. Tell me youre whipped without telling me youre whipped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159061.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Had a little boy in my program named Rowdy. Eh... kind of rednecky but, whatever.
+
+Then I found out his older brother is named Howdy! WTF?
+
+Found out later that the older boys legal name is Howard. Thats less ridiculous, at least.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158313.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Guys Practice Picking Up Women Online, Doesn't Go Well </a><br>
+<span style="font-size:4em">22. Graduated with a girl named Bodacious
+
+Edit: As a side note: when I was in basic training I met a native American fella whose name was Knows His Gun. Just thought that was a bada** name and Ive never forgotten it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. You might think this is a bait post, because it does read like satire, but this type of how do you open? format has become a mainstay on social media. The prompt is meant to get men thinking about how theyd talk to pretty girls in any given situation. In this case, how would you open with a woman in the gym. And the responses, the legit ones, are bad. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123545/87160321/how-would-you-open9.png" style="width:100%"><br>
+<span style="font-size:4em">23. I once encountered a plump young woman whose name, according to her ID, was Rotunda.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Hey, before we trash him, lets hear him out. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123320/87160268/open2.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. When I was pregnant my now exMIL wanted me to name our son Rock which is stupid as it is but the last name is Bowler so my sons name would be Rock Bowler and I couldnt do that to the poor kid. My ex thought it would be funny to name him Rocky with the middle name Bal so his name would be Rocky Bal Bowler...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Oh, nvm. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123342/87160270/open3.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. The neighbour of my dads ex had a son and daughter called Blaiyz (blaze) and Ainjayl (angel). I dont understand the strange spelling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Lmao, doesnt matter what she says here, oh dude she totally going to bang you bro. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123331/87160269/open.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Yo’Majesty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This ones too easy. Good thing this guy has a cheat sheet! Hope he studied hard. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123542/87160320/how-would-you-open4.png" style="width:100%"><br>
+<span style="font-size:4em">27. There’s this girl in my high school that everyone knows about. She wears cat ears, furry tails and paws, pastel and anime clothing items, fake fangs, and refers to herself as a “pastel monster” with her body pillow. Her legal name is Honeybunny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Honey, youd be so much hotter with covid. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123534/87160319/how-would-you-open5.png" style="width:100%"><br>
+<span style="font-size:4em">28. I went to high school with a guy named Zip Daub.
+
+His middle name was Adydo.
+
+They named that motherf**ker Zip Adydo Daub.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. And another example, but without a clear situation. Is she in my house? Am I in hers? If she made me a loaf of bread Id assume we were already banging. Is she my wife? Whats going on here? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123531/87160318/how-would-you-open6.png" style="width:100%"><br>
+<span style="font-size:4em">29. Queeth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Oh we know you would. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123512/87160315/how-would-you-open1.png" style="width:100%"><br>
+<span style="font-size:4em">30. My mom worked in a maternity ward and a family with the last name Dollar named their infant child Needa...poor kid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87158322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. *Spits out coffee* </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123523/87160317/how-would-you-open8.png" style="width:100%"><br>
+## <a href="#linky15" id="linky14">42 People Who Just Didn't Get the Joke</a><br>
 
-<span style="font-size:4em">10. The important questions. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123449/87160313/how-would-you-open2.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041412/87159775/missedjoke4.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123459/87160314/how-would-you-open3.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041500/87159783/missedjoke11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123519/87160316/how-would-you-open7.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041457/87159782/missedjoke10.png" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">25 Charts Filled With Random Knowledge</a><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041422/87159776/missedjoke1.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159817.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041402/87159774/missedjoke2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159841.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041434/87159778/missedjoke6.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159819.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041426/87159777/missedjoke5.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159825.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041438/87159779/missedjoke7.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159820.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041351/87159773/missedjoke3.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159821.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041445/87159780/missedjoke8.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159822.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041449/87159781/missedjoke9.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159823.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041507/87159784/missedjoke12.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159824.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041512/87159785/missedjoke13.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159818.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041518/87159786/missedjoke14.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159826.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041524/87159787/missedjoke16.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159827.gif" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041529/87159788/missedjoke15.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159828.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041535/87159789/missedjoke17.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159829.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041541/87159790/missedjoke18.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159830.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041549/87159791/missedjoke19.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159831.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041552/87159792/missedjoke20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159832.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041601/87159793/missedjoke21.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159833.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041603/87159794/missedjoke22.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159834.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041612/87159795/missedjoke24.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159835.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041614/87159796/missedjoke23.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159836.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041624/87159797/missedjoke25.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159839.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041625/87159798/missedjoke26.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159837.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041635/87159799/missedjoke27.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159838.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041637/87159800/missedjoke28.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159840.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041646/87159801/missedjoke29.png" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">64 Interesting Images and Random Pics for Your Peepers</a><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041649/87159802/missedjoke30.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159803/missedjoke31.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041659/87159804/missedjoke32.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041710/87159805/missedjoke34.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041712/87159806/missedjoke35.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041723/87159807/missedjoke33.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041735/87159808/missedjoke37.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041746/87159809/missedjoke38.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041754/87159810/missedjoke36.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041758/87159811/missedjoke39.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041805/87159812/missedjoke40.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041809/87159813/missedjoke41.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/03/041816/87159814/missedjoke42.png" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">64 Interesting Images and Random Pics for Your Peepers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120709/87160255/87160204.jpg" style="width:100%"><br>
 
@@ -982,87 +944,125 @@ I believe the direct quote was something to the effect of “it’s crazy how sh
 
 <span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/120714/87160257/87160201.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">19 Twisted Pics Sure to Haunt Your Dreams </a><br>
+## <a href="#linky17" id="linky16">21 Most Cringe Posts from the Depths of the Internet</a><br>
 
-<span style="font-size:4em">1. How much would it cost for you to eat this? Now how much would it cost you to, you know what? We know your thinking it you sicko. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145471.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Back when everyone wanted attention on social media. Oh wait, it is still the same. LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159045.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Now that is cultural appropriation maam, you cant do that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145465.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Just regular, good old-fashioned family interactions. Right?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Yo this is the thrift store find of a lifetime! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145466.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. What in the actual f**k is this? What is he talking about? Whats with the nine-year-old kid? Is this the true definition of a modern family?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Umm, no thanks. But props on being creative, and cool! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145467.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Yes, men invented pants for men. And it has always been a big plot against women. *Sarcasm has entered the chat*</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. if youve never had an ex-girlfriend deface your car, have you really ever been in love? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145469.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Not sure about miss or care, but posting such a cringe will ensure that people remember you for a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159047.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145470.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Awww, true love does exist after all!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My kids love riding on the hepatitis mickey.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145473.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. If you think the caption is bad, just look at his hand in the picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. What is the hell would inspire someone do this this to themselves? And dont worry, we can talk shit, he cant hear us. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145482.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. This....ladies and gentlemen, is why one must not follow TikTok life hacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. She did what? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145474.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Everybody look at him. His name? Oh its Anonymous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. This is not relate to the previous story. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145475.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Welp. That relationship is off to a GREAT start.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145478.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Because making content is the MOST important thing in the world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145479.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Grandpa really roasted this newborn baby. Grandpa - 1, Little Baby - 0.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145480.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Everyone is an artist in 2022, so there is absolutely nothing wrong with this image.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145481.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Its a bold strategy, Cotton lets see if it pays off for him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145484.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Oh dear Lord, please deliver us from this evil cringe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145485.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. But answer the question, does she have a bf?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145486.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. If youre eating at McDonalds in this day and age, just assume your food is being f**ked with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145487.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. LMAO. Yes, because the two are totally the same thing. Go off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87145488.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Dang. I guess Ill just get fired then.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159059.jpg" style="width:100%"><br>
 
-## <a href="#linky19" id="linky18">21 Fails to Improve Your Self-Confidence</a><br>
+<span style="font-size:4em">20. The hashtag what have I become really does it for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159844.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Oof. Tell me youre whipped without telling me youre whipped.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87159061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159845.jpg" style="width:100%"><br>
+## <a href="#linky18" id="linky17">Guys Practice Picking Up Women Online, Doesn't Go Well </a><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159853.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. You might think this is a bait post, because it does read like satire, but this type of how do you open? format has become a mainstay on social media. The prompt is meant to get men thinking about how theyd talk to pretty girls in any given situation. In this case, how would you open with a woman in the gym. And the responses, the legit ones, are bad. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123545/87160321/how-would-you-open9.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159859.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Hey, before we trash him, lets hear him out. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123320/87160268/open2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159846.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Oh, nvm. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123342/87160270/open3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159847.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Lmao, doesnt matter what she says here, oh dude she totally going to bang you bro. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123331/87160269/open.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159848.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This ones too easy. Good thing this guy has a cheat sheet! Hope he studied hard. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123542/87160320/how-would-you-open4.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159849.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Honey, youd be so much hotter with covid. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123534/87160319/how-would-you-open5.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159850.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And another example, but without a clear situation. Is she in my house? Am I in hers? If she made me a loaf of bread Id assume we were already banging. Is she my wife? Whats going on here? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123531/87160318/how-would-you-open6.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159843.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Oh we know you would. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123512/87160315/how-would-you-open1.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159851.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. *Spits out coffee* </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123523/87160317/how-would-you-open8.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159852.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The important questions. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123449/87160313/how-would-you-open2.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159854.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123459/87160314/how-would-you-open3.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159855.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/04/123519/87160316/how-would-you-open7.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159856.jpg" style="width:100%"><br>
+## <a href="#linky19" id="linky18">25 Charts Filled With Random Knowledge</a><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159857.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159858.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159860.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159819.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159861.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159862.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159863.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159827.gif" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159840.jpg" style="width:100%"><br>
 
