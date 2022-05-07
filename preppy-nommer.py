@@ -2,9 +2,9 @@ import scrapy, logging, time, json, re, os
 import requests, pdfkit, unidecode
 from scrapy.crawler import CrawlerProcess
 
-class nommerSpider(scrapy.Spider):
+class preppySpider(scrapy.Spider):
 	"""Collect food recipes without the abhorrently excessive ads and life stories"""
-	name = 'nommer'
+	name = 'preppy-nommer'
 	outputFolder = 'database'
 	start_urls = ['https://preppykitchen.com/category/recipes/']
 	handle_httpstatus_list = [404]
@@ -90,5 +90,5 @@ class nommerSpider(scrapy.Spider):
 
 if __name__ == "__main__":
 	process = CrawlerProcess()
-	process.crawl(nommerSpider)
+	process.crawl(preppySpider)
 	process.start()
