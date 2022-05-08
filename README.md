@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/08/2022-17:11:31
+Last updated: 05/08/2022-18:11:31
 <br>
 ## <a href="#linky2" id="linky1">21 People Who Had Ink Done and Immediately Regretted It</a><br>
 
@@ -45,59 +45,7 @@ Last updated: 05/08/2022-17:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122244/87161857/wtf.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 “Harmless” Things Men Do That Piss Women Off</a><br>
-
-<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">40 Hilarious Photos to Get You Laughing</a><br>
+## <a href="#linky3" id="linky2">40 Hilarious Photos to Get You Laughing</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87160867.jpg" style="width:100%"><br>
 
@@ -176,6 +124,94 @@ Last updated: 05/08/2022-17:11:31
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87160911.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87160913.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">28 Things That Are Moral But Illegal</a><br>
+
+<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
+
+The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Any form of nonviolent resistance.
+
+If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Refilling parking meters for other people.
+
+Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
+
+I digress.
+
+Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
+
+So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
+
+One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
+
+She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
+
+The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
+
+She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
+
+I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
+
+Fun Fact:
+
+The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
+
+So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
+
+Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">66 Random Pics with no Relevance Intended</a><br>
 
@@ -355,7 +391,69 @@ Last updated: 05/08/2022-17:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">28 Tricky Pics to Make You Double Take</a><br>
+## <a href="#linky7" id="linky6">30 Historical Photos That Might Change Your Perspective</a><br>
+
+<span style="font-size:4em">1. Testing Out The Latest Flight Helmet In A Highly Scientific Way, 1912</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Two Armenian Women Pose With Their Rifles Before Going To Battle Against The Ottomans, 1895</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Camberley Kate, And Her Stray Dogs In England. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime (1962)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. An Officer Halts Traffic To Make Way For A Cat Carrying A Kitten Across The Street, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This Mirror Portrait Was Taken 100 Years Ago In Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Top Of The Great Pyramid Of Giza, Egypt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Soldier Coming Home To His Daughter After WWII, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Happy French Girl And Her Cat, 1959</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Rare Photo Of A Remote Control From The 70s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A Housewife Taking Frozen Long Johns Off The Washing Line, 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A Man Getting To Hear Music On A Record Player, 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Cat Taking A Photo, 1909</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Settler Family On The American Prairie In The 1880s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Train Travel In The 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A Little French Girl Gives An American Soldier A Kiss On Valentine’s Day, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Do Your Bit! Skate To Work. Save Gas, NYC, 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Drying The Pasta, Italy, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Same Scene, Same Motorcycle, Same Woman, 72 Years Old After</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Two Gentleman From The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. The Use Of Masks During The Spanish Flu Pandemic, 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This Farmhouse Once Stood In Manhattan Where 84th Street And Broadway Now Cross (1879)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Unusual Portrait Of A Victorian Lady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Mother And Son” Ireland, 1890</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In 1839, Robert Cornelius Took The Worlds First Selfie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. These Progressive High School Girls Learn The Finer Points Of Auto Mechanics In 1927</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. David Isom, 19, Broke The Color Line In A Segregated Pool In Florida On June 8, 1958, Which Resulted In Officials Closing The Facility</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Four Generations, Circa 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Grandma Patching The Only Pants Of Her Grandson, 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. King George VI Of England Enjoying A Slide, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Helen, An American Indian Telephone And Switchboard Operator, Montana, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160859.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">28 Tricky Pics to Make You Double Take</a><br>
 
 <span style="font-size:4em">1. The sun is a lightbulb.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160410.jpg" style="width:100%"><br>
 
@@ -413,7 +511,7 @@ Last updated: 05/08/2022-17:11:31
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160437.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">48 Fascinating Photos For Your Gandergobs</a><br>
+## <a href="#linky9" id="linky8">48 Fascinating Photos For Your Gandergobs</a><br>
 
 <span style="font-size:4em">1. We dont usually like sand drawing but this one is damn impressive. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87159726.jpg" style="width:100%"><br>
 
@@ -511,125 +609,7 @@ Last updated: 05/08/2022-17:11:31
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87159772.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 Historical Photos That Might Change Your Perspective</a><br>
-
-<span style="font-size:4em">1. Testing Out The Latest Flight Helmet In A Highly Scientific Way, 1912</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Two Armenian Women Pose With Their Rifles Before Going To Battle Against The Ottomans, 1895</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Camberley Kate, And Her Stray Dogs In England. She Never Turned A Stray Dog Away, Taking Care Of More Than 600 Dogs In Her Lifetime (1962)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. An Officer Halts Traffic To Make Way For A Cat Carrying A Kitten Across The Street, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. This Mirror Portrait Was Taken 100 Years Ago In Japan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Top Of The Great Pyramid Of Giza, Egypt</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Soldier Coming Home To His Daughter After WWII, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Happy French Girl And Her Cat, 1959</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Rare Photo Of A Remote Control From The 70s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A Housewife Taking Frozen Long Johns Off The Washing Line, 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A Man Getting To Hear Music On A Record Player, 1922</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Cat Taking A Photo, 1909</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Settler Family On The American Prairie In The 1880s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Train Travel In The 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A Little French Girl Gives An American Soldier A Kiss On Valentine’s Day, 1945</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Do Your Bit! Skate To Work. Save Gas, NYC, 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Drying The Pasta, Italy, 1929</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Same Scene, Same Motorcycle, Same Woman, 72 Years Old After</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Two Gentleman From The Early 1900s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. The Use Of Masks During The Spanish Flu Pandemic, 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This Farmhouse Once Stood In Manhattan Where 84th Street And Broadway Now Cross (1879)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Unusual Portrait Of A Victorian Lady</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Mother And Son” Ireland, 1890</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In 1839, Robert Cornelius Took The Worlds First Selfie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. These Progressive High School Girls Learn The Finer Points Of Auto Mechanics In 1927</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. David Isom, 19, Broke The Color Line In A Segregated Pool In Florida On June 8, 1958, Which Resulted In Officials Closing The Facility</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Four Generations, Circa 1905</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Grandma Patching The Only Pants Of Her Grandson, 1907</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. King George VI Of England Enjoying A Slide, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Helen, An American Indian Telephone And Switchboard Operator, Montana, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160859.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">11 Famous Actresses Then Vs. Now</a><br>
-
-<span style="font-size:4em">1. Sarah Michelle Gellar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Lindsay Lohan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Christina Ricci</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Julia Stiles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Melissa Joan Hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Katie Holmes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Natalie Portman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Claire Danes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Amanda Seyfried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Alyssa Milano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Alexa PenaVega</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161715.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">20 People Who Are "Real Badasses"</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">20 Dank Memes We Found Hidden in the Walls </a><br>
+## <a href="#linky10" id="linky9">20 Dank Memes We Found Hidden in the Walls </a><br>
 
 <span style="font-size:4em">1. Were looking at you Mlon Eusk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87157657.jpg" style="width:100%"><br>
 
@@ -671,177 +651,63 @@ Last updated: 05/08/2022-17:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87157676.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">22 Things That Aged Poorly</a><br>
+## <a href="#linky11" id="linky10">11 Famous Actresses Then Vs. Now</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Sarah Michelle Gellar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161004.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lindsay Lohan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161000.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Christina Ricci</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161001.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Julia Stiles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161002.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Melissa Joan Hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161003.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Katie Holmes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161005.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Natalie Portman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161710.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160999.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Claire Danes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161006.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Amanda Seyfried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161007.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Alyssa Milano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161008.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Alexa PenaVega</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161009.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">20 People Who Are "Real Badasses"</a><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161011.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161012.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161013.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161014.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161015.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161016.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161017.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161018.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">17 Photos That Might Make You Cry Like a Baby</a><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">28 Things That Are Moral But Illegal</a><br>
-
-<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
-
-The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Any form of nonviolent resistance.
-
-If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Refilling parking meters for other people.
-
-Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
-
-I digress.
-
-Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
-
-So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
-
-One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
-
-She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
-
-The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
-
-She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
-
-I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
-
-Fun Fact:
-
-The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
-
-So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
-
-Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">28 Internet Comments That Were Right on the Money</a><br>
+## <a href="#linky13" id="linky12">28 Internet Comments That Were Right on the Money</a><br>
 
 <span style="font-size:4em">1. Uhh, we might be dumb because this is what we do when we have a fever. Is there something here that were missing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150353.jpg" style="width:100%"><br>
 
@@ -899,7 +765,105 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150379.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">25 Things We’re Sick of Hearing About</a><br>
+## <a href="#linky14" id="linky13">22 Things That Aged Poorly</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">25 “Harmless” Things Men Do That Piss Women Off</a><br>
+
+<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">25 Things We’re Sick of Hearing About</a><br>
 
 <span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
  
@@ -952,4 +916,40 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 <span style="font-size:4em">24. Single-use plastics. We know better, why dont we do better? -u/Parakiet20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160510.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">17 Photos That Might Make You Cry Like a Baby</a><br>
+
+<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
 
