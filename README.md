@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/07/2022-23:11:31
+Last updated: 05/08/2022-00:11:31
 <br>
 ## <a href="#linky2" id="linky1">28 Tricky Pics to Make You Double Take</a><br>
 
@@ -59,169 +59,205 @@ Last updated: 05/07/2022-23:11:31
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160437.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">34 Work Memes that Perfectly Sum Up Why We Hate It</a><br>
+## <a href="#linky3" id="linky2">28 Internet Comments That Were Right on the Money</a><br>
 
-<span style="font-size:4em">1. Yeah Im really happy for you Susan, now can you leave me alone for a few  minutes!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161809.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Uhh, we might be dumb because this is what we do when we have a fever. Is there something here that were missing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. More often than not, the extra work you do to pick up the slack becomes expected.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113320/87161820/work-memes-captain-picard.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Umm, good question. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sometimes it takes everything inside you not to unleash and explode on those annoying customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161817.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. What is there to know? This is one of those non-haunted houses. Simple as that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Seriously, just stop.  The second worse thing is those who werent paying attention and ask a question that has already been addressed and open up a whole new conversation.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113331/87161821/work-memes-asking-dumb-questions.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113342/87161822/work-memes-do-i-love-my-job-no.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150358.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Now these are life goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161800.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Lmao. The levels of swap ass Id have after wearing that suit for a minute would be ungodly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150372.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161801.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Shorter, thats for sure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161807.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Good point. I dont want a smart fridge thats too dumb to close its own door. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150361.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161816.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150375.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113353/87161824/work-memes-dorothy-wizard-of-oz.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113402/87161825/work-memes-eliane-rubber-pencil.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161799.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You never expect the most obvious suspects. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113404/87161826/work-memes-game-of-thrones-dragon-queen.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Pathetic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113414/87161827/work-memes-hayden-pannetierre.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113416/87161828/work-memes-interview-listening.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113424/87161829/work-memes-kermit-building-still-standing.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150369.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161808.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161814.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150371.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113427/87161830/work-memes-shia-lebouf-then-vs-now.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113438/87161832/work-memes-tyler-perry-interview.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113448/87161833/work-memes-wednesday-adams.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150373.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161812.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150374.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161811.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161802.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150376.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161803.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161805.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161806.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161804.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113351/87161823/work-memes-annoyed-beatlejuice.png" style="width:100%"><br>
+## <a href="#linky4" id="linky3">28 Things That Are Moral But Illegal</a><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161810.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161813.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161815.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161818.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113437/87161831/work-memes-the-office-cheese-balls.png" style="width:100%"><br>
+<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">23 Redneck Life Hacks to Show Your Cousi- I Mean Wife</a><br>
+<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Duct tape is the gift that keeps on giving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160785.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Listen, were on a tight budget okay?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160786.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160787.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Gotta dry your clothes somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160788.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I need to know more details about this story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160789.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Classy, sophisticated, useful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160790.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Does this actually work? Can someone confirm?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160791.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Show me another person this smart and this savvy...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160792.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Desperate times call for desperate measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160793.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. But if it were rich people theyd say its repurposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160794.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I mean...do what you got to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160795.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Cant tell if this is genius or insanity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160796.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. When you need that first layer of sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160797.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. How have I never thought of this??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160798.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Stealing a page right out of Walmarts book. Love to see it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160799.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
+
+The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Maybe Im the idiot. Im beginning to see that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160800.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. It...Its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160801.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My OCD absolutely loves this life hack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160802.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Who said CDs are a dying technology?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160803.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. This is what they should have been teaching us in High School</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160804.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Make your own bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160805.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Any form of nonviolent resistance.
+
+If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This is perfection. No notes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160806.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Refilling parking meters for other people.
+
+Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
+
+I digress.
+
+Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
+
+So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
+
+One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
+
+She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
+
+The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
+
+She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
+
+I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
+
+Fun Fact:
+
+The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
+
+So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
+
+Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The fanciest door latch Ive ever laid eyes on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160807.jpg" style="width:100%"><br>
+## <a href="#linky5" id="linky4">25 Things We’re Sick of Hearing About</a><br>
 
-## <a href="#linky5" id="linky4">22 Things That Aged Poorly</a><br>
+<span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160487.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Scam calls. Please make them stop. -u/Agitated_Pin_6145</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161004.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Pop-up ads. Like, who still falls for that? -u/DoggyMcDogDog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161000.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. MLMs/Pyramid schemes. How do these still work on people? -u/Zapejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160491.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161001.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Keith Richards. -u/jayzedandconfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161002.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. McAfee antivirus. That sh*t is malware, and has been malware for years...yet it comes pre-installed on almost every PC. -u/iLikeTorturls</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161003.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ticketmaster. How in the living hell have they not had a decent competitor that charges lower rates yet? -u/Taynt42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161005.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. 1040 forms. They know what I earned. -u/Bullyoncube</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160999.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Fax machines. -u/eh_pinkachou</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161006.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Flat Earth Society. -u/CheerfulFlame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161007.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Sims 4. The most recent pack was actually a literal scam, like it completely broke weddings. People with that pack have to get their Sims eloped now. -u/Ok_Context_7495</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161008.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Simpsons. -u/ZanderRan286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161009.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Slavery. Human trafficking. All the bad stuff. -u/SEND_ME_DANK_MAYMAYS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161011.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The Kardashians having a show. -u/MelloMejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161012.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Mainframe COBOL. -u/atomicsnarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160501.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161013.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Internet with data caps. -u/kristofurr87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160502.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161014.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Physicians who dismiss endometriosis and say its in your head. -u/ErdenGeboren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161015.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My will to live. -u/FutureSecond6077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160504.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161016.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. 40 hour work weeks. -u/ShittyAssholeCrust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161017.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Pennies! we got rid of the half penny because it was useless. I figured this would happen to the penny too because its more expensive to manufacture than theyre worth. -u/ProtocolPhilosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161018.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Two-party political system. -u/PhatBallllzAtHotmail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160507.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Why do airports still relay important flight information over a sh*tty speaker system in a loud airport where you can never hear unless you are 10 feet from the desk. Everything should be instant push notifications to your phone. -u/PokemonNovice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160508.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Nazis. We literally had a war about this. Whole world was involved and collectively said f*ck off, but here we are. -u/SpiritOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Single-use plastics. We know better, why dont we do better? -u/Parakiet20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">25 “Harmless” Things Men Do That Piss Women Off</a><br>
 
@@ -445,59 +481,49 @@ Last updated: 05/07/2022-23:11:31
 
 <span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033827/87161265/87161246.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 Things We’re Sick of Hearing About</a><br>
+## <a href="#linky9" id="linky8">21 Pictures That are Technically Not Wrong</a><br>
 
-<span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160487.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Scam calls. Please make them stop. -u/Agitated_Pin_6145</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160488.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Pop-up ads. Like, who still falls for that? -u/DoggyMcDogDog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160490.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. MLMs/Pyramid schemes. How do these still work on people? -u/Zapejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160491.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Keith Richards. -u/jayzedandconfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160492.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. McAfee antivirus. That sh*t is malware, and has been malware for years...yet it comes pre-installed on almost every PC. -u/iLikeTorturls</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160493.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ticketmaster. How in the living hell have they not had a decent competitor that charges lower rates yet? -u/Taynt42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160489.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. 1040 forms. They know what I earned. -u/Bullyoncube</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160494.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Fax machines. -u/eh_pinkachou</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160495.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Flat Earth Society. -u/CheerfulFlame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160496.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Sims 4. The most recent pack was actually a literal scam, like it completely broke weddings. People with that pack have to get their Sims eloped now. -u/Ok_Context_7495</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160497.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Simpsons. -u/ZanderRan286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160498.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Slavery. Human trafficking. All the bad stuff. -u/SEND_ME_DANK_MAYMAYS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160499.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The Kardashians having a show. -u/MelloMejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160500.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Mainframe COBOL. -u/atomicsnarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160501.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Internet with data caps. -u/kristofurr87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160502.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Physicians who dismiss endometriosis and say its in your head. -u/ErdenGeboren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160503.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My will to live. -u/FutureSecond6077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160504.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. 40 hour work weeks. -u/ShittyAssholeCrust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160505.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Pennies! we got rid of the half penny because it was useless. I figured this would happen to the penny too because its more expensive to manufacture than theyre worth. -u/ProtocolPhilosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160506.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Two-party political system. -u/PhatBallllzAtHotmail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160507.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. Why do airports still relay important flight information over a sh*tty speaker system in a loud airport where you can never hear unless you are 10 feet from the desk. Everything should be instant push notifications to your phone. -u/PokemonNovice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Nazis. We literally had a war about this. Whole world was involved and collectively said f*ck off, but here we are. -u/SpiritOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Single-use plastics. We know better, why dont we do better? -u/Parakiet20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">30 Historical Photos That Might Change Your Perspective</a><br>
 
@@ -561,67 +587,7 @@ Last updated: 05/07/2022-23:11:31
 
 <span style="font-size:4em">30. Helen, An American Indian Telephone And Switchboard Operator, Montana, 1925</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160859.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">29 Fresh Memes to Activate Your Laughter Functions </a><br>
-
-<span style="font-size:4em">1. How do you know whats in my phone? Huh? Youre not wrong, Im just curious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This is the last drawer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thou hast a point, don ye think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141706.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Hey Google, some of us are quicker, can we get a delete last 3 minutes function too? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Pathetic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now this is what language looks like at peak performance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141719.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141730.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141732.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">40 Hilarious Photos to Get You Laughing</a><br>
+## <a href="#linky11" id="linky10">40 Hilarious Photos to Get You Laughing</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87160867.jpg" style="width:100%"><br>
 
@@ -701,65 +667,7 @@ Last updated: 05/07/2022-23:11:31
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87160913.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">28 Internet Comments That Were Right on the Money</a><br>
-
-<span style="font-size:4em">1. Uhh, we might be dumb because this is what we do when we have a fever. Is there something here that were missing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Umm, good question. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. What is there to know? This is one of those non-haunted houses. Simple as that. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150358.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lmao. The levels of swap ass Id have after wearing that suit for a minute would be ungodly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Shorter, thats for sure. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Good point. I dont want a smart fridge thats too dumb to close its own door. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150361.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150365.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You never expect the most obvious suspects. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Pathetic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150367.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150368.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150369.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150370.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150371.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150362.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150363.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87150379.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">29 Celebs Who Did Something Really, Really Bad</a><br>
+## <a href="#linky12" id="linky11">29 Celebs Who Did Something Really, Really Bad</a><br>
 
 <span style="font-size:4em">1. “Amy Schumer allegedly admitted to sexual assaulting a drunk guy and a cab driver.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160571.jpg" style="width:100%"><br>
 
@@ -821,135 +729,227 @@ Then he became Marky Mark!”</span><br><img src="https://cdn.ebaumsworld.com/me
 
 <span style="font-size:4em">27. “Lena Dunham molested her little sister nothing was ever done and little said.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160585.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">28 Things That Are Moral But Illegal</a><br>
+## <a href="#linky13" id="linky12">34 Work Memes that Perfectly Sum Up Why We Hate It</a><br>
 
-<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Yeah Im really happy for you Susan, now can you leave me alone for a few  minutes!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161809.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. More often than not, the extra work you do to pick up the slack becomes expected.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113320/87161820/work-memes-captain-picard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Sometimes it takes everything inside you not to unleash and explode on those annoying customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161817.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Seriously, just stop.  The second worse thing is those who werent paying attention and ask a question that has already been addressed and open up a whole new conversation.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113331/87161821/work-memes-asking-dumb-questions.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113342/87161822/work-memes-do-i-love-my-job-no.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Now these are life goals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161800.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161801.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161807.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161816.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113353/87161824/work-memes-dorothy-wizard-of-oz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113402/87161825/work-memes-eliane-rubber-pencil.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161799.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113404/87161826/work-memes-game-of-thrones-dragon-queen.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113414/87161827/work-memes-hayden-pannetierre.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113416/87161828/work-memes-interview-listening.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113424/87161829/work-memes-kermit-building-still-standing.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161808.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161814.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113427/87161830/work-memes-shia-lebouf-then-vs-now.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113438/87161832/work-memes-tyler-perry-interview.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
-
-The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113448/87161833/work-memes-wednesday-adams.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161812.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161811.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161802.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161803.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161805.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Any form of nonviolent resistance.
-
-If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161806.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Refilling parking meters for other people.
-
-Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
-
-I digress.
-
-Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
-
-So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
-
-One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
-
-She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
-
-The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
-
-She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
-
-I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
-
-Fun Fact:
-
-The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
-
-So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
-
-Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161804.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">21 Pictures That are Technically Not Wrong</a><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113351/87161823/work-memes-annoyed-beatlejuice.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161810.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161813.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161815.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161818.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/113437/87161831/work-memes-the-office-cheese-balls.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">23 Redneck Life Hacks to Show Your Cousi- I Mean Wife</a><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Duct tape is the gift that keeps on giving.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Listen, were on a tight budget okay?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160787.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Gotta dry your clothes somehow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I need to know more details about this story.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Classy, sophisticated, useful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Does this actually work? Can someone confirm?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Show me another person this smart and this savvy...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Desperate times call for desperate measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. But if it were rich people theyd say its repurposed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I mean...do what you got to do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Cant tell if this is genius or insanity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160796.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When you need that first layer of sun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160797.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. How have I never thought of this??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160798.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Stealing a page right out of Walmarts book. Love to see it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Maybe Im the idiot. Im beginning to see that now.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. It...Its beautiful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My OCD absolutely loves this life hack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Who said CDs are a dying technology?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is what they should have been teaching us in High School</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Make your own bag.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is perfection. No notes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The fanciest door latch Ive ever laid eyes on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87160807.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">29 Fresh Memes to Activate Your Laughter Functions </a><br>
+
+<span style="font-size:4em">1. How do you know whats in my phone? Huh? Youre not wrong, Im just curious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is the last drawer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Thou hast a point, don ye think? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141706.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Hey Google, some of us are quicker, can we get a delete last 3 minutes function too? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Pathetic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now this is what language looks like at peak performance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141719.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141730.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87141732.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">22 Things That Aged Poorly</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161012.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
 
