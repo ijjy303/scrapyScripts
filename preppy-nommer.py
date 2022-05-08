@@ -45,7 +45,7 @@ class preppySpider(scrapy.Spider):
 	def parse(self, response, category):
 		for recip in response.xpath('//header[@class="entry-header"]'):
 			urls = recip.xpath('//a[@class="entry-image-link"]//@href').getall()
-
+		print(category)
 		try:
 			for url in urls:
 				yield scrapy.Request(url=url, callback=self.recursiveParse, cb_kwargs=dict(category=category))
