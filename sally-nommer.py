@@ -37,7 +37,6 @@ class sallySpider(scrapy.Spider):
 		lastPageForLoop = int(pageList[-1]) + 1
 		for x in range(1, lastPageForLoop): # Generate urls for every page number up to and including highest page
 			fullUrl = f'{response.request.url}page/{x}'
-
 			yield scrapy.Request(url=fullUrl, callback=self.parse, cb_kwargs=dict(category=category))
 
 	def parse(self, response, category):
