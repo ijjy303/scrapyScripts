@@ -2,9 +2,9 @@ import scrapy, logging, time, json, re, os
 import requests, pdfkit, unidecode
 from scrapy.crawler import CrawlerProcess
 
-class nommerSpider(scrapy.Spider):
+class preppySpider(scrapy.Spider):
 	"""Collect food recipes without the abhorrently excessive ads and life stories"""
-	name = 'nommer'
+	name = 'preppy-nommer'
 	outputFolder = 'database'
 	start_urls = ['https://preppykitchen.com/category/recipes/']
 	handle_httpstatus_list = [404]
@@ -45,7 +45,7 @@ class nommerSpider(scrapy.Spider):
 	def parse(self, response, category):
 		for recip in response.xpath('//header[@class="entry-header"]'):
 			urls = recip.xpath('//a[@class="entry-image-link"]//@href').getall()
-
+		print(category)
 		try:
 			for url in urls:
 				yield scrapy.Request(url=url, callback=self.recursiveParse, cb_kwargs=dict(category=category))
@@ -90,5 +90,5 @@ class nommerSpider(scrapy.Spider):
 
 if __name__ == "__main__":
 	process = CrawlerProcess()
-	process.crawl(nommerSpider)
+	process.crawl(preppySpider)
 	process.start()
