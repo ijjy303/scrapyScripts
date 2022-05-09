@@ -1,145 +1,151 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/09/2022-05:11:31
+Last updated: 05/09/2022-06:11:31
 <br>
-## <a href="#linky2" id="linky1">26 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky2" id="linky1">30 Most WTF Things Ever Said by Kids</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160711.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Mommy, will you ever hurt me with a knife I told her no. She followed up with ok good. I know some moms do that she was 3 when this happened. She had never seen videos or anything that showed child abuse, so Im not sure how she was aware that some parents hurt their kids. Shes also never been abused by anyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160719.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160723.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160728.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160729.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160734.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160736.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">28 Things That Are Moral But Illegal</a><br>
-
-<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
+<span style="font-size:4em">2. Theres a bad thing in my room. Whats in your room? A devil dog. A dog? No, a devil dog. Its a dog thats also a devil.
 
-The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
+My son said that to me in the middle of the night while standing in the door to my room, looking down the hall with his back to me. It was also right after I discovered NoSleep and binged all the top stories</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. When my daughter was around 4 yrs old, she had a habit of waking me up by getting 4 inches from my face and staring at me until I opened my eyes. Once my eyes opened, shed say, Mommy your face is pretty. I want to wear it on my face.
+
+Ok, Hannibal, lets get some breakfast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I have a freckle on either side of my mouth. My little sister once said that it looked like a good place to start cutting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. When my daughter was 4-5 years old we lived in a two bedroom townhouse. It was just the two of us (mom and daughter, her dad passed away). She always crept into my bed at night but never said why. One day we were cleaning her room and putting away laundry and she got very agitated and said, “Why is he here now? He said he only comes at night.” I asked if she was talking about Dad. She said, “No the boy with no hands.”
+
+We moved a few months later and she’s never come into my bed at night or mentioned him since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. When my oldest son was about three he asked one night at bed time. Mommy I like you better than my fake mommy. Me whos your fake mommy? Him You cant see her. She tucks me in after you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. A few weeks ago I was getting breakfast ready for my 3 year old when he nonchalantly told me his Grandma fell down the stairs. About an hour later Grandpa calls us to tell us Grandma had fallen down the stairs.
+
+Also last weekend my 3 year old said my sister was going to visit the next day and guess who showed up for a surprise visit...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Any form of nonviolent resistance.
+<span style="font-size:4em">8. My 3 year old grandson has babbled about plane crashes since he started talking. He would reenact (with toys) a plane chasing another plane and as the first suddenly dropped to the ground hed yell in a heart-rending scream, OH NO WE CRASHED! This was his first sentence. He did this over and over.
 
-If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
+Early this summer hes 3 and Im reading him a bedtime story. I pause & look up at him and he said to me, Granny, I was a pilot, my plane was the Kitty Hawk. I crashed into the water when they shotted off my wing and shotted off my face.
+
+It almost stopped my heart.
+
+
+He looked so troubled and sad. I told him that he had done his best and I was very proud of him and that he was only a little boy now and needed to not worry about that but if he needed to talk about it he could anytime. I just hugged him.
+
+I researched and Kitty Hawks were used by almost every country early in WW2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Refilling parking meters for other people.
+<span style="font-size:4em">9. My two year old has a motion-sensored night light in his room. One night , he wouldnt fall asleep. He kept talking to someone/something and was playing. He hadnt eaten much for dinner, so I decided to get him up for a midnight snack. I made him some macaroni and cheese and fed it to him from a bowl as he sat on the couch and watched tv with me.
 
-Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
+Suddenly the motion light turned on in his room, unprovoked. Odd, but whatever. It turned off again, and we went back to watching tv. Suddenly, my son stops, and looks down the dark, empty hall leading to his bedroom. His face lit up and he says, Hiii! He runs up to the darkness, and starts babbling to it, talking to it.
 
-I digress.
+Then he runs back, grabs his fork, puts some mac&cheese on it, runs back to the darkness and holds his fork up to it, like hes trying to feed it. He started getting impatient that it wasnt eating, but kept baby talking it. Finally he gives up, waves and says, Buh bye! And then goes back to watching tv like nothing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I have twin daughters. One day while playing outside, one looked up at the sky and said, The sky is cracked... and on fire.
 
-Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
+My other daughter looked up and said, Yes.... the people are screaming.
 
-So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
+Then they went back to playing with dolls. Fingers crossed theyre not predicting the future, everybody!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My 3 yo daughter was going through the monsters under her bed phase. Lasted for weeks, and it was really wearing on her mom & me.
 
-One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
+One night after mom tried to put her to bed, she tagged me in. After 30 minutes, I grew pretty frustrated. In a last ditch attempt, I promised my daughter that there werent any monster under her bed. She replied, I know. Now theyre behind you.
 
-She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
+After that, I let her sleep with us for a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My three year old son said, Next time Im a baby, I want to have green eyes. I asked him if he had been a different baby before being who he currently is, and he squinted his eyes, looked at me like I was an idiot, and said, Yes, papa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Well, this morning I was lying in bed, my almost 2 year old came up, put her face right up to mine and I though maybe she wanted a kiss. Then she said mama, I want eat your eyes please.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. About 3 am I wake to find my 6 year old son just standing next to my side of the bed staring at me motionless. It was a very tense moment up to the point I asked him very easily you ok son??
+He then came back with I cant sleep but I still wonder how long he stood there before I woke....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. He started refusing to go downstairs (age around 3-3.5), terrified, saying there was an evil ‘angel man’ down there that wanted to hurt the whole family. Consistently drew the same picture of said angel man too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My oldest kept talking in his bed past bed time. When we asked him who he was talking to he said he was talking to the floating white lady. I dont remember the description he gave us, but what I DO remember is kid #3 doing the same f*****g routine 8 years later...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Once when my toddler was hugging me he quietly said “I won’t eat your bones.”
+Oh, uh...much obliged...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When I was really small, my Dad would go out of town quite a bit because of his job. One night when he was at home, I went up to my Mom, who was in bed, and said, “Who is that strange man in bed with you?”
 
-The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
+Mom blinked and said, “That’s your Father.”
 
-She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
+Shortly afterwards, Dad stopped traveling so much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Picked him up from daycare when he was 3. Driving home, totally quiet, him just staring out the window... he randomly asks hey dad, member that time we [passed away] in a fire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Starting at about 18 months, my daughter had an imaginary friend. NBD. At first, we didn’t think much of it because she seemed to delight in its presence. She would talk with the friend, and play with him, and he was generally a protective presence although she said that he did like to get into mischief. After a few months of this, we started asking our daughter questions about her friend and she would give us very specific answers, like his gender, first and last name, age, hair, eye color, etc. My partner and I thought, wow, those are some really specific details for an 18-month-old to provide. So, we googled the name. Turns out, there was a boy who [passed away] in another state that matched the name, age, height, hair, and eye color of my kids “imaginary friend.” Now, thinking this imaginary friend to be a ghost, we asked my daughter if she knew how the boy [passed away], and she was correct. Mind blown.
 
-I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
+After about a year of this “friend” hanging around, we summon the courage to message a group set up to memorialize the boy. We get a message back from the boys mom. Turns out she has the exact same profession as my partner and, months before we contacted her, had planned on visiting the city we lived in. We ended up actually meeting her later that year.
 
-Fun Fact:
-
-The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
-
-So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
-
-Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
+My daughter actually had this friend for about 3.5 more years and then he came around less and less. Every once in a while, she still talks about him, or sets toys aside for him. It’s crazy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I used to say things my grandfather used to say a lot. Like yelling out in German at our dog. My grandfather [passed away] years before I was born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. my youngest brother (5 at the time) asked me if I wanted to come to play with the girl in the wall. freaked me the f**k out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My oldest daughter occasionally sleep walks. A few weeks ago she came out of her room and into the living room where me and the wife were watching tv. I asked her what was wrong and all she said was The rabbits wont stop screaming. . Then she turned around and went back to her room. Kinda creeped me and the missus out a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. My one year old will point to a spot on the ceiling, say awwww, make grabby hands towards it then begin tracking whatever it is she sees and blowing kisses at it. Im pretty sure its satan. Nothing good lives on the ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Looked over to see what my five-year-old niece was drawing. I was almost too afraid to ask who it was. A girl that cries is all she told me. I didnt want to know if it was in our house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My 5yo told me a story that went something like this: He said that Georgey-Porgery doesn’t come around anymore. I asked who Georgey-Porgey was he said “Georgey-Porgey is the man who comes in here at night. He said it’s not good to bang on walls, if you bang on walls all the beetles will fall onto your face and in your eyes and your mouth. Georgey-porgy and doctor Mecha are [deceased]. When you’re [deceased] you’re not anywhere anymore, dr Mecha says it’s really important not to [pass away], so don’t [pass away] ok?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My daughter told me (at age 4 ish) that Santa makes toys by popping the eyeballs out of [unalive] people and chasing them around the floor until they turn into toys. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My 4-year-old cousin said it was the girl sang to her at sleep I asked what is about her neck? She said Oh she has a snake neck Im never sleeping again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. When my oldest daughter was in Kindergarten, she wrote and illustrated her first book titled “I Hope You Die in a Fire.”
+She and her friends were really into Five Nights at Freddie’s at the time, so I guess you could call it a fanfiction of sorts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Telling this story on my Mothers behalf. Ever since I was little Ive been a sleepwalker. I dont know when it started or why all I know is that my mom was the one that would find me walking about and send me back to bed when I was living with her. Apparently one night (I have no memory of the event my mom told me the next morning) I got up, walked into the doorway of my parents room, and just stood there, head down, while softly muttering something under my breath. Mom tells me she woke up and nearly had a heart attack. As she got up to help me back upstairs I sloooowly turned around and walked myself back to bed. Moms locked her door ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161678.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">21 Pictures That are Technically Not Wrong</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Historical Photos That Might Change Your Perspective</a><br>
 
@@ -545,7 +551,147 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 
 <span style="font-size:4em">21. “$6,000 stainless steel water tank knocked down and destroyed by wind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159306.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Things We’re Sick of Hearing About</a><br>
+## <a href="#linky12" id="linky11">26 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160719.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160723.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160728.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160729.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160734.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160736.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">28 Things That Are Moral But Illegal</a><br>
+
+<span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Where I live, euthanasia. Having had to watch a relative waste away as they could no longer eat properly, had no clue who they were or who anyone else was, and was just so scared…how is making them live or wait until they starve/dehydrate the moral choice?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Grabbing thrown out food from a groceries shops dumpster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Sleeping in your car when your too drunk to drive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In some states, feeding the homeless.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Imagine going to war at 18 for 2 and a half years and you come back home, but still can’t go get a beer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. As an American doctor who takes Medicare, I am not allowed to waive fees for procedures or charge a patient less than what our officially set rates are, even if they don’t have insurance. I’m also not allowed to ask a doctor from a different practice what a certain insurance company pays them for a service, as this has been deemed “anti-trust.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Taking broken apple products, salvaging the parts that still work, and then selling the refurbished parts to someone in another country.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Grabbing thrown out clothes from clothing stores/furniture/appliances, brand new stuff that just didn’t sell or was out of season. Truly wasteful and probably a terrible. My mom used to drive behind strip malls with me as a kid and we’d find all sorts of good stuff, Pier 1 Imports used to have some good stuff, so did Burlington Coat Factory.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. In Japan? Recycling someones garbage without permission. Touching their garbage at all. You could use a discarded couch and save it from the garbage dump, but be arrested for it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In Russia now: talking about PEACE and STOPPING WAR. Lots of examples when people are getting arrested because it counts as justification of Nazism or humiliation of russian army and special operation. Savage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Donating unused insulin to those in need.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Donating unsold/uneaten food to shelters at the end of the day at a fast food joint i.e. the donuts at dunkin, we’d have to throw them out every night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In many countries speaking out against the malicious and corrupt actions of the government would certainly fall under the category of moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Germany: putting your empty beer bottle next to the trash can in cities instead of into the trash can. Its in principle littering, but it makes it so bottle collectors dont have to crawl through the trash (there is a deposit on the bottles).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Defending against a bully in school, apparently.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In my state, KY, it is illegal to marry the same person 3 times. So I would say that would qualify as moral but illegal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Donating blood as a gay man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Collecting rain water in my state.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Sharing medication. I understand that it can be dangerous in some circumstances. But, for example, I work in childcare, and if a child was dying of an asthma attack, I wouldnt be allowed to share my inhaler to potentially save their life. Most people with asthma use the exact same medication, and I dont think a couple of pumps of inhaler would endanger anyone unless theyre severely allergic. If I was ever actually in that situation, I think Id struggle not to share mine. Having the life-saving medication right there and not being allowed to use it seems crazy to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. You can be fined 135 € for giving food to (non-ukrainian) refugees in Calais, France.
+
+The irony is that the fine for giving food to pigeons in the same city is ~100 €.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Taking a child from a abusive parent while they have custody.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. In my country, feeding street dogs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Allowing the homeless to live in empty and/or abandoned buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Lemonade stands. Your childs lemonade stand can teach them valuable lessons and are pretty harmless but can be shutdown without permit and department of health inspections.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. A city in my state was having a city cleanup, where they put stuff on their curb to send to the landfill, Fridges appliances couches etc. the city workers reminded everyone it was illegal to take these instead of letting the city workers pick them up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Any form of nonviolent resistance.
+
+If youre born into a country where the government has arrogated to itself a monopoly on violence, you really have no option except nonviolent resistance/protest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Refilling parking meters for other people.
+
+Years ago, I worked in an affluent town where parking spots where at a premium. This town also had a notoriously efficient parking enforcement troupe. As I mentioned this was an affluent town, so the real crimes (domestic abuse, assaults, etc.) were rarely reported to keep property values high…
+
+I digress.
+
+Sometimes I would get to park a block or two out of my way to park on a residential street that didn’t require a permit. Otherwise I would be forced to feed the meter two dollars for two hours, then after four dollars for four hours if you didn’t move your car then you would find a citation on your windshield without exception.
+
+So, I would take the change out of my cup holders when I had some and feed meters I saw going low in my walk to work.
+
+One day this parking attendant saw me from across the street feeding a meter, and shouted for me to stay where I was. She darted towards me completely ignoring the crosswalk (haha). Asked me if that was my car, I asked, what did that matter?
+
+She persisted in my answering her question, but ignoring mine. So, I just told her I had to get to work and went about my day.
+
+The NEXT day it was like a sting operation, I fed two quarters into a meter I saw had only twenty minutes remaining. No sooner did I turn the handle than she came up behind me from the side alley.
+
+She’s shouting at me like I had smashed storefront windows with Molotovs. Next thing I know she is berating me about how much I was costing her personally and the town in lost revenue by doing this for the past few weeks. She wrote me a damn citation for almost a hundred dollars.
+
+I of course went to the magistrate to fight it and he dismissed it without a thought. Felt good until she found out what car was mine and was Johnny on the spot with parking tickets from then on.
+
+Fun Fact:
+
+The town soon after raised enough money to install digital solar powered meters. So they could just automatically fine you the microsecond the time limit lapsed. However, by accident I realized that the machines where inoperable on overcast days.
+
+So, on my way home from work (town was almost deserted by 9pm) I took egg and charcoal from the kitchen I worked and would rub that s**t on every meter I walked by.
+
+Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Things We’re Sick of Hearing About</a><br>
 
 <span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
  
@@ -599,51 +745,95 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 
 <span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">21 Pictures That are Technically Not Wrong</a><br>
+## <a href="#linky15" id="linky14">25 “Harmless” Things Men Do That Piss Women Off</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">66 Random Pics with no Relevance Intended</a><br>
+<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">17 Photos That Might Make You Cry Like a Baby</a><br>
+
+<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">66 Random Pics with no Relevance Intended</a><br>
 
 <span style="font-size:4em">1. That looks like some futuristic alien base on another planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033741/87161257/87161223.jpg" style="width:100%"><br>
 
@@ -777,7 +967,7 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 
 <span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033827/87161265/87161246.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">22 Things That Aged Poorly</a><br>
+## <a href="#linky18" id="linky17">22 Things That Aged Poorly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
 
@@ -822,92 +1012,4 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">25 “Harmless” Things Men Do That Piss Women Off</a><br>
-
-<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">17 Photos That Might Make You Cry Like a Baby</a><br>
-
-<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
 
