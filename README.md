@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/09/2022-06:11:31
+Last updated: 05/09/2022-07:11:31
 <br>
 ## <a href="#linky2" id="linky1">30 Most WTF Things Ever Said by Kids</a><br>
 
@@ -103,49 +103,59 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">30. Telling this story on my Mothers behalf. Ever since I was little Ive been a sleepwalker. I dont know when it started or why all I know is that my mom was the one that would find me walking about and send me back to bed when I was living with her. Apparently one night (I have no memory of the event my mom told me the next morning) I got up, walked into the doorway of my parents room, and just stood there, head down, while softly muttering something under my breath. Mom tells me she woke up and nearly had a heart attack. As she got up to help me back upstairs I sloooowly turned around and walked myself back to bed. Moms locked her door ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161678.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 Pictures That are Technically Not Wrong</a><br>
+## <a href="#linky3" id="linky2">25 Things We’re Sick of Hearing About</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160487.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Scam calls. Please make them stop. -u/Agitated_Pin_6145</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Pop-up ads. Like, who still falls for that? -u/DoggyMcDogDog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. MLMs/Pyramid schemes. How do these still work on people? -u/Zapejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160491.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Keith Richards. -u/jayzedandconfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. McAfee antivirus. That sh*t is malware, and has been malware for years...yet it comes pre-installed on almost every PC. -u/iLikeTorturls</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ticketmaster. How in the living hell have they not had a decent competitor that charges lower rates yet? -u/Taynt42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. 1040 forms. They know what I earned. -u/Bullyoncube</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Fax machines. -u/eh_pinkachou</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Flat Earth Society. -u/CheerfulFlame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160496.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Sims 4. The most recent pack was actually a literal scam, like it completely broke weddings. People with that pack have to get their Sims eloped now. -u/Ok_Context_7495</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The Simpsons. -u/ZanderRan286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160498.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Slavery. Human trafficking. All the bad stuff. -u/SEND_ME_DANK_MAYMAYS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160499.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The Kardashians having a show. -u/MelloMejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160500.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Mainframe COBOL. -u/atomicsnarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160501.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Internet with data caps. -u/kristofurr87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160502.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Physicians who dismiss endometriosis and say its in your head. -u/ErdenGeboren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. My will to live. -u/FutureSecond6077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160504.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. 40 hour work weeks. -u/ShittyAssholeCrust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160505.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Pennies! we got rid of the half penny because it was useless. I figured this would happen to the penny too because its more expensive to manufacture than theyre worth. -u/ProtocolPhilosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160506.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Two-party political system. -u/PhatBallllzAtHotmail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160507.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Why do airports still relay important flight information over a sh*tty speaker system in a loud airport where you can never hear unless you are 10 feet from the desk. Everything should be instant push notifications to your phone. -u/PokemonNovice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Nazis. We literally had a war about this. Whole world was involved and collectively said f*ck off, but here we are. -u/SpiritOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Single-use plastics. We know better, why dont we do better? -u/Parakiet20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Historical Photos That Might Change Your Perspective</a><br>
 
@@ -431,37 +441,139 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">11. Alexa PenaVega</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161715.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">20 People Who Are "Real Badasses"</a><br>
+## <a href="#linky9" id="linky8">66 Random Pics with no Relevance Intended</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. That looks like some futuristic alien base on another planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033741/87161257/87161223.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Now how could a cute little duckling make you sad?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Now thats a pretty clever piece of machinery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. Im calling the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. And Im calling them again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Something tells me this isnt going to end well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Uh oh, is this one of those Exorcist moments?!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033644/87161247/87161195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160478.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160479.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160480.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033648/87161248/87161196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033655/87161249/87161204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033659/87161250/87161205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033707/87161251/87161206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033710/87161252/87161213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033719/87161253/87161214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033721/87161254/87161217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033730/87161255/87161219.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033731/87161256/87161221.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033742/87161258/87161224.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033752/87161259/87161227.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033753/87161260/87161229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033803/87161261/87161231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033804/87161262/87161235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033816/87161263/87161239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033817/87161264/87161242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033827/87161265/87161246.jpg" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">21 People Who Had Ink Done and Immediately Regretted It</a><br>
 
@@ -603,7 +715,95 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160736.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">28 Things That Are Moral But Illegal</a><br>
+## <a href="#linky13" id="linky12">17 Photos That Might Make You Cry Like a Baby</a><br>
+
+<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 “Harmless” Things Men Do That Piss Women Off</a><br>
+
+<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">28 Things That Are Moral But Illegal</a><br>
 
 <span style="font-size:4em">1. Pirating content that has been abandoned and cant even be purchased any more. E.g. an out of print book, or a game that isnt sold anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160077.jpg" style="width:100%"><br>
 
@@ -691,283 +891,51 @@ So, on my way home from work (town was almost deserted by 9pm) I took egg and ch
 
 Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160101.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Things We’re Sick of Hearing About</a><br>
+## <a href="#linky16" id="linky15">21 Pictures That are Technically Not Wrong</a><br>
 
-<span style="font-size:4em">1. Cereal bags that arent re-sealable. -u/Brewer1056
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160487.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Scam calls. Please make them stop. -u/Agitated_Pin_6145</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160488.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Pop-up ads. Like, who still falls for that? -u/DoggyMcDogDog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160490.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. MLMs/Pyramid schemes. How do these still work on people? -u/Zapejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160491.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Keith Richards. -u/jayzedandconfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160492.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. McAfee antivirus. That sh*t is malware, and has been malware for years...yet it comes pre-installed on almost every PC. -u/iLikeTorturls</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160493.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Ticketmaster. How in the living hell have they not had a decent competitor that charges lower rates yet? -u/Taynt42</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160489.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. 1040 forms. They know what I earned. -u/Bullyoncube</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160494.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161051.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Fax machines. -u/eh_pinkachou</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160495.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Flat Earth Society. -u/CheerfulFlame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160496.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Sims 4. The most recent pack was actually a literal scam, like it completely broke weddings. People with that pack have to get their Sims eloped now. -u/Ok_Context_7495</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160497.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The Simpsons. -u/ZanderRan286</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160498.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Slavery. Human trafficking. All the bad stuff. -u/SEND_ME_DANK_MAYMAYS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160499.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The Kardashians having a show. -u/MelloMejo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160500.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Mainframe COBOL. -u/atomicsnarl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160501.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Internet with data caps. -u/kristofurr87</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160502.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Physicians who dismiss endometriosis and say its in your head. -u/ErdenGeboren</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160503.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My will to live. -u/FutureSecond6077</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160504.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. 40 hour work weeks. -u/ShittyAssholeCrust</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160505.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Pennies! we got rid of the half penny because it was useless. I figured this would happen to the penny too because its more expensive to manufacture than theyre worth. -u/ProtocolPhilosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160506.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Two-party political system. -u/PhatBallllzAtHotmail</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160507.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Why do airports still relay important flight information over a sh*tty speaker system in a loud airport where you can never hear unless you are 10 feet from the desk. Everything should be instant push notifications to your phone. -u/PokemonNovice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Nazis. We literally had a war about this. Whole world was involved and collectively said f*ck off, but here we are. -u/SpiritOne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Single-use plastics. We know better, why dont we do better? -u/Parakiet20</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. A minimum wage of $7.25 an hour. -u/ToxicFuel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87160511.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">25 “Harmless” Things Men Do That Piss Women Off</a><br>
-
-<span style="font-size:4em">1. “You’re cute when you’re mad”-u/ancientamber</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “For being a girl you’re surprisingly really good at doing ____”.-u/Sienna-hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Thats not very ladylike.-u/0hbryan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157535.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Making us prove we are knowledgeable whenever we like something that is traditionally masculine.I like soccer and one of my colleagues quizzed me on how many players are supposed to be on the field during a game. Not in a billion years would he have done that to another man. Still pisses me off up to this day.-u/Poppiiiiiiiiies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Picking fights with people so you can demonstrate that you are a True Alpha Male.-u/Bizarre_Protuberance</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Catcalling, apparently. In highschool I got into a really heated argument with a boyfriend because he insisted that women usually appreciate the compliment. Several other girls jumped in to back me up and he still tried to tell us that we were wrong. It was one of the most frustrating arguments Ive ever had.-u/Delicious-Carpet-3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Talking over us. There is a guy in my history class who constantly interrupts me just to repeat what I’ve already said with bigger words that he’s using wrong. The teacher lets him do it and loves having him in class. Also anytime the teacher asks something about life (for example would you still eat chicken if you had to kill it yourself) he goes “girls? would you?” acting like it would be more difficult for us.-u/24_monkeys</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Once had a guy in college tell me I’d be really hot if I put some effort in the morning. 8 am class and I was a bartender with a bf. 100% dgaf about trying to turn you on, bro.-u/Smartwentcrazy89</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Calling them baby and sweetheart like immediately after meeting. Ugh, that is such a cringey thing to do when they arent even aware of what your first name is.-u/DizzyZygote </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Calm down” when you have any reaction…even just raising my eyebrows. I am calm. But it’s okay when you get mad and punch a wall…-u/Shahmaan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Saying it must be that time of the month-u/Lawgics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. At my former job, I worked with a lot of volunteers, so people were being very familiar with each other. That was fine, but the amount of men who wanted to rub my shoulders without asking was insane. Why, why would you just grab people you dont really know like that? And keep trying to do it after I tell you I dont like it?-u/theswamphag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Youre too pretty to work this job. I heard this constantly from male patients when I was a paramedic. I was the youngest paramedic they had and I was one of the few women. IT ISNT A COMPLIMENT YOU TWAT. I WORKED REALLY HARD TO GET THERE.-u/1Small_Pink_Camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There was a situation where I was picking up furniture together with my partner and my father when the guy who runs that place came up to my dad smirking and asking if I had a sister - knowing that I could hear it. That dude was at least over 50. That was so weird and unnecessary. Just wrong. He was that kind of guy who would label everything as a “compliment” or “locker room talk”.-u/introverting_vibes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Being told to smile. Instant rage.-u/AuroraCloudberry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Insulting other women’s bodies in front of us.I’ve had men do this around me thinking it’ll boost my self-esteem if they insult factors of another woman’s appearance that I don’t have, for example by bullying small chested, older or larger women. All it does is put me in competition with others and makes me realize that if my physical traits were different, this man probably wouldn’t respect me half as much, or that I’ll be less attractive to him if my appearance changes. It makes me feel like a commodity, puts pressure on me and just makes the relationship feel very surface level. I don’t care if your ex is now a ‘fat cow’, keep it to yourself.-u/stagsinthehospice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Do not f*cking touch my waist or hips and excuse it by saying “just trying to scoot by”Use your words if you need to walk behind me. You wouldn’t do this to a man. I know what you’re doing. It’s not clever.-u/superfruitballs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Monday: Make me a sandwich ha ha ha Tuesday: Make me a sandwich ha ha haWednesday: Make me a sandwich ha ha haThursday: Make me a sandwich ha ha haFriday: Make me a sandwich ha ha haSaturday: Make me a sandwich ha ha haAnd on Sunday he rested to opine about how women just arent as funny as men-u/mylatestphase</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Shouldn’t you be watching your figure?” When we’re eating sweets.F*ck. Off.-u/Passive_Southerner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Honking or yelling out of your car window when I am walking, pumping gas, etc. Would be nice to do basic activities in peace.-u/teenager-from-mars</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Good girl”-u/Fuzzy_Ad3338</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Asking me for advice on a subject I know more than you about and then completely ignoring it.-u/bunnyswan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Assuming we don’t know something, then proceeding to explain it when we did. Not. Ask.-u/TraditionalElk549</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Will call men “men” but women “females” it just rubs me the wrong way-u/ask_bee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stop sending unsolicited dick pics. Seriously. If youve ever gotten a positive reaction, either the girl just happened to already be freakishly horny or theyre just trying to get you to feel better. Im baffled that this is as common a problem as it actually is. Post it in a sex chat or something if you really just wanna show off.-u/Auraveils</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87157556.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">17 Photos That Might Make You Cry Like a Baby</a><br>
-
-<span style="font-size:4em">1. A tough decision to make, but at least she will have the memory when her big day comes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dogs are such amazing creatures, we truly dont deserve the unconditional love they give us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A touching tribute by the stadium / team.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160527.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">66 Random Pics with no Relevance Intended</a><br>
-
-<span style="font-size:4em">1. That looks like some futuristic alien base on another planet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033741/87161257/87161223.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Now how could a cute little duckling make you sad?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Now thats a pretty clever piece of machinery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Im calling the police.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. And Im calling them again!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Something tells me this isnt going to end well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Uh oh, is this one of those Exorcist moments?!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033644/87161247/87161195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033648/87161248/87161196.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87160442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033655/87161249/87161204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033659/87161250/87161205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033707/87161251/87161206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033710/87161252/87161213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033719/87161253/87161214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033721/87161254/87161217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033730/87161255/87161219.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033731/87161256/87161221.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033742/87161258/87161224.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033752/87161259/87161227.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033753/87161260/87161229.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033803/87161261/87161231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033804/87161262/87161235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033816/87161263/87161239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033817/87161264/87161242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/033827/87161265/87161246.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">22 Things That Aged Poorly</a><br>
+## <a href="#linky17" id="linky16">22 Things That Aged Poorly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161010.jpg" style="width:100%"><br>
 
@@ -1012,4 +980,36 @@ Never once was I stopped for vandalism.</span><br><img src="https://cdn.ebaumswo
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161019.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161020.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">20 People Who Are "Real Badasses"</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
 
