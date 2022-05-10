@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/10/2022-05:11:31
+Last updated: 05/10/2022-06:11:31
 <br>
 ## <a href="#linky2" id="linky1">24 Senior Pranks That Went Down in History</a><br>
 
@@ -51,93 +51,131 @@ Last updated: 05/10/2022-05:11:31
 
 <span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 People Who Had Ink Done and Immediately Regretted It</a><br>
+## <a href="#linky3" id="linky2">30 Most WTF Things Ever Said by Kids</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122033/87161837/chronic.png" style="width:100%"><br>
+<span style="font-size:4em">1. Mommy, will you ever hurt me with a knife I told her no. She followed up with ok good. I know some moms do that she was 3 when this happened. She had never seen videos or anything that showed child abuse, so Im not sure how she was aware that some parents hurt their kids. Shes also never been abused by anyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122103/87161840/2pac.png" style="width:100%"><br>
+<span style="font-size:4em">2. Theres a bad thing in my room. Whats in your room? A devil dog. A dog? No, a devil dog. Its a dog thats also a devil.
+
+My son said that to me in the middle of the night while standing in the door to my room, looking down the hall with his back to me. It was also right after I discovered NoSleep and binged all the top stories</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122115/87161842/heart.png" style="width:100%"><br>
+<span style="font-size:4em">3. When my daughter was around 4 yrs old, she had a habit of waking me up by getting 4 inches from my face and staring at me until I opened my eyes. Once my eyes opened, shed say, Mommy your face is pretty. I want to wear it on my face.
+
+Ok, Hannibal, lets get some breakfast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122119/87161843/helmet.png" style="width:100%"><br>
+<span style="font-size:4em">4. I have a freckle on either side of my mouth. My little sister once said that it looked like a good place to start cutting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122126/87161844/jack.png" style="width:100%"><br>
+<span style="font-size:4em">5. When my daughter was 4-5 years old we lived in a two bedroom townhouse. It was just the two of us (mom and daughter, her dad passed away). She always crept into my bed at night but never said why. One day we were cleaning her room and putting away laundry and she got very agitated and said, “Why is he here now? He said he only comes at night.” I asked if she was talking about Dad. She said, “No the boy with no hands.”
+
+We moved a few months later and she’s never come into my bed at night or mentioned him since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122108/87161841/gun.png" style="width:100%"><br>
+<span style="font-size:4em">6. When my oldest son was about three he asked one night at bed time. Mommy I like you better than my fake mommy. Me whos your fake mommy? Him You cant see her. She tucks me in after you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122130/87161845/james.png" style="width:100%"><br>
+<span style="font-size:4em">7. A few weeks ago I was getting breakfast ready for my 3 year old when he nonchalantly told me his Grandma fell down the stairs. About an hour later Grandpa calls us to tell us Grandma had fallen down the stairs.
+
+Also last weekend my 3 year old said my sister was going to visit the next day and guess who showed up for a surprise visit...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122138/87161846/love.png" style="width:100%"><br>
+<span style="font-size:4em">8. My 3 year old grandson has babbled about plane crashes since he started talking. He would reenact (with toys) a plane chasing another plane and as the first suddenly dropped to the ground hed yell in a heart-rending scream, OH NO WE CRASHED! This was his first sentence. He did this over and over.
+
+Early this summer hes 3 and Im reading him a bedtime story. I pause & look up at him and he said to me, Granny, I was a pilot, my plane was the Kitty Hawk. I crashed into the water when they shotted off my wing and shotted off my face.
+
+It almost stopped my heart.
+
+
+He looked so troubled and sad. I told him that he had done his best and I was very proud of him and that he was only a little boy now and needed to not worry about that but if he needed to talk about it he could anytime. I just hugged him.
+
+I researched and Kitty Hawks were used by almost every country early in WW2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122143/87161847/mrt.png" style="width:100%"><br>
+<span style="font-size:4em">9. My two year old has a motion-sensored night light in his room. One night , he wouldnt fall asleep. He kept talking to someone/something and was playing. He hadnt eaten much for dinner, so I decided to get him up for a midnight snack. I made him some macaroni and cheese and fed it to him from a bowl as he sat on the couch and watched tv with me.
+
+Suddenly the motion light turned on in his room, unprovoked. Odd, but whatever. It turned off again, and we went back to watching tv. Suddenly, my son stops, and looks down the dark, empty hall leading to his bedroom. His face lit up and he says, Hiii! He runs up to the darkness, and starts babbling to it, talking to it.
+
+Then he runs back, grabs his fork, puts some mac&cheese on it, runs back to the darkness and holds his fork up to it, like hes trying to feed it. He started getting impatient that it wasnt eating, but kept baby talking it. Finally he gives up, waves and says, Buh bye! And then goes back to watching tv like nothing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122150/87161848/newt.png" style="width:100%"><br>
+<span style="font-size:4em">10. I have twin daughters. One day while playing outside, one looked up at the sky and said, The sky is cracked... and on fire.
+
+My other daughter looked up and said, Yes.... the people are screaming.
+
+Then they went back to playing with dolls. Fingers crossed theyre not predicting the future, everybody!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122044/87161838/bathing.png" style="width:100%"><br>
+<span style="font-size:4em">11. My 3 yo daughter was going through the monsters under her bed phase. Lasted for weeks, and it was really wearing on her mom & me.
+
+One night after mom tried to put her to bed, she tagged me in. After 30 minutes, I grew pretty frustrated. In a last ditch attempt, I promised my daughter that there werent any monster under her bed. She replied, I know. Now theyre behind you.
+
+After that, I let her sleep with us for a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122056/87161839/dog.png" style="width:100%"><br>
+<span style="font-size:4em">12. My three year old son said, Next time Im a baby, I want to have green eyes. I asked him if he had been a different baby before being who he currently is, and he squinted his eyes, looked at me like I was an idiot, and said, Yes, papa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122155/87161849/poo.png" style="width:100%"><br>
+<span style="font-size:4em">13. Well, this morning I was lying in bed, my almost 2 year old came up, put her face right up to mine and I though maybe she wanted a kiss. Then she said mama, I want eat your eyes please.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122202/87161850/retribution.png" style="width:100%"><br>
+<span style="font-size:4em">14. About 3 am I wake to find my 6 year old son just standing next to my side of the bed staring at me motionless. It was a very tense moment up to the point I asked him very easily you ok son??
+He then came back with I cant sleep but I still wonder how long he stood there before I woke....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122208/87161851/rings.png" style="width:100%"><br>
+<span style="font-size:4em">15. He started refusing to go downstairs (age around 3-3.5), terrified, saying there was an evil ‘angel man’ down there that wanted to hurt the whole family. Consistently drew the same picture of said angel man too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122214/87161852/shane.png" style="width:100%"><br>
+<span style="font-size:4em">16. My oldest kept talking in his bed past bed time. When we asked him who he was talking to he said he was talking to the floating white lady. I dont remember the description he gave us, but what I DO remember is kid #3 doing the same f*****g routine 8 years later...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122221/87161853/silent.png" style="width:100%"><br>
+<span style="font-size:4em">17. Once when my toddler was hugging me he quietly said “I won’t eat your bones.”
+Oh, uh...much obliged...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122226/87161854/spider.png" style="width:100%"><br>
+<span style="font-size:4em">18. When I was really small, my Dad would go out of town quite a bit because of his job. One night when he was at home, I went up to my Mom, who was in bed, and said, “Who is that strange man in bed with you?”
+
+Mom blinked and said, “That’s your Father.”
+
+Shortly afterwards, Dad stopped traveling so much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122233/87161855/tofu.png" style="width:100%"><br>
+<span style="font-size:4em">19. Picked him up from daycare when he was 3. Driving home, totally quiet, him just staring out the window... he randomly asks hey dad, member that time we [passed away] in a fire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122238/87161856/wolve.png" style="width:100%"><br>
+<span style="font-size:4em">20. Starting at about 18 months, my daughter had an imaginary friend. NBD. At first, we didn’t think much of it because she seemed to delight in its presence. She would talk with the friend, and play with him, and he was generally a protective presence although she said that he did like to get into mischief. After a few months of this, we started asking our daughter questions about her friend and she would give us very specific answers, like his gender, first and last name, age, hair, eye color, etc. My partner and I thought, wow, those are some really specific details for an 18-month-old to provide. So, we googled the name. Turns out, there was a boy who [passed away] in another state that matched the name, age, height, hair, and eye color of my kids “imaginary friend.” Now, thinking this imaginary friend to be a ghost, we asked my daughter if she knew how the boy [passed away], and she was correct. Mind blown.
+
+After about a year of this “friend” hanging around, we summon the courage to message a group set up to memorialize the boy. We get a message back from the boys mom. Turns out she has the exact same profession as my partner and, months before we contacted her, had planned on visiting the city we lived in. We ended up actually meeting her later that year.
+
+My daughter actually had this friend for about 3.5 more years and then he came around less and less. Every once in a while, she still talks about him, or sets toys aside for him. It’s crazy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122244/87161857/wtf.png" style="width:100%"><br>
+<span style="font-size:4em">21. I used to say things my grandfather used to say a lot. Like yelling out in German at our dog. My grandfather [passed away] years before I was born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161668.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">21 Times Life Rained on People's Parades</a><br>
+<span style="font-size:4em">22. my youngest brother (5 at the time) asked me if I wanted to come to play with the girl in the wall. freaked me the f**k out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “I feel like I made a mistake when I said “I’m not worried about a few dents as long as the hail doesn’t bust out my windshield.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159291.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. My oldest daughter occasionally sleep walks. A few weeks ago she came out of her room and into the living room where me and the wife were watching tv. I asked her what was wrong and all she said was The rabbits wont stop screaming. . Then she turned around and went back to her room. Kinda creeped me and the missus out a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Today while renovating, we found out, my partners, antique, family heirloom mirror. The one that’s been on the wall for 20 years, is just plastic and made in Hong Kong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159287.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. My one year old will point to a spot on the ceiling, say awwww, make grabby hands towards it then begin tracking whatever it is she sees and blowing kisses at it. Im pretty sure its satan. Nothing good lives on the ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Brought wheelchair friend to stall while at Denny’s. It has no door. Asked if he could use womans restroom, told no. Wheeled him in anyways (made sure empty first). They called the police on us. Police came and didn’t do anything as it was obvious we had no choice in using the woman rest room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159288.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Looked over to see what my five-year-old niece was drawing. I was almost too afraid to ask who it was. A girl that cries is all she told me. I didnt want to know if it was in our house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Tree fell on neighbor’s 4Runner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159292.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. My 5yo told me a story that went something like this: He said that Georgey-Porgery doesn’t come around anymore. I asked who Georgey-Porgey was he said “Georgey-Porgey is the man who comes in here at night. He said it’s not good to bang on walls, if you bang on walls all the beetles will fall onto your face and in your eyes and your mouth. Georgey-porgy and doctor Mecha are [deceased]. When you’re [deceased] you’re not anywhere anymore, dr Mecha says it’s really important not to [pass away], so don’t [pass away] ok?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “First night, something bit me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159289.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. My daughter told me (at age 4 ish) that Santa makes toys by popping the eyeballs out of [unalive] people and chasing them around the floor until they turn into toys. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Girlfriend’s family came over this weekend, she made Jello cups and noone took any.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159290.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. My 4-year-old cousin said it was the girl sang to her at sleep I asked what is about her neck? She said Oh she has a snake neck Im never sleeping again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Poor guy doesn’t know how to fix a flat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159293.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. When my oldest daughter was in Kindergarten, she wrote and illustrated her first book titled “I Hope You Die in a Fire.”
+She and her friends were really into Five Nights at Freddie’s at the time, so I guess you could call it a fanfiction of sorts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Welp, my car exploded on my way to work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159294.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Telling this story on my Mothers behalf. Ever since I was little Ive been a sleepwalker. I dont know when it started or why all I know is that my mom was the one that would find me walking about and send me back to bed when I was living with her. Apparently one night (I have no memory of the event my mom told me the next morning) I got up, walked into the doorway of my parents room, and just stood there, head down, while softly muttering something under my breath. Mom tells me she woke up and nearly had a heart attack. As she got up to help me back upstairs I sloooowly turned around and walked myself back to bed. Moms locked her door ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “The X-ray of the nail in my hand.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159305.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">11 Famous Actresses Then Vs. Now</a><br>
 
-<span style="font-size:4em">10. “Was really excited for some sour skittles.’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159295.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Sarah Michelle Gellar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Two weeks after a dream job interview, I learned three things today: I didn’t get the job, they were ghosting me, and my monitor had a stroke overnight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159296.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lindsay Lohan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I was so tired last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159297.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Christina Ricci</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Just spent the last 3 hours cooking for family coming over…then they brought their own takeaway to eat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159298.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Julia Stiles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I fractured my hip playing limbo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159299.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Melissa Joan Hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “When you hide the chocolate bunnies on top of a cabinet, but forget the radiator heats up that corner of the room at night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159300.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Katie Holmes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “6 hours long full flight… and your seat TV screen is the only one not working!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159301.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Natalie Portman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161710.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “Welcome to Virginia. That layer of dust is pollen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159302.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Claire Danes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161706.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “I went to an orthopedic doc for my knee and found a giant tumor in my leg (and i need a knee replacement on the other knee before the end of the year)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159303.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Amanda Seyfried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “I went to show my bunny the forest. sounded better in my head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159286.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Alyssa Milano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161714.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Airbnb with a surprise waiting for us.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “$6,000 stainless steel water tank knocked down and destroyed by wind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159306.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Alexa PenaVega</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161715.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">Monday Morning Randomness User Edition - MainFeature</a><br>
 
@@ -273,37 +311,49 @@ Last updated: 05/10/2022-05:11:31
 
 <span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/08/030741/87162981/87162102.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 People Who Are "Real Badasses"</a><br>
+## <a href="#linky6" id="linky5">21 Times Life Rained on People's Parades</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I feel like I made a mistake when I said “I’m not worried about a few dents as long as the hail doesn’t bust out my windshield.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159291.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. “Today while renovating, we found out, my partners, antique, family heirloom mirror. The one that’s been on the wall for 20 years, is just plastic and made in Hong Kong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159287.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Brought wheelchair friend to stall while at Denny’s. It has no door. Asked if he could use womans restroom, told no. Wheeled him in anyways (made sure empty first). They called the police on us. Police came and didn’t do anything as it was obvious we had no choice in using the woman rest room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159288.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Tree fell on neighbor’s 4Runner.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159292.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “First night, something bit me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159289.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. “Girlfriend’s family came over this weekend, she made Jello cups and noone took any.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159290.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Poor guy doesn’t know how to fix a flat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Welp, my car exploded on my way to work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
+<span style="font-size:4em">9. “The X-ray of the nail in my hand.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. “Was really excited for some sour skittles.’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Two weeks after a dream job interview, I learned three things today: I didn’t get the job, they were ghosting me, and my monitor had a stroke overnight.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. “I was so tired last night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. “Just spent the last 3 hours cooking for family coming over…then they brought their own takeaway to eat.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. “I fractured my hip playing limbo.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “When you hide the chocolate bunnies on top of a cabinet, but forget the radiator heats up that corner of the room at night.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “6 hours long full flight… and your seat TV screen is the only one not working!!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Welcome to Virginia. That layer of dust is pollen.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “I went to an orthopedic doc for my knee and found a giant tumor in my leg (and i need a knee replacement on the other knee before the end of the year)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I went to show my bunny the forest. sounded better in my head.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Airbnb with a surprise waiting for us.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “$6,000 stainless steel water tank knocked down and destroyed by wind.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87159306.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">26 Fresh Memes of the Dankest Kind</a><br>
 
@@ -357,29 +407,37 @@ Last updated: 05/10/2022-05:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87160736.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">11 Famous Actresses Then Vs. Now</a><br>
+## <a href="#linky8" id="linky7">20 People Who Are "Real Badasses"</a><br>
 
-<span style="font-size:4em">1. Sarah Michelle Gellar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161713.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/05/012716/87161116/badasses.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Lindsay Lohan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161712.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160628.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Christina Ricci</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161705.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Julia Stiles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161707.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Melissa Joan Hart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161708.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160620.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Katie Holmes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161709.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160621.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Natalie Portman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161710.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160614.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Claire Danes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161706.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160622.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Amanda Seyfried</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161711.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160623.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Alyssa Milano</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161714.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160624.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Alexa PenaVega</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161715.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160625.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160626.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160629.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87160631.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">20 Entitled Managers That Totally Have a Screw Loose</a><br>
 
@@ -423,109 +481,7 @@ Last updated: 05/10/2022-05:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/052731/87162180/wash.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 Most WTF Things Ever Said by Kids</a><br>
-
-<span style="font-size:4em">1. Mommy, will you ever hurt me with a knife I told her no. She followed up with ok good. I know some moms do that she was 3 when this happened. She had never seen videos or anything that showed child abuse, so Im not sure how she was aware that some parents hurt their kids. Shes also never been abused by anyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Theres a bad thing in my room. Whats in your room? A devil dog. A dog? No, a devil dog. Its a dog thats also a devil.
-
-My son said that to me in the middle of the night while standing in the door to my room, looking down the hall with his back to me. It was also right after I discovered NoSleep and binged all the top stories</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. When my daughter was around 4 yrs old, she had a habit of waking me up by getting 4 inches from my face and staring at me until I opened my eyes. Once my eyes opened, shed say, Mommy your face is pretty. I want to wear it on my face.
-
-Ok, Hannibal, lets get some breakfast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I have a freckle on either side of my mouth. My little sister once said that it looked like a good place to start cutting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When my daughter was 4-5 years old we lived in a two bedroom townhouse. It was just the two of us (mom and daughter, her dad passed away). She always crept into my bed at night but never said why. One day we were cleaning her room and putting away laundry and she got very agitated and said, “Why is he here now? He said he only comes at night.” I asked if she was talking about Dad. She said, “No the boy with no hands.”
-
-We moved a few months later and she’s never come into my bed at night or mentioned him since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. When my oldest son was about three he asked one night at bed time. Mommy I like you better than my fake mommy. Me whos your fake mommy? Him You cant see her. She tucks me in after you do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A few weeks ago I was getting breakfast ready for my 3 year old when he nonchalantly told me his Grandma fell down the stairs. About an hour later Grandpa calls us to tell us Grandma had fallen down the stairs.
-
-Also last weekend my 3 year old said my sister was going to visit the next day and guess who showed up for a surprise visit...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My 3 year old grandson has babbled about plane crashes since he started talking. He would reenact (with toys) a plane chasing another plane and as the first suddenly dropped to the ground hed yell in a heart-rending scream, OH NO WE CRASHED! This was his first sentence. He did this over and over.
-
-Early this summer hes 3 and Im reading him a bedtime story. I pause & look up at him and he said to me, Granny, I was a pilot, my plane was the Kitty Hawk. I crashed into the water when they shotted off my wing and shotted off my face.
-
-It almost stopped my heart.
-
-
-He looked so troubled and sad. I told him that he had done his best and I was very proud of him and that he was only a little boy now and needed to not worry about that but if he needed to talk about it he could anytime. I just hugged him.
-
-I researched and Kitty Hawks were used by almost every country early in WW2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My two year old has a motion-sensored night light in his room. One night , he wouldnt fall asleep. He kept talking to someone/something and was playing. He hadnt eaten much for dinner, so I decided to get him up for a midnight snack. I made him some macaroni and cheese and fed it to him from a bowl as he sat on the couch and watched tv with me.
-
-Suddenly the motion light turned on in his room, unprovoked. Odd, but whatever. It turned off again, and we went back to watching tv. Suddenly, my son stops, and looks down the dark, empty hall leading to his bedroom. His face lit up and he says, Hiii! He runs up to the darkness, and starts babbling to it, talking to it.
-
-Then he runs back, grabs his fork, puts some mac&cheese on it, runs back to the darkness and holds his fork up to it, like hes trying to feed it. He started getting impatient that it wasnt eating, but kept baby talking it. Finally he gives up, waves and says, Buh bye! And then goes back to watching tv like nothing happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I have twin daughters. One day while playing outside, one looked up at the sky and said, The sky is cracked... and on fire.
-
-My other daughter looked up and said, Yes.... the people are screaming.
-
-Then they went back to playing with dolls. Fingers crossed theyre not predicting the future, everybody!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My 3 yo daughter was going through the monsters under her bed phase. Lasted for weeks, and it was really wearing on her mom & me.
-
-One night after mom tried to put her to bed, she tagged me in. After 30 minutes, I grew pretty frustrated. In a last ditch attempt, I promised my daughter that there werent any monster under her bed. She replied, I know. Now theyre behind you.
-
-After that, I let her sleep with us for a week.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My three year old son said, Next time Im a baby, I want to have green eyes. I asked him if he had been a different baby before being who he currently is, and he squinted his eyes, looked at me like I was an idiot, and said, Yes, papa.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Well, this morning I was lying in bed, my almost 2 year old came up, put her face right up to mine and I though maybe she wanted a kiss. Then she said mama, I want eat your eyes please.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. About 3 am I wake to find my 6 year old son just standing next to my side of the bed staring at me motionless. It was a very tense moment up to the point I asked him very easily you ok son??
-He then came back with I cant sleep but I still wonder how long he stood there before I woke....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. He started refusing to go downstairs (age around 3-3.5), terrified, saying there was an evil ‘angel man’ down there that wanted to hurt the whole family. Consistently drew the same picture of said angel man too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My oldest kept talking in his bed past bed time. When we asked him who he was talking to he said he was talking to the floating white lady. I dont remember the description he gave us, but what I DO remember is kid #3 doing the same f*****g routine 8 years later...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Once when my toddler was hugging me he quietly said “I won’t eat your bones.”
-Oh, uh...much obliged...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When I was really small, my Dad would go out of town quite a bit because of his job. One night when he was at home, I went up to my Mom, who was in bed, and said, “Who is that strange man in bed with you?”
-
-Mom blinked and said, “That’s your Father.”
-
-Shortly afterwards, Dad stopped traveling so much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Picked him up from daycare when he was 3. Driving home, totally quiet, him just staring out the window... he randomly asks hey dad, member that time we [passed away] in a fire?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Starting at about 18 months, my daughter had an imaginary friend. NBD. At first, we didn’t think much of it because she seemed to delight in its presence. She would talk with the friend, and play with him, and he was generally a protective presence although she said that he did like to get into mischief. After a few months of this, we started asking our daughter questions about her friend and she would give us very specific answers, like his gender, first and last name, age, hair, eye color, etc. My partner and I thought, wow, those are some really specific details for an 18-month-old to provide. So, we googled the name. Turns out, there was a boy who [passed away] in another state that matched the name, age, height, hair, and eye color of my kids “imaginary friend.” Now, thinking this imaginary friend to be a ghost, we asked my daughter if she knew how the boy [passed away], and she was correct. Mind blown.
-
-After about a year of this “friend” hanging around, we summon the courage to message a group set up to memorialize the boy. We get a message back from the boys mom. Turns out she has the exact same profession as my partner and, months before we contacted her, had planned on visiting the city we lived in. We ended up actually meeting her later that year.
-
-My daughter actually had this friend for about 3.5 more years and then he came around less and less. Every once in a while, she still talks about him, or sets toys aside for him. It’s crazy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I used to say things my grandfather used to say a lot. Like yelling out in German at our dog. My grandfather [passed away] years before I was born.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. my youngest brother (5 at the time) asked me if I wanted to come to play with the girl in the wall. freaked me the f**k out</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My oldest daughter occasionally sleep walks. A few weeks ago she came out of her room and into the living room where me and the wife were watching tv. I asked her what was wrong and all she said was The rabbits wont stop screaming. . Then she turned around and went back to her room. Kinda creeped me and the missus out a bit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. My one year old will point to a spot on the ceiling, say awwww, make grabby hands towards it then begin tracking whatever it is she sees and blowing kisses at it. Im pretty sure its satan. Nothing good lives on the ceiling</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Looked over to see what my five-year-old niece was drawing. I was almost too afraid to ask who it was. A girl that cries is all she told me. I didnt want to know if it was in our house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My 5yo told me a story that went something like this: He said that Georgey-Porgery doesn’t come around anymore. I asked who Georgey-Porgey was he said “Georgey-Porgey is the man who comes in here at night. He said it’s not good to bang on walls, if you bang on walls all the beetles will fall onto your face and in your eyes and your mouth. Georgey-porgy and doctor Mecha are [deceased]. When you’re [deceased] you’re not anywhere anymore, dr Mecha says it’s really important not to [pass away], so don’t [pass away] ok?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My daughter told me (at age 4 ish) that Santa makes toys by popping the eyeballs out of [unalive] people and chasing them around the floor until they turn into toys. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My 4-year-old cousin said it was the girl sang to her at sleep I asked what is about her neck? She said Oh she has a snake neck Im never sleeping again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. When my oldest daughter was in Kindergarten, she wrote and illustrated her first book titled “I Hope You Die in a Fire.”
-She and her friends were really into Five Nights at Freddie’s at the time, so I guess you could call it a fanfiction of sorts.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Telling this story on my Mothers behalf. Ever since I was little Ive been a sleepwalker. I dont know when it started or why all I know is that my mom was the one that would find me walking about and send me back to bed when I was living with her. Apparently one night (I have no memory of the event my mom told me the next morning) I got up, walked into the doorway of my parents room, and just stood there, head down, while softly muttering something under my breath. Mom tells me she woke up and nearly had a heart attack. As she got up to help me back upstairs I sloooowly turned around and walked myself back to bed. Moms locked her door ever since.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161678.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">23 Comments That Hit the Nail on the Head</a><br>
+## <a href="#linky10" id="linky9">23 Comments That Hit the Nail on the Head</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161875.jpg" style="width:100%"><br>
 
@@ -573,7 +529,7 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161883.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">26 Pics That Are So Stupid They're Funny</a><br>
+## <a href="#linky11" id="linky10">26 Pics That Are So Stupid They're Funny</a><br>
 
 <span style="font-size:4em">1. Well, I guess that is what happens when you dont look before you leap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162634.jpg" style="width:100%"><br>
 
@@ -626,6 +582,50 @@ She and her friends were really into Five Nights at Freddie’s at the time, so 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162656.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162657.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">21 People Who Had Ink Done and Immediately Regretted It</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122033/87161837/chronic.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122103/87161840/2pac.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122115/87161842/heart.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122119/87161843/helmet.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122126/87161844/jack.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122108/87161841/gun.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122130/87161845/james.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122138/87161846/love.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122143/87161847/mrt.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122150/87161848/newt.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122044/87161838/bathing.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122056/87161839/dog.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122155/87161849/poo.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122202/87161850/retribution.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122208/87161851/rings.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122214/87161852/shane.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122221/87161853/silent.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122226/87161854/spider.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122233/87161855/tofu.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122238/87161856/wolve.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/06/122244/87161857/wtf.png" style="width:100%"><br>
 
 ## <a href="#linky13" id="linky12">27 Pics That Will Make You Hold Up A Minute</a><br>
 
