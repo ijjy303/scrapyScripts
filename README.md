@@ -1,79 +1,101 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/11/2022-06:11:31
+Last updated: 05/11/2022-07:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
+## <a href="#linky2" id="linky1">26 Painfully Funny Memes That Hurt So Good</a><br>
 
-<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">15 Facts about Celebrities that Might Surprise You</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">21 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163075.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163078.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163087.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163091.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163092.png" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
 
@@ -125,47 +147,55 @@ Last updated: 05/11/2022-06:11:31
 
 <span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">20 Dudes Who Took Massive L’s</a><br>
+## <a href="#linky6" id="linky5">24 Senior Pranks That Went Down in History</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. They made a mockery of the school, LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The seniors who filled the coachs office with toys from kindergarten and a bunch of balloons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. These geniuses who put their school up for sale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. And these kids who put a bounce house on top of their school without getting caught.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Thats a wrap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This was so well done, parents and staff initially thought a car really was crashed into the school. A convincing black tarp, a wrecked car, and some bricks. Even the cops were convinced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And this is absolutely the best senior prank ever. After four years of being annoyed by their head mistress, the students hired a mariachi band to follow her around for an entire day annoying and embarrassing her. WELL PLAYED (literally.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Trashing the headmasters office is always up on the list of pranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Filling the hallway with balloons is a solid option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cups, cups everywhere. This tedious prank was perfectly executed but who has time for it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Well played!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You always want your teachers to remember you, so cover their walls (floors, ceiling, desks, oh just cover it all) in your face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. These seniors convinced the faculty to allow them to dump water on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163313.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. More cups in the hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. And these masterminds who moved cars into the building over night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Yarn, miles and miles of yarn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Changing the signs is an easy, fast way to grab some attention.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. And wrapping the entire classroom in foil covered in PAM cooking spray for optimal sliding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Tossing papers off the top floor makes an epic impact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Harry Potter and the Graduating Seniors Prank.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Oh no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Moving the principals car into the school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Lets make a little noise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">16 People Who Had Wholesome Celebrity Encounters</a><br>
 
@@ -201,7 +231,59 @@ Last updated: 05/11/2022-06:11:31
 
 <span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
+## <a href="#linky8" id="linky7">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161449.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161450.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161455.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161456.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161457.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161459.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161468.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161471.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164018.jpg" style="width:100%"><br>
 
@@ -291,95 +373,7 @@ Last updated: 05/11/2022-06:11:31
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125816/87164380/87163721.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161449.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161450.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161455.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161456.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161457.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161459.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161468.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161471.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">17 Facts That Are Hard To Believe</a><br>
-
-<span style="font-size:4em">1. “The Australian Funnel Web Spider is often regarded as the world’s deadliest and hasn’t had a confirmed kill in over 40 years since the antivenom was created.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “There is enough water in Lake Superior to cover north and South America in water one foot deep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Dragonflies accelerate at up to 4G and corner at up to 9G.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “1/6 of the world’s living languages are only spoken in New Guinea.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa (before he became President, of course).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket…he won the lottery again on camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Tarantulas keep tiny frogs as pets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didn’t wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers ‘don’t worry, I have a face, it’s just invisible.’ The only thing he did when he was arrested was sigh dejectedly and say ‘but I wore the juice!’ His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that they’re smarter than everyone else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Ciabatta bread was invented in 1982. It’s advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope–created in the 1980s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Tsutomo Yamaguchi was in Hiroshima on a business trip and on the day he was supposed to leave, the atomic bomb dropped. He survived with minor injuries and returned to his home in Nagasaki where he went to work 3 days later. As he was describing his experience to his supervisor, the second bomb was dropped and he survived without any injuries. He ended up living into his 90s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “A moose can dive underwater down to nearly twenty feet in search of food.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “Dinosaurs are older than grass. Every artist rendition you’ve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and we’re like, yep totally believable, because they’re clouds, duh.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161156.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">20 Entitled People with No Grasp on Reality</a><br>
+## <a href="#linky10" id="linky9">20 Entitled People with No Grasp on Reality</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055011/87163659/aunt.png" style="width:100%"><br>
 
@@ -421,189 +415,103 @@ Last updated: 05/11/2022-06:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055205/87163678/ugly.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">24 Senior Pranks That Went Down in History</a><br>
+## <a href="#linky11" id="linky10">28 Dank Memes to Improve Humor Circulation</a><br>
 
-<span style="font-size:4em">1. They made a mockery of the school, LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163315.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The seniors who filled the coachs office with toys from kindergarten and a bunch of balloons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163306.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. These geniuses who put their school up for sale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163320.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. And these kids who put a bounce house on top of their school without getting caught.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163304.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Thats a wrap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163305.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. This was so well done, parents and staff initially thought a car really was crashed into the school. A convincing black tarp, a wrecked car, and some bricks. Even the cops were convinced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163307.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. And this is absolutely the best senior prank ever. After four years of being annoyed by their head mistress, the students hired a mariachi band to follow her around for an entire day annoying and embarrassing her. WELL PLAYED (literally.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163327.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Trashing the headmasters office is always up on the list of pranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163308.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Filling the hallway with balloons is a solid option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163309.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cups, cups everywhere. This tedious prank was perfectly executed but who has time for it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163310.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Well played!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163311.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. You always want your teachers to remember you, so cover their walls (floors, ceiling, desks, oh just cover it all) in your face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163312.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
 
-<span style="font-size:4em">13. These seniors convinced the faculty to allow them to dump water on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163313.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. More cups in the hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163314.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. And these masterminds who moved cars into the building over night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163316.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Yarn, miles and miles of yarn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163317.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Changing the signs is an easy, fast way to grab some attention.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163318.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. And wrapping the entire classroom in foil covered in PAM cooking spray for optimal sliding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163319.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Tossing papers off the top floor makes an epic impact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163321.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Harry Potter and the Graduating Seniors Prank.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163322.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Oh no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163323.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Moving the principals car into the school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163324.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Lets make a little noise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163325.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">22 People You Should Not Make Angry</a><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103617/87164287/dontmakeangry2.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103628/87164288/dontmakeangry3.png" style="width:100%"><br>
+## <a href="#linky12" id="linky11">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103639/87164289/dontmakeangry1.png" style="width:100%"><br>
+<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103651/87164290/dontmakeangry4.png" style="width:100%"><br>
+<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103702/87164291/dontmakeangry6.png" style="width:100%"><br>
+<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103711/87164292/dontmakeangry5.png" style="width:100%"><br>
+<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103714/87164293/dontmakeangry7.png" style="width:100%"><br>
+<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103722/87164294/dontmakeangry8.png" style="width:100%"><br>
+<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103727/87164295/dontmakeangry9.png" style="width:100%"><br>
+<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103739/87164297/dontmakeangry11.png" style="width:100%"><br>
+<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103745/87164298/dontmakeangry12.png" style="width:100%"><br>
+<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103751/87164299/dontmakeangry13.png" style="width:100%"><br>
+<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103734/87164296/dontmakeangry10.png" style="width:100%"><br>
+<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103758/87164300/dontmakeangry14.png" style="width:100%"><br>
+<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103803/87164301/dontmakeangry15.png" style="width:100%"><br>
+<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103808/87164302/dontmakeangry16.png" style="width:100%"><br>
+<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103814/87164303/dontmakeangry17.png" style="width:100%"><br>
+<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103819/87164304/dontmakeangry18.png" style="width:100%"><br>
+<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103826/87164305/dontmakeangry19.png" style="width:100%"><br>
+<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104418/87164306/dontmakeangry21.png" style="width:100%"><br>
+<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104430/87164307/dontmakeangry20.png" style="width:100%"><br>
+<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104441/87164308/dontmakeangry22.png" style="width:100%"><br>
+<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">21 Memes Dug Out of the Dank Drain</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">21 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163075.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163078.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163087.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163091.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163092.png" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">25 Dark Facts to Frighten Your Friends</a><br>
+## <a href="#linky13" id="linky12">25 Dark Facts to Frighten Your Friends</a><br>
 
 <span style="font-size:4em">1. The United States Government has a plan for collecting taxes after a nuclear explosion!
 Tbh, If a taxman came to my house after a nuke went off, Id probably just eat him. -u/OccultOddBall
@@ -659,57 +567,203 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">25. If your body gets severely low on vitamin C, your old scars will open back up, even surgical scars. Its because even though they seem dormant and healed they are actually constantly regenerating, which requires vitamin C. -u/Foreignfig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164334.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">28 Dank Memes to Improve Humor Circulation</a><br>
+## <a href="#linky14" id="linky13">22 People You Should Not Make Angry</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103617/87164287/dontmakeangry2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103628/87164288/dontmakeangry3.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103639/87164289/dontmakeangry1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103651/87164290/dontmakeangry4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103702/87164291/dontmakeangry6.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103711/87164292/dontmakeangry5.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103714/87164293/dontmakeangry7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103722/87164294/dontmakeangry8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103727/87164295/dontmakeangry9.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103739/87164297/dontmakeangry11.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103745/87164298/dontmakeangry12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103751/87164299/dontmakeangry13.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103734/87164296/dontmakeangry10.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103758/87164300/dontmakeangry14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103803/87164301/dontmakeangry15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103808/87164302/dontmakeangry16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103814/87164303/dontmakeangry17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103819/87164304/dontmakeangry18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103826/87164305/dontmakeangry19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104418/87164306/dontmakeangry21.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104430/87164307/dontmakeangry20.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104441/87164308/dontmakeangry22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">17 Facts That Are Hard To Believe</a><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The Australian Funnel Web Spider is often regarded as the world’s deadliest and hasn’t had a confirmed kill in over 40 years since the antivenom was created.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “There is enough water in Lake Superior to cover north and South America in water one foot deep.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Dragonflies accelerate at up to 4G and corner at up to 9G.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “1/6 of the world’s living languages are only spoken in New Guinea.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa (before he became President, of course).”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket…he won the lottery again on camera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161147.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Tarantulas keep tiny frogs as pets.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didn’t wear a mask. Instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers ‘don’t worry, I have a face, it’s just invisible.’ The only thing he did when he was arrested was sigh dejectedly and say ‘but I wore the juice!’ His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that they’re smarter than everyone else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Ciabatta bread was invented in 1982. It’s advertised and perceived as this, traditional, rustic Italian bread that peasants must have enjoyed, but nope–created in the 1980s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Tsutomo Yamaguchi was in Hiroshima on a business trip and on the day he was supposed to leave, the atomic bomb dropped. He survived with minor injuries and returned to his home in Nagasaki where he went to work 3 days later. As he was describing his experience to his supervisor, the second bomb was dropped and he survived without any injuries. He ended up living into his 90s.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “A moose can dive underwater down to nearly twenty feet in search of food.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “Dinosaurs are older than grass. Every artist rendition you’ve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161154.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and we’re like, yep totally believable, because they’re clouds, duh.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161156.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">15 Facts about Celebrities that Might Surprise You</a><br>
+
+<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">21 Memes Dug Out of the Dank Drain</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">20 Dudes Who Took Massive L’s</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
 
