@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/11/2022-00:11:31
+Last updated: 05/11/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">25 Dark Facts to Frighten Your Friends</a><br>
 
@@ -151,51 +151,89 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163092.png" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">21 Memes Dug Out of the Dank Drain</a><br>
+## <a href="#linky5" id="linky4">24 Senior Pranks That Went Down in History</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. They made a mockery of the school, LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The seniors who filled the coachs office with toys from kindergarten and a bunch of balloons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
+<span style="font-size:4em">3. These geniuses who put their school up for sale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
+<span style="font-size:4em">4. And these kids who put a bounce house on top of their school without getting caught.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Thats a wrap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. This was so well done, parents and staff initially thought a car really was crashed into the school. A convincing black tarp, a wrecked car, and some bricks. Even the cops were convinced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And this is absolutely the best senior prank ever. After four years of being annoyed by their head mistress, the students hired a mariachi band to follow her around for an entire day annoying and embarrassing her. WELL PLAYED (literally.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Trashing the headmasters office is always up on the list of pranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Filling the hallway with balloons is a solid option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cups, cups everywhere. This tedious prank was perfectly executed but who has time for it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Well played!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You always want your teachers to remember you, so cover their walls (floors, ceiling, desks, oh just cover it all) in your face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
+<span style="font-size:4em">13. These seniors convinced the faculty to allow them to dump water on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163313.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
+<span style="font-size:4em">14. More cups in the hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. And these masterminds who moved cars into the building over night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Yarn, miles and miles of yarn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
+<span style="font-size:4em">17. Changing the signs is an easy, fast way to grab some attention.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163318.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
+<span style="font-size:4em">18. And wrapping the entire classroom in foil covered in PAM cooking spray for optimal sliding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163319.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Tossing papers off the top floor makes an epic impact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Harry Potter and the Graduating Seniors Prank.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Oh no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163323.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
+<span style="font-size:4em">22. Moving the principals car into the school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Lets make a little noise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">15 Facts about Celebrities that Might Surprise You</a><br>
+
+<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161447.jpg" style="width:100%"><br>
 
@@ -247,7 +285,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161471.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">17 Facts That Are Hard To Believe</a><br>
+## <a href="#linky8" id="linky7">17 Facts That Are Hard To Believe</a><br>
 
 <span style="font-size:4em">1. “The Australian Funnel Web Spider is often regarded as the world’s deadliest and hasn’t had a confirmed kill in over 40 years since the antivenom was created.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161143.jpg" style="width:100%"><br>
 
@@ -282,38 +320,6 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 <span style="font-size:4em">16. “The Loudest Sound In Recorded History Was The Krakatoa Volcanic Eruption Of 1883. It ruptured the eardrums of people more than 40 miles from the epicenter, created a sound wave that circled the globe seven times, and could be heard all the way in New York City, a short 10,000 miles away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161155.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">17. “Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and we’re like, yep totally believable, because they’re clouds, duh.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161156.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">15 Facts about Celebrities that Might Surprise You</a><br>
-
-<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">20 Entitled People with No Grasp on Reality</a><br>
 
@@ -385,79 +391,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025238/87163554/amy-schumer2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093254/87164208/amy-schumer-jokes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025235/87163553/amy-schumer4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093245/87164207/amy-schumer-jokes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025226/87163552/amy-schumer3.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093234/87164206/amy-schumer-jokes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025223/87163551/amy-schumer5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/032542/87163555/any-add.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093223/87164205/amy-schumer-jokes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025215/87163550/amy-schumer1.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">24 Senior Pranks That Went Down in History</a><br>
-
-<span style="font-size:4em">1. They made a mockery of the school, LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The seniors who filled the coachs office with toys from kindergarten and a bunch of balloons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. These geniuses who put their school up for sale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. And these kids who put a bounce house on top of their school without getting caught.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Thats a wrap!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This was so well done, parents and staff initially thought a car really was crashed into the school. A convincing black tarp, a wrecked car, and some bricks. Even the cops were convinced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. And this is absolutely the best senior prank ever. After four years of being annoyed by their head mistress, the students hired a mariachi band to follow her around for an entire day annoying and embarrassing her. WELL PLAYED (literally.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Trashing the headmasters office is always up on the list of pranks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Filling the hallway with balloons is a solid option.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cups, cups everywhere. This tedious prank was perfectly executed but who has time for it?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Well played!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You always want your teachers to remember you, so cover their walls (floors, ceiling, desks, oh just cover it all) in your face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. These seniors convinced the faculty to allow them to dump water on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. More cups in the hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. And these masterminds who moved cars into the building over night.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Yarn, miles and miles of yarn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Changing the signs is an easy, fast way to grab some attention.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. And wrapping the entire classroom in foil covered in PAM cooking spray for optimal sliding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Tossing papers off the top floor makes an epic impact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Harry Potter and the Graduating Seniors Prank.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Oh no.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Moving the principals car into the school.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Lets make a little noise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
+## <a href="#linky11" id="linky10">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164018.jpg" style="width:100%"><br>
 
@@ -547,49 +481,51 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125816/87164380/87163721.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Dudes Who Took Massive L’s</a><br>
+## <a href="#linky12" id="linky11">21 Memes Dug Out of the Dank Drain</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">22 People You Should Not Make Angry</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">22 People You Should Not Make Angry</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103617/87164287/dontmakeangry2.png" style="width:100%"><br>
 
@@ -635,7 +571,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104441/87164308/dontmakeangry22.png" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">16 People Who Had Wholesome Celebrity Encounters</a><br>
+## <a href="#linky14" id="linky13">16 People Who Had Wholesome Celebrity Encounters</a><br>
 
 <span style="font-size:4em">1. While I was working at a mall in Jersey, The Rock was there for a signing, and he was so sweet and kind. Smelled amazing and spoke to everyone there, bought us all lemonade and cinnabons with extra frosting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164273.jpg" style="width:100%"><br>
 
@@ -668,4 +604,68 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 <span style="font-size:4em">15. The nicest celeb I ever met was Method Man. He was at a bar crawl, and he wished me a happy birthday and also gave a shout-out to himself and Ms. Badu because we all have birthdays back to back in March.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164281.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">20 Dudes Who Took Massive L’s</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025238/87163554/amy-schumer2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093254/87164208/amy-schumer-jokes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025235/87163553/amy-schumer4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093245/87164207/amy-schumer-jokes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025226/87163552/amy-schumer3.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093234/87164206/amy-schumer-jokes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025223/87163551/amy-schumer5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/032542/87163555/any-add.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093223/87164205/amy-schumer-jokes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025215/87163550/amy-schumer1.jpg" style="width:100%"><br>
 
