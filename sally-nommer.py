@@ -61,10 +61,10 @@ class sallySpider(scrapy.Spider):
 					'category' : category,
 					'card' : card}
 			
-			filename = header.replace(" ", "-").replace("'", "").replace('!', '').replace('(', '').replace(')', '').replace('&', '') # Format header into lowercase, dash seperated for file naming
-			filename = filename.replace('the', '').replace('easy', '').replace('+', '').replace('favorite', '').replace('my', '').replace('quick', '')
-			filename = filename.replace(',', '').replace(':', '').replace('---', '').replace('--', '-').lower()
-			nestedFolder = f'.\\{self.outputFolder}\\{category}\\{filename}\\' # Nest a folder named 'Recipe' within folder name of 'Category'
+			header = header.replace(" ", "-").replace("'", "").replace('!', '').replace('(R)', '').replace('(', '').replace(')', '') # Format header into lowercase, dash seperated for file naming
+			filename = header.replace('&', '').replace('+', '').replace(',', '').replace(':', '').replace('---', '').replace('--', '-')
+			filename = filename.lower()
+			nestedFolder = f'.\\{self.outputFolder}\\{filename}\\' # Nest a folder named 'Recipe' within folder name of 'Category'
 			
 			if not os.path.exists(nestedFolder): # If \Category\Recipe folder doesn't exist...
 				os.makedirs(nestedFolder) # make it
