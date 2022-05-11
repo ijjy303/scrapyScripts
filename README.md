@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/10/2022-18:11:31
+Last updated: 05/10/2022-19:11:31
 <br>
 ## <a href="#linky2" id="linky1">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
 
@@ -91,99 +91,7 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125816/87164380/87163721.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">21 Memes Dug Out of the Dank Drain</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">23 Comments That Hit the Nail on the Head</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161883.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
+## <a href="#linky3" id="linky2">25 Dank Memes We Found Stashed Under the Floorboards</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161447.jpg" style="width:100%"><br>
 
@@ -235,39 +143,7 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87161471.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">15 Facts about Celebrities that Might Surprise You</a><br>
-
-<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">27 Pics That Will Make You Hold Up A Minute</a><br>
+## <a href="#linky4" id="linky3">27 Pics That Will Make You Hold Up A Minute</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163390.jpg" style="width:100%"><br>
 
@@ -319,7 +195,49 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163391.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">24 Senior Pranks That Went Down in History</a><br>
+## <a href="#linky5" id="linky4">21 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163075.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163078.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163087.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163091.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163092.png" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">24 Senior Pranks That Went Down in History</a><br>
 
 <span style="font-size:4em">1. They made a mockery of the school, LOL.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163315.jpg" style="width:100%"><br>
 
@@ -369,6 +287,98 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">24. Just make sure this isnt the main exit, no one wants to get stuck at school after the last bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87163326.jpg" style="width:100%"><br>
 
+## <a href="#linky7" id="linky6">23 Comments That Hit the Nail on the Head</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161877.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161878.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161881.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161883.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">21 Memes Dug Out of the Dank Drain</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162675.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162677.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162686.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162687.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162690.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162691.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87162694.jpg" style="width:100%"><br>
+
 ## <a href="#linky9" id="linky8">17 Facts That Are Hard To Believe</a><br>
 
 <span style="font-size:4em">1. “The Australian Funnel Web Spider is often regarded as the world’s deadliest and hasn’t had a confirmed kill in over 40 years since the antivenom was created.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161143.jpg" style="width:100%"><br>
@@ -405,91 +415,123 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">17. “Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and we’re like, yep totally believable, because they’re clouds, duh.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87161156.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">20 Dudes Who Took Massive L’s</a><br>
+## <a href="#linky10" id="linky9">13 People Getting Called Out for Lying on the Internet</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162834.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162831.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162833.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162839.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162829.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162835.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162836.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162830.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162837.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162838.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162840.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162841.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">16 People Who Had Wholesome Celebrity Encounters</a><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. While I was working at a mall in Jersey, The Rock was there for a signing, and he was so sweet and kind. Smelled amazing and spoke to everyone there, bought us all lemonade and cinnabons with extra frosting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. McCartney in NYC. All I can get out is, “Thank You So Much.” He mimicked me by saying, “You’re So Welcome” with a big grin. I’ll never forget it. You have much lesser names to be snobby and couldn’t care less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I worked at a trendy spot in NYC, and we got our fair share of celebrities. I was pleasantly surprised by how nice many of them were, but the best was Paul Rudd. He even stuck around and had a drink with staff members. Absolutely delightful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Cousin and I saw him at the hoagie shop. Stood out because of his height and his very nice leather jacket. My cousin and I were awestruck and the person he was with noticed us, chuckled, tapped Bernie Mac who then turned around and said, “What do you all want? It’s on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The man literally got in my mom’s minivan and asked to take a picture with me because I was being a lame teenager and didn’t want to get out after my mom stopped in the middle of the street to ask him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Friend’s dad met a “very nice man” at a farm stand in 2011, couldn’t figure out why the guy looked familiar, so he asked him. Guy laughed, asked if he had kids, and when the friend’s dad said yes, the nice guy said “Let’s take a pic and show your kids later, they’ll know.” It was Hugh Jackman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164271.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">21 Fresh Memes of the Dankest Kind</a><br>
+<span style="font-size:4em">7. The two times I met him and got to talk to him was so awesome. Told him I was an original kb24 member, and he stopped, and we talked a bit, signed two pairs of my Kobe’s. I can say it’s a great memory I will never forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163072.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I used to work at a sporting goods store, and I was sweeping up before closing, Monique walked in and told me to stop sweeping. Then went off on my manager and said, “You got this beautiful black brother in here sweeping floors?!” She even gave me $100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163073.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Leonardo DiCaprio at Cannes in 2007. Took several pics with a very nervous fan until she was satisfied. On his way to his seat, I extended my hand for a shake, but his bodyguard pushed my hand away. He reached over him and shook my hand anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163074.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I met her at a grocery store. She talked to me for 20 minutes and even talked to my little sister on the phone right there when I asked her. And my sister screamed into the phone like a crazed fan. Ms. Watley is the most gracious celeb I’ve ever met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163075.png" style="width:100%"><br>
+<span style="font-size:4em">11. After a show in Atlanta. At about 1 am, he took a group shot with all of us and then said he would do individual selfies. My phone was dead, so I thought I was going to miss out. He asked to use another friend’s phone, so I could still get a picture with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163076.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Hands down, the sweetest and nicest smelling man, did an impromptu signing at his brother’s restaurant and stayed extra late to get everyone their photos and autographs. Not gonna lie, I may have been the only one to ask for a selfie at the time, love him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163077.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. She told me I was beautiful and was easy to talk to. I was shocked when I got a kiss on the cheek so soon after meeting her. For a model so successful and stunning, it was nice to feel I wasn’t an ugly peasant in her presence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163078.png" style="width:100%"><br>
+<span style="font-size:4em">14. Keenan Thompson was at the comedy club auditioning people, and he allowed people to come to meet him, and we talked, and I told him how much my mother loved him, and he said let’s FaceTime her right now, then had a whole conversation with my mom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163080.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The nicest celeb I ever met was Method Man. He was at a bar crawl, and he wished me a happy birthday and also gave a shout-out to himself and Ms. Badu because we all have birthdays back to back in March.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163081.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163082.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">15 Facts about Celebrities that Might Surprise You</a><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163083.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Keanu Reeves was asked by his agents to change his name to Chuck Spadina or Templeton Paige Taylor.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163084.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Jennifer Aniston turned down being a cast member on Saturday Night Live before even shooting the Friends pilot episode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163085.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Hugh Jackman used to teach P.E.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163086.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Helen Mirren has a crush on Fast and Furious star Vin Diesel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163087.png" style="width:100%"><br>
+<span style="font-size:4em">5. Ryan Gosling could have been a member of the Backstreet Boys, but he thought the band was going to be unsuccessful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163088.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Beyoncé has a species of insects named after her called ’’Scaptia beyonceae.’’</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163089.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Ashton Kutcher’s actual first name is Christopher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163090.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Madonna worked at a donut place for one week before being fired because she kept messing with the jelly machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163091.png" style="width:100%"><br>
+<span style="font-size:4em">9. Matthew McConaughey has a phobia of revolving doors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163092.png" style="width:100%"><br>
+<span style="font-size:4em">10. Alicia Silverstone fed her son like a mama bird when he was a baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162475.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">20 Entitled People with No Grasp on Reality</a><br>
+<span style="font-size:4em">11. Bono once bought a plane ticket just for his hat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lady Gaga owns a ghost-detecting machine.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162476.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Steve Buscemi used to be a firefighter before his acting career took off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Nicolas Cage once outbid Leonardo DiCaprio for a dinosaur skull.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162474.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Jada Pinkett Smith auditioned for the role of Will Smith’s girlfriend on Fresh Prince of Bel-Air but didn’t get the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162463.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025238/87163554/amy-schumer2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093254/87164208/amy-schumer-jokes2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025235/87163553/amy-schumer4.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093245/87164207/amy-schumer-jokes1.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025226/87163552/amy-schumer3.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093234/87164206/amy-schumer-jokes3.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025223/87163551/amy-schumer5.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/032542/87163555/any-add.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093223/87164205/amy-schumer-jokes4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025215/87163550/amy-schumer1.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">20 Entitled People with No Grasp on Reality</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055011/87163659/aunt.png" style="width:100%"><br>
 
@@ -531,87 +573,45 @@ Last updated: 05/10/2022-18:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055205/87163678/ugly.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">16 People Who Had Wholesome Celebrity Encounters</a><br>
+## <a href="#linky15" id="linky14">20 Dudes Who Took Massive L’s</a><br>
 
-<span style="font-size:4em">1. While I was working at a mall in Jersey, The Rock was there for a signing, and he was so sweet and kind. Smelled amazing and spoke to everyone there, bought us all lemonade and cinnabons with extra frosting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164273.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. McCartney in NYC. All I can get out is, “Thank You So Much.” He mimicked me by saying, “You’re So Welcome” with a big grin. I’ll never forget it. You have much lesser names to be snobby and couldn’t care less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164267.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I worked at a trendy spot in NYC, and we got our fair share of celebrities. I was pleasantly surprised by how nice many of them were, but the best was Paul Rudd. He even stuck around and had a drink with staff members. Absolutely delightful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164268.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cousin and I saw him at the hoagie shop. Stood out because of his height and his very nice leather jacket. My cousin and I were awestruck and the person he was with noticed us, chuckled, tapped Bernie Mac who then turned around and said, “What do you all want? It’s on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164269.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The man literally got in my mom’s minivan and asked to take a picture with me because I was being a lame teenager and didn’t want to get out after my mom stopped in the middle of the street to ask him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164270.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Friend’s dad met a “very nice man” at a farm stand in 2011, couldn’t figure out why the guy looked familiar, so he asked him. Guy laughed, asked if he had kids, and when the friend’s dad said yes, the nice guy said “Let’s take a pic and show your kids later, they’ll know.” It was Hugh Jackman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164271.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The two times I met him and got to talk to him was so awesome. Told him I was an original kb24 member, and he stopped, and we talked a bit, signed two pairs of my Kobe’s. I can say it’s a great memory I will never forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164272.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I used to work at a sporting goods store, and I was sweeping up before closing, Monique walked in and told me to stop sweeping. Then went off on my manager and said, “You got this beautiful black brother in here sweeping floors?!” She even gave me $100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164274.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Leonardo DiCaprio at Cannes in 2007. Took several pics with a very nervous fan until she was satisfied. On his way to his seat, I extended my hand for a shake, but his bodyguard pushed my hand away. He reached over him and shook my hand anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164275.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I met her at a grocery store. She talked to me for 20 minutes and even talked to my little sister on the phone right there when I asked her. And my sister screamed into the phone like a crazed fan. Ms. Watley is the most gracious celeb I’ve ever met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164276.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. After a show in Atlanta. At about 1 am, he took a group shot with all of us and then said he would do individual selfies. My phone was dead, so I thought I was going to miss out. He asked to use another friend’s phone, so I could still get a picture with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164277.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Hands down, the sweetest and nicest smelling man, did an impromptu signing at his brother’s restaurant and stayed extra late to get everyone their photos and autographs. Not gonna lie, I may have been the only one to ask for a selfie at the time, love him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164278.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. She told me I was beautiful and was easy to talk to. I was shocked when I got a kiss on the cheek so soon after meeting her. For a model so successful and stunning, it was nice to feel I wasn’t an ugly peasant in her presence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164279.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Keenan Thompson was at the comedy club auditioning people, and he allowed people to come to meet him, and we talked, and I told him how much my mother loved him, and he said let’s FaceTime her right now, then had a whole conversation with my mom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164280.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The nicest celeb I ever met was Method Man. He was at a bar crawl, and he wished me a happy birthday and also gave a shout-out to himself and Ms. Badu because we all have birthdays back to back in March.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164281.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">13 People Getting Called Out for Lying on the Internet</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162834.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162831.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162833.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162839.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162829.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162835.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162836.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162830.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162837.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162838.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162840.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162841.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025238/87163554/amy-schumer2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093254/87164208/amy-schumer-jokes2.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025235/87163553/amy-schumer4.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093245/87164207/amy-schumer-jokes1.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025226/87163552/amy-schumer3.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093234/87164206/amy-schumer-jokes3.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025223/87163551/amy-schumer5.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/032542/87163555/any-add.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/093223/87164205/amy-schumer-jokes4.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025215/87163550/amy-schumer1.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
 
