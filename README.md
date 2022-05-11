@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/11/2022-15:11:31
+Last updated: 05/11/2022-16:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Unexpected Details from Industry Insiders</a><br>
 
@@ -35,133 +35,103 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">15. “I worked at a movie theater… every theater has mice. Increased chances to avoid them if you do not sit near the screen or anywhere with curtains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164100.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Entitled People with No Grasp on Reality</a><br>
+## <a href="#linky3" id="linky2">20 Dudes Who Took Massive L’s</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055011/87163659/aunt.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055022/87163660/bill.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055033/87163661/cash.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055041/87163662/baby.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055041/87163663/bathe.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055044/87163664/dog.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055149/87163675/teeth.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055052/87163665/fast.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055055/87163666/mask.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055107/87163668/obey.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055114/87163669/photoshop.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055119/87163670/fire.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055126/87163671/sea.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055130/87163672/suing.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055103/87163667/nanny.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055138/87163673/sun.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055142/87163674/survivor.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055153/87163676/treehouse.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055200/87163677/wedding.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/055205/87163678/ugly.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Dark Facts to Frighten Your Friends</a><br>
+## <a href="#linky4" id="linky3">28 Dank Memes to Improve Humor Circulation</a><br>
 
-<span style="font-size:4em">1. The United States Government has a plan for collecting taxes after a nuclear explosion!
-Tbh, If a taxman came to my house after a nuke went off, Id probably just eat him. -u/OccultOddBall
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164310.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I was sat down by a supervisor because I could tell them that the burnt plastic smell in the bathroom meant someone did heroin in there and we need to watch out for needles in the trash. Id recently transferred there from a store where it was at least a weekly problem for a while. -u/Hydrosimian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164311.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Platypus doesn’t have nipples, they just kinda sweat milk. -u/Danjurnoodl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164312.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. If you don’t want a huge mess, freeze the body first then cut it up. -u/Temporary_Cow_8486</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164313.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Marie Curies body will continue to emit radiation for another millennium and a half.
-You have to sign a liability waiver if you want to see anything she owned because she was so radioactive. -u/theletterhrn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164314.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A body falling from 14 stories high, onto the pavement, will have cracks in the skin kind of like stomping on an orange. -u/FRIENDLY_CANADIAN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164315.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If you need to dispose of a body in water, you need to cut open their abdomen first. In the bloating portion of decomposition, gasses will build up in the chest cavity/abdomen and cause the corpse to float back up to the surface or at least try to. -u/PrimadonnaGorl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164328.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. In high school, in a science class, the teacher asked the class if anyone knew how many grams were in a pound. A stoner kid in the back immediately said 454. The teacher asked him how he knew that. Uh, I just do. -u/MrGreg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164316.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Blue crabs will eat anything within a few days and will mutilate bones beyond recognition -u/AmberSoul99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164317.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Babies bounce. Their bones are soft enough that instead of thudding, they bounce a little. -u/elly996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164318.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Pepsi-Cola company once responded to a man who claimed to have found a mouse in his can of Mountain Dew, stating that due to the high concentration of citric acid, any biological remains left in a can from the canning to consumption time frame would be dissolved before opening. -u/IWasToldYouHadPie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164319.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The smell of cutting into a human skull is eerily similar to that of opening a fresh bag of Fritos. You either learn to hate Fritos or get hungry around the smell of skull dust. -u/okifur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164320.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
 
-<span style="font-size:4em">13. Bears will perform oral sex on their partner. -u/Rooster0112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164321.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Kids under 5 years will often try to hide from a fire, instead of running. Firefighters find the bodies. -u/Corgi_with_stilts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164322.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. McDonalds stated that it costs more to make worm burgers than it does to make them out of beef. (Actually said by McDonalds to refute the claim they were padding out beef burgers with worm meat.) -u/ichankal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164323.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. If your pee stinks like movie theater popcorn for longer than a week you should get checked for diabetes. -u/Riker3946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164324.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Tapirs have prehensile penises. Spotted hyenas have a birth canal that passes through their pseudo-penis clitoris, so pups very well may need to literally claw their way into the world, or suffocate trying. -u/Mandalorian_23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164325.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. An ear infection left untreated can grow and sit for years on end, slowly eating away at your ear canal. If untreated long enough the erosion causes dead skin cells in your ear unable to escape so they build up into a benign cyst called a cholesteatoma. Left untreated this can grow and affect balance, facial movement and eventually lead to deathly infection. -u/cohen63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164326.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The organ that sells for the most on the dark Web is the small intestine at about 800,000 USD. -u/toastedboi765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164327.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. One quarter of all mammal species are bats. -u/-mushroom-cat-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164329.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Penguins regularly do acts of necrophilia and prostitute themselves for pretty rocks. Sometimes they lie, too, and just steal the rocks. -u/PandaDragonTrain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164330.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. A spiders legs curl up when they die because they lose all blood pressure and their legs can only extend through hydraulic force Not an entomologist, just an arachnophobe. -u/RipAffectionate9958</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164331.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. If you slap yourself in the nipple it will become erect in 8 seconds or less. Commence. -u/ummcheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164332.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Your face is a crumple zone. If you fall forward, even really hard, you can avoid a concussion and brain damage though you may have 20 bone breaks in your face and skull. -u/expat-brit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164333.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. If your body gets severely low on vitamin C, your old scars will open back up, even surgical scars. Its because even though they seem dormant and healed they are actually constantly regenerating, which requires vitamin C. -u/Foreignfig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164334.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">13 People Getting Called Out for Lying on the Internet</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162834.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162831.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162833.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162839.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162829.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162835.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162836.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162830.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162837.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162838.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162840.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162841.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
+## <a href="#linky5" id="linky4">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
 
 <span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
 
@@ -203,41 +173,97 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">16 People Who Had Wholesome Celebrity Encounters</a><br>
+## <a href="#linky6" id="linky5">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
 
-<span style="font-size:4em">1. While I was working at a mall in Jersey, The Rock was there for a signing, and he was so sweet and kind. Smelled amazing and spoke to everyone there, bought us all lemonade and cinnabons with extra frosting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164273.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. McCartney in NYC. All I can get out is, “Thank You So Much.” He mimicked me by saying, “You’re So Welcome” with a big grin. I’ll never forget it. You have much lesser names to be snobby and couldn’t care less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164267.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I worked at a trendy spot in NYC, and we got our fair share of celebrities. I was pleasantly surprised by how nice many of them were, but the best was Paul Rudd. He even stuck around and had a drink with staff members. Absolutely delightful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164268.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164000.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Cousin and I saw him at the hoagie shop. Stood out because of his height and his very nice leather jacket. My cousin and I were awestruck and the person he was with noticed us, chuckled, tapped Bernie Mac who then turned around and said, “What do you all want? It’s on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164269.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. The man literally got in my mom’s minivan and asked to take a picture with me because I was being a lame teenager and didn’t want to get out after my mom stopped in the middle of the street to ask him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164270.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125656/87164369/87163693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Friend’s dad met a “very nice man” at a farm stand in 2011, couldn’t figure out why the guy looked familiar, so he asked him. Guy laughed, asked if he had kids, and when the friend’s dad said yes, the nice guy said “Let’s take a pic and show your kids later, they’ll know.” It was Hugh Jackman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164271.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The two times I met him and got to talk to him was so awesome. Told him I was an original kb24 member, and he stopped, and we talked a bit, signed two pairs of my Kobe’s. I can say it’s a great memory I will never forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164272.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125805/87164378/87163718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I used to work at a sporting goods store, and I was sweeping up before closing, Monique walked in and told me to stop sweeping. Then went off on my manager and said, “You got this beautiful black brother in here sweeping floors?!” She even gave me $100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164274.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125643/87164366/87163686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Leonardo DiCaprio at Cannes in 2007. Took several pics with a very nervous fan until she was satisfied. On his way to his seat, I extended my hand for a shake, but his bodyguard pushed my hand away. He reached over him and shook my hand anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164275.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I met her at a grocery store. She talked to me for 20 minutes and even talked to my little sister on the phone right there when I asked her. And my sister screamed into the phone like a crazed fan. Ms. Watley is the most gracious celeb I’ve ever met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164276.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. After a show in Atlanta. At about 1 am, he took a group shot with all of us and then said he would do individual selfies. My phone was dead, so I thought I was going to miss out. He asked to use another friend’s phone, so I could still get a picture with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164277.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Hands down, the sweetest and nicest smelling man, did an impromptu signing at his brother’s restaurant and stayed extra late to get everyone their photos and autographs. Not gonna lie, I may have been the only one to ask for a selfie at the time, love him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164278.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. She told me I was beautiful and was easy to talk to. I was shocked when I got a kiss on the cheek so soon after meeting her. For a model so successful and stunning, it was nice to feel I wasn’t an ugly peasant in her presence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164279.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Keenan Thompson was at the comedy club auditioning people, and he allowed people to come to meet him, and we talked, and I told him how much my mother loved him, and he said let’s FaceTime her right now, then had a whole conversation with my mom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164280.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The nicest celeb I ever met was Method Man. He was at a bar crawl, and he wished me a happy birthday and also gave a shout-out to himself and Ms. Badu because we all have birthdays back to back in March.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164281.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163989.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">26 Painfully Funny Memes That Hurt So Good</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125644/87164367/87163691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164007.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125707/87164370/87163694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125632/87164364/87163682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125633/87164365/87163685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125654/87164368/87163680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125719/87164371/87163697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125730/87164372/87163704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125738/87164373/87163695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125741/87164374/87163708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125749/87164375/87163711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125753/87164376/87163713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125800/87164377/87163716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125811/87164379/87163719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163976.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125816/87164380/87163721.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">26 Painfully Funny Memes That Hurt So Good</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
 
@@ -291,7 +317,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 Vintage Photos of Old School Celebrities</a><br>
+## <a href="#linky8" id="linky7">30 Vintage Photos of Old School Celebrities</a><br>
 
 <span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
 
@@ -353,7 +379,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
+## <a href="#linky9" id="linky8">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
 
@@ -405,7 +431,7 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
+## <a href="#linky10" id="linky9">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033551/87164551/87113262.jpg" style="width:100%"><br>
 
@@ -537,177 +563,53 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 
 <span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033754/87164572/87158769.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">31 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky11" id="linky10">22 People You Should Not Make Angry</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164682.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103617/87164287/dontmakeangry2.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164683.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103628/87164288/dontmakeangry3.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164684.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103639/87164289/dontmakeangry1.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164685.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103651/87164290/dontmakeangry4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164686.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103702/87164291/dontmakeangry6.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164687.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103711/87164292/dontmakeangry5.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164688.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103714/87164293/dontmakeangry7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164689.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103722/87164294/dontmakeangry8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164690.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103727/87164295/dontmakeangry9.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164691.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103739/87164297/dontmakeangry11.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164692.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103745/87164298/dontmakeangry12.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164693.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103751/87164299/dontmakeangry13.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164694.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103734/87164296/dontmakeangry10.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164695.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103758/87164300/dontmakeangry14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164696.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103803/87164301/dontmakeangry15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164697.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103808/87164302/dontmakeangry16.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164698.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103814/87164303/dontmakeangry17.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164699.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103819/87164304/dontmakeangry18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164700.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103826/87164305/dontmakeangry19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164701.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104418/87164306/dontmakeangry21.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164702.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104430/87164307/dontmakeangry20.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164703.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104441/87164308/dontmakeangry22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164706.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164708.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164709.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">20 Ways (Crazy) People Got Revenge</a><br>
-
-<span style="font-size:4em">1. I shitted the bed and blamed the dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Was bullied by a kid a lot in 6th grade. I met his older sister at a bar when I was 21 and slept with her.I didn’t rub it in his face since I never talked to him after 6th grade, but I’m sure he knows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I made an entire bar break out in a brawl because I ate a bag of chips. No joke.Three guys were verbally harassing me in a small-town dive bar. This woman comes in from a smoke and yells to the bartender “give me a bag of chips!” on her way to the bathroom.He sets them down at her seat next to me. I inhale these chips and carefully slide them near the guys when they aren’t looking.She comes out, sees the bag and starts getting in their faces. Her husband sees the commotion and gets involved and fists start flying.I ducked out as the husband entered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Hit a person with a cactus once…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Got my Christian school bully’s parents divorced.I forget what TGIF show I lifted the bit from but when I met the kids mom I said “then who was that lady your dad kissed?”.Which set off a chain reaction that eventually led to their divorce that very year.I was just trying to be a smart aleck but I got a natural 20 and shit just sorta happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Had a wet fart in bed and blamed the wife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163731.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. They usually do it to themselves from my experience I just sit back and watch the stupid and let them know I love this part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163732.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Eat a nature valley bar in their bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163733.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Old landlord wouldn’t give me back my deposit that I felt should have been given back. Went back in one last time, removed a wall light switch cover, broke a hole in the electrical box and poured a bag of sugar into the wall.Put the switch cover back on and left. They fought roaches and bugs for months.It’s the little things that help me get through life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163734.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. They were looking for something, and I knew where it was. So I moved it somewhere they’d never look lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I hit a bully on the head with a shovel on the beach after he threatened to beat me up.Next week (after going to the hospital) he wasn’t a bully but actually kind of nice towards me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163735.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Walking away and living rent-free in their head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. It’s not really revenge so much as karma, but my ex who cheated on me with another woman found out that she was lying to him about who she was…Apparently, she was married, had 3 kids, didn’t look like her photos, had a different job than what she said etc. basically had been catfishing him lolI didn’t have much empathy for him and I said “yeah it sucks being lied to and trusting someone to be who they claim to be, being lead on and have the values they claim to have etc”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I cut a piece of my cousins hair off while she was sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Found out my then boyfriend was cheating on me so I gave him a pregnancy scare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My ex got with my best friend, so I started talking to him again, getting with him, got to the point where we were close to getting into a relationship, then got with one of his friends</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I taught the dog to destroy my parent’s things when I was mad as a kid…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. my lil sister once got me trouble when we were little so I snuck bologna in her pillow and she slept on it for weeks until it molded</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Had a fight in school with a guy because im close friends with his girl. F--ked her on the weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163744.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Trashiest Wedding Stories Ever Told</a><br>
-
-<span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Groom beat the sh*t out of the father-in-law. Father in law went to bathroom and died. Groom shot himself in the parking lot. This was 25 years ago in Chicago. Crazy wedding. -u/pohuja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163750.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. The bride and her sisters did a strip tease/lap dance on the groom immediately following dinner. In front of his grandmother. -u/JohnaldL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Surely that video of the bride walking down the backyard aisle while dirty dancing to her own sh*tty recorded cover of Crazy Bitch has got to be up around here somewhere.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-https://youtu.be/fSkHMSKgIWs
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
--u/Crash4654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My own. In a Mississippi judges office with a bag of Cheetos on her desk. She wiped her hands on a napkin, grabbed a bible, and did her thing with orange crumbs on her lips. Her work heels were not on because she was in her office. It was extremely rushed. I understand that she was on her break but we didnt mind waiting. -u/Zezima-RS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Probably my dads 2nd marriage. Along the banks of a river with trailer homes in the background. Hes wearing a tuxedo T-shirt and rainbow mirror sunglasses. The ceremony took place at noon: hed been drinking since 5am. I had to walk one of the bridesmaids down a flight of steps as she was legally blind, and someone asked me if I was going to bang her. Sighs. -u/shibbster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Camo print wedding dress that was borderline see-through. Walked down the aisle to the Scooby-Doo theme. No, nobody knows why they chose that song, including the couple themselves. They divorced a few months later after they both stopped cleaning the house in an act of defiance against one another. -u/Much_Difference</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A wedding on the beach behind Hooters. The officiant stood next to a trash bin. As if it was planned, the trash collector pulled up during the vows. Did he wait to change the bag? Absolutely not. Children at the wedding swarmed the couple like flies around the trash can just after the kiss, stepping all over her dress. She bent over to adjust her sandal and a pack of Marlboro reds fell out of the bust along with her right breast. It felt like we were rubbernecking instead of witnessing a marriage. -u/Svetlana_of_Athens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I don’t even know where to begin...Ceremony was comprised of immediate family then followed by a reception with all guests in a relatively nice hotel banquet hall. An hour in at 7pm the open bar was completely closed down because MULTIPLE guests were throwing up in the bathroom sinks causing flooding.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The groom was so wasted even before the ceremony but was blackout by the time of the reception. During the first dance, he kept his hands in his cargo pant khakis the entire time and ate dinner sitting on the floor in a corner of the hall while the bride sat at the head table alone. About two hours in, the groom randomly left and slept at their house while the bride stayed in the newlywed suite by herself. They are now separated as you may have assumed by this point. -u/Rdab3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Waitress at a bogan wedding. The night ended with the chef and I rounding up the kids and barricading us all in the kitchen and locking the doors to prevent the melee of fighting adults outside from A) accessing MORE weapons (Some of them BYO’d knives) and B) hurting the kids. They ranged in age from toddlers to preteens. It was just the chef and me, 2 women and a whole bunch of screaming and frightened kids until the police came and carted everyone off to jail.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Wedding photographer showed up the next morning for the scheduled photoshoot. I had to tell him he could find the wedding party at the local jail. The chef and I are still friends, but we both quit that place shortly after that epic wedding. -u/a_nonny_mooze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was actually the bartender but it was a hoot. The wedding was outside and it stormed violently. Groom was hammered pre-wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women on the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out. -u/SnooHobbies7109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The bride made a speech thanking her in-laws for financial assistance for the event. Her mother was not thanked and she was furious. There was a long head table for the bridal party and parents. It was made out of small tables pushed together covered by one long tablecloth. The mother pulled a small table out of the arrangement, catching the table cloth, and nearly destroying the head table set up.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Now the bride got angry and there was much back and forth with various family members attempting to make peace. The mother refused to push back her table and began to invite others to sit with her, all people who were not meant to be seated at the front. The mother of the bride continued to sit there and talk sh*t about her daughter, the bride, to anyone who would listen. -u/lilyspads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Wedding was in a suburban driveway. The maid of honor stole the bouquet from someone’s garden and the best man proudly announced he had shoplifted the rings. The groom wore a button-down shirt that said ‘f*ck off’ in fancy lettering. The bride stopped in the middle of the vows to tell her mother to ‘get that f*cking kid out of here.’ It was her second kid by the previous bloke. -u/HopelessEmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There were no tables and chairs. Like none. They had an open bar but no f*cking chairs. Everyone had to put their drink on the ground and hold their plate to eat. It was f*cking crazy. Everyone just assumed that some sort of terrible thing happened where the tables and chair people didnt bring them but afterward I asked her (the bride) what happened and she just said: Oh we would have had to pay extra for that. -u/PM_MEE_PUSSY_PICS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">31 Fascinating Photos and Interesting Images</a><br>
+## <a href="#linky12" id="linky11">31 Fascinating Photos and Interesting Images</a><br>
 
 <span style="font-size:4em">1. This cool staircase that goes into the void.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011049/87164428/87158259.jpg" style="width:100%"><br>
 
@@ -771,137 +673,181 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">31. Local complications of intranasal cocaine abuse include chronic rhinitis, sinusitis, epistaxis, ossification or necrosis of the nasal septum, and in rare cases, palatal perforation. In this case, a 25-year-old man reported 5 years of nasal cocaine use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163545.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">44 Random Photos for a Smorgasbord of Visual Delights</a><br>
+## <a href="#linky13" id="linky12">Hilary Duff Strips Down For Women's Health Cover</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164018.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163977.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044653/87165221/hilary-duff-womens-health4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164000.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044943/87165224/duff5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163992.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044955/87165226/duff2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125656/87164369/87163693.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163975.jpg" style="width:100%"><br>
+## <a href="#linky14" id="linky13">31 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125805/87164378/87163718.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125643/87164366/87163686.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163982.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163979.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164685.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163981.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163983.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163984.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163986.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163987.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163989.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163990.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163991.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164693.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125644/87164367/87163691.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163993.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163994.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164001.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164002.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164003.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164699.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164007.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164009.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164701.png" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125707/87164370/87163694.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164011.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164013.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164704.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164014.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164706.png" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87164019.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125632/87164364/87163682.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164708.png" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125633/87164365/87163685.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164709.png" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125654/87164368/87163680.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164710.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125719/87164371/87163697.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164711.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125730/87164372/87163704.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125738/87164373/87163695.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">16 People Who Had Wholesome Celebrity Encounters</a><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125741/87164374/87163708.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. While I was working at a mall in Jersey, The Rock was there for a signing, and he was so sweet and kind. Smelled amazing and spoke to everyone there, bought us all lemonade and cinnabons with extra frosting.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125749/87164375/87163711.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. McCartney in NYC. All I can get out is, “Thank You So Much.” He mimicked me by saying, “You’re So Welcome” with a big grin. I’ll never forget it. You have much lesser names to be snobby and couldn’t care less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125753/87164376/87163713.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I worked at a trendy spot in NYC, and we got our fair share of celebrities. I was pleasantly surprised by how nice many of them were, but the best was Paul Rudd. He even stuck around and had a drink with staff members. Absolutely delightful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125800/87164377/87163716.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Cousin and I saw him at the hoagie shop. Stood out because of his height and his very nice leather jacket. My cousin and I were awestruck and the person he was with noticed us, chuckled, tapped Bernie Mac who then turned around and said, “What do you all want? It’s on me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125811/87164379/87163719.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The man literally got in my mom’s minivan and asked to take a picture with me because I was being a lame teenager and didn’t want to get out after my mom stopped in the middle of the street to ask him for a picture.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87163976.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Friend’s dad met a “very nice man” at a farm stand in 2011, couldn’t figure out why the guy looked familiar, so he asked him. Guy laughed, asked if he had kids, and when the friend’s dad said yes, the nice guy said “Let’s take a pic and show your kids later, they’ll know.” It was Hugh Jackman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/125816/87164380/87163721.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The two times I met him and got to talk to him was so awesome. Told him I was an original kb24 member, and he stopped, and we talked a bit, signed two pairs of my Kobe’s. I can say it’s a great memory I will never forget.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164272.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">20 Dudes Who Took Massive L’s</a><br>
+<span style="font-size:4em">8. I used to work at a sporting goods store, and I was sweeping up before closing, Monique walked in and told me to stop sweeping. Then went off on my manager and said, “You got this beautiful black brother in here sweeping floors?!” She even gave me $100.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122729/87164341/grandma.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Leonardo DiCaprio at Cannes in 2007. Took several pics with a very nervous fan until she was satisfied. On his way to his seat, I extended my hand for a shake, but his bodyguard pushed my hand away. He reached over him and shook my hand anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122740/87164342/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I met her at a grocery store. She talked to me for 20 minutes and even talked to my little sister on the phone right there when I asked her. And my sister screamed into the phone like a crazed fan. Ms. Watley is the most gracious celeb I’ve ever met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164343/funny.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. After a show in Atlanta. At about 1 am, he took a group shot with all of us and then said he would do individual selfies. My phone was dead, so I thought I was going to miss out. He asked to use another friend’s phone, so I could still get a picture with him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122748/87164344/cringe.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Hands down, the sweetest and nicest smelling man, did an impromptu signing at his brother’s restaurant and stayed extra late to get everyone their photos and autographs. Not gonna lie, I may have been the only one to ask for a selfie at the time, love him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122753/87164345/incredible.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. She told me I was beautiful and was easy to talk to. I was shocked when I got a kiss on the cheek so soon after meeting her. For a model so successful and stunning, it was nice to feel I wasn’t an ugly peasant in her presence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122800/87164346/kids.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Keenan Thompson was at the comedy club auditioning people, and he allowed people to come to meet him, and we talked, and I told him how much my mother loved him, and he said let’s FaceTime her right now, then had a whole conversation with my mom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122804/87164347/kylie.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The nicest celeb I ever met was Method Man. He was at a bar crawl, and he wished me a happy birthday and also gave a shout-out to himself and Ms. Badu because we all have birthdays back to back in March.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122811/87164348/like.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The model Aya Jones is the absolute sweetest! She’s always responding to fans and being kind. One time I asked for her skincare routine because she has the most beautiful skin and not only did she tell me which products she uses but also what they’re good for.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122815/87164349/mom.jpg" style="width:100%"><br>
+## <a href="#linky16" id="linky15">20 Ways (Crazy) People Got Revenge</a><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122821/87164350/lobster.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I shitted the bed and blamed the dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122826/87164351/number.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Was bullied by a kid a lot in 6th grade. I met his older sister at a bar when I was 21 and slept with her.I didn’t rub it in his face since I never talked to him after 6th grade, but I’m sure he knows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122833/87164352/ouch.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I made an entire bar break out in a brawl because I ate a bag of chips. No joke.Three guys were verbally harassing me in a small-town dive bar. This woman comes in from a smoke and yells to the bartender “give me a bag of chips!” on her way to the bathroom.He sets them down at her seat next to me. I inhale these chips and carefully slide them near the guys when they aren’t looking.She comes out, sees the bag and starts getting in their faces. Her husband sees the commotion and gets involved and fists start flying.I ducked out as the husband entered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122837/87164353/nut.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Hit a person with a cactus once…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122844/87164354/recjected.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Got my Christian school bully’s parents divorced.I forget what TGIF show I lifted the bit from but when I met the kids mom I said “then who was that lady your dad kissed?”.Which set off a chain reaction that eventually led to their divorce that very year.I was just trying to be a smart aleck but I got a natural 20 and shit just sorta happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122718/87164340/friend.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Had a wet fart in bed and blamed the wife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122847/87164355/puke.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. They usually do it to themselves from my experience I just sit back and watch the stupid and let them know I love this part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163732.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122856/87164356/sleep.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Eat a nature valley bar in their bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163733.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122859/87164357/shower.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Old landlord wouldn’t give me back my deposit that I felt should have been given back. Went back in one last time, removed a wall light switch cover, broke a hole in the electrical box and poured a bag of sugar into the wall.Put the switch cover back on and left. They fought roaches and bugs for months.It’s the little things that help me get through life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163734.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122908/87164358/step.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. They were looking for something, and I knew where it was. So I moved it somewhere they’d never look lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/122910/87164359/yes.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I hit a bully on the head with a shovel on the beach after he threatened to beat me up.Next week (after going to the hospital) he wasn’t a bully but actually kind of nice towards me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Walking away and living rent-free in their head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. It’s not really revenge so much as karma, but my ex who cheated on me with another woman found out that she was lying to him about who she was…Apparently, she was married, had 3 kids, didn’t look like her photos, had a different job than what she said etc. basically had been catfishing him lolI didn’t have much empathy for him and I said “yeah it sucks being lied to and trusting someone to be who they claim to be, being lead on and have the values they claim to have etc”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I cut a piece of my cousins hair off while she was sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Found out my then boyfriend was cheating on me so I gave him a pregnancy scare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My ex got with my best friend, so I started talking to him again, getting with him, got to the point where we were close to getting into a relationship, then got with one of his friends</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I taught the dog to destroy my parent’s things when I was mad as a kid…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. my lil sister once got me trouble when we were little so I snuck bologna in her pillow and she slept on it for weeks until it molded</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Had a fight in school with a guy because im close friends with his girl. F--ked her on the weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163744.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">13 People Getting Called Out for Lying on the Internet</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162834.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162831.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162833.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162839.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162829.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162835.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162836.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162830.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162837.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162838.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162840.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162841.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162842.png" style="width:100%"><br>
 
 ## <a href="#linky18" id="linky17">The Internet Can't Help But Make Fun of Amy Schumer</a><br>
 
@@ -925,103 +871,59 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/025215/87163550/amy-schumer1.jpg" style="width:100%"><br>
 
-## <a href="#linky19" id="linky18">22 People You Should Not Make Angry</a><br>
+## <a href="#linky19" id="linky18">25 Dark Facts to Frighten Your Friends</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103617/87164287/dontmakeangry2.png" style="width:100%"><br>
+<span style="font-size:4em">1. The United States Government has a plan for collecting taxes after a nuclear explosion!
+Tbh, If a taxman came to my house after a nuke went off, Id probably just eat him. -u/OccultOddBall
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103628/87164288/dontmakeangry3.png" style="width:100%"><br>
+<span style="font-size:4em">2. I was sat down by a supervisor because I could tell them that the burnt plastic smell in the bathroom meant someone did heroin in there and we need to watch out for needles in the trash. Id recently transferred there from a store where it was at least a weekly problem for a while. -u/Hydrosimian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103639/87164289/dontmakeangry1.png" style="width:100%"><br>
+<span style="font-size:4em">3. Platypus doesn’t have nipples, they just kinda sweat milk. -u/Danjurnoodl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103651/87164290/dontmakeangry4.png" style="width:100%"><br>
+<span style="font-size:4em">4. If you don’t want a huge mess, freeze the body first then cut it up. -u/Temporary_Cow_8486</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164313.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103702/87164291/dontmakeangry6.png" style="width:100%"><br>
+<span style="font-size:4em">5. Marie Curies body will continue to emit radiation for another millennium and a half.
+You have to sign a liability waiver if you want to see anything she owned because she was so radioactive. -u/theletterhrn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164314.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103711/87164292/dontmakeangry5.png" style="width:100%"><br>
+<span style="font-size:4em">6. A body falling from 14 stories high, onto the pavement, will have cracks in the skin kind of like stomping on an orange. -u/FRIENDLY_CANADIAN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164315.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103714/87164293/dontmakeangry7.png" style="width:100%"><br>
+<span style="font-size:4em">7. If you need to dispose of a body in water, you need to cut open their abdomen first. In the bloating portion of decomposition, gasses will build up in the chest cavity/abdomen and cause the corpse to float back up to the surface or at least try to. -u/PrimadonnaGorl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164328.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103722/87164294/dontmakeangry8.png" style="width:100%"><br>
+<span style="font-size:4em">8. In high school, in a science class, the teacher asked the class if anyone knew how many grams were in a pound. A stoner kid in the back immediately said 454. The teacher asked him how he knew that. Uh, I just do. -u/MrGreg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164316.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103727/87164295/dontmakeangry9.png" style="width:100%"><br>
+<span style="font-size:4em">9. Blue crabs will eat anything within a few days and will mutilate bones beyond recognition -u/AmberSoul99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164317.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103739/87164297/dontmakeangry11.png" style="width:100%"><br>
+<span style="font-size:4em">10. Babies bounce. Their bones are soft enough that instead of thudding, they bounce a little. -u/elly996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164318.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103745/87164298/dontmakeangry12.png" style="width:100%"><br>
+<span style="font-size:4em">11. The Pepsi-Cola company once responded to a man who claimed to have found a mouse in his can of Mountain Dew, stating that due to the high concentration of citric acid, any biological remains left in a can from the canning to consumption time frame would be dissolved before opening. -u/IWasToldYouHadPie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164319.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103751/87164299/dontmakeangry13.png" style="width:100%"><br>
+<span style="font-size:4em">12. The smell of cutting into a human skull is eerily similar to that of opening a fresh bag of Fritos. You either learn to hate Fritos or get hungry around the smell of skull dust. -u/okifur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164320.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103734/87164296/dontmakeangry10.png" style="width:100%"><br>
+<span style="font-size:4em">13. Bears will perform oral sex on their partner. -u/Rooster0112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164321.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103758/87164300/dontmakeangry14.png" style="width:100%"><br>
+<span style="font-size:4em">14. Kids under 5 years will often try to hide from a fire, instead of running. Firefighters find the bodies. -u/Corgi_with_stilts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164322.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103803/87164301/dontmakeangry15.png" style="width:100%"><br>
+<span style="font-size:4em">15. McDonalds stated that it costs more to make worm burgers than it does to make them out of beef. (Actually said by McDonalds to refute the claim they were padding out beef burgers with worm meat.) -u/ichankal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164323.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103808/87164302/dontmakeangry16.png" style="width:100%"><br>
+<span style="font-size:4em">16. If your pee stinks like movie theater popcorn for longer than a week you should get checked for diabetes. -u/Riker3946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164324.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103814/87164303/dontmakeangry17.png" style="width:100%"><br>
+<span style="font-size:4em">17. Tapirs have prehensile penises. Spotted hyenas have a birth canal that passes through their pseudo-penis clitoris, so pups very well may need to literally claw their way into the world, or suffocate trying. -u/Mandalorian_23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164325.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103819/87164304/dontmakeangry18.png" style="width:100%"><br>
+<span style="font-size:4em">18. An ear infection left untreated can grow and sit for years on end, slowly eating away at your ear canal. If untreated long enough the erosion causes dead skin cells in your ear unable to escape so they build up into a benign cyst called a cholesteatoma. Left untreated this can grow and affect balance, facial movement and eventually lead to deathly infection. -u/cohen63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164326.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/103826/87164305/dontmakeangry19.png" style="width:100%"><br>
+<span style="font-size:4em">19. The organ that sells for the most on the dark Web is the small intestine at about 800,000 USD. -u/toastedboi765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164327.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104418/87164306/dontmakeangry21.png" style="width:100%"><br>
+<span style="font-size:4em">20. One quarter of all mammal species are bats. -u/-mushroom-cat-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164329.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104430/87164307/dontmakeangry20.png" style="width:100%"><br>
+<span style="font-size:4em">21. Penguins regularly do acts of necrophilia and prostitute themselves for pretty rocks. Sometimes they lie, too, and just steal the rocks. -u/PandaDragonTrain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164330.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/104441/87164308/dontmakeangry22.png" style="width:100%"><br>
+<span style="font-size:4em">22. A spiders legs curl up when they die because they lose all blood pressure and their legs can only extend through hydraulic force Not an entomologist, just an arachnophobe. -u/RipAffectionate9958</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164331.jpg" style="width:100%"><br>
 
-## <a href="#linky20" id="linky19">28 Dank Memes to Improve Humor Circulation</a><br>
+<span style="font-size:4em">23. If you slap yourself in the nipple it will become erect in 8 seconds or less. Commence. -u/ummcheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164332.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Your face is a crumple zone. If you fall forward, even really hard, you can avoid a concussion and brain damage though you may have 20 bone breaks in your face and skull. -u/expat-brit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164333.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. If your body gets severely low on vitamin C, your old scars will open back up, even surgical scars. Its because even though they seem dormant and healed they are actually constantly regenerating, which requires vitamin C. -u/Foreignfig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164334.jpg" style="width:100%"><br>
 
