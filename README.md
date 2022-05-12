@@ -1,193 +1,117 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/12/2022-10:11:31
+Last updated: 05/12/2022-11:11:31
 <br>
-## <a href="#linky2" id="linky1">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
+## <a href="#linky2" id="linky1">28 WTF Moments in History We Don't Talk About</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. In the 1970s, a film team was filming an episode of The Six Million Dollar Man at an amusement park fun house. A stage hand was moving a fake wax figure on a rope when one arm fell off, revealing human flesh and bone underneath. Following an autopsy, it was discovered to be the body of a 60-year-old outlaw who had been taxidermied to some extent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044653/87165221/hilary-duff-womens-health4.png" style="width:100%"><br>
+<span style="font-size:4em">2. The Filipino Zoo Girl, which was on display in the Coney Island Zoo in 1914, is one that stands out to me. People threw peanuts at her while she was restrained by ropes. Its sad to witness anything like that, especially when it involves a child so young. Many people are unaware that [human zoos] occurred, but they are a horrible chapter in human history. Whats amazing is that some have survived into the twenty-first century, but not as cruelly as they once were.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044943/87165224/duff5.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Childrens Blizzard. It occurred in January 1888 on an unseasonably warm day. The weather was nice and many school-kids were tricked into not wearing coats or jackets to school, some only in short sleeves. While the kids were in class, the weather outside changed dramatically from warm and sunny at noon to dark and heavy like a thunderstorm, with heavy winds and visibility at 3 steps by 3 pm. Children left school to go home and do their chores (this was in Minnesota) and were expected to milk the cows and do whatever else was involved in the family farm. But they got lost in the darkness and snow and the wind and many froze to death in their town, just yards from houses or other sources of refuge. 235 people, mostly children died.There is a novel about the blizzard out now, and there is a nonfiction book about the event as well. I think they have the same title, different authors:The Childrens Blizzard (Nonfiction by David Laskin)The Childrens Blizzard (Fiction by Melanie Benjamin)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044955/87165226/duff2.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Jellyboys.During the 1800s British noblemen in India would use so called jellyboys (local boys smeared in jam) to walk beside them attracting all the bugs, flies and mosquitoes, creating a neat golfing experience for the nobility and a not so neat experience for the boys.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Magdalene asylums, also known as Magdalene laundries. Places of reform for women that didnt fit the idea of a good upstanding citizen. The most well known ones were in Ireland. The women and girls were abused and mistreated by asylum staff, most of whom were nuns.Mass graves, selling these womens children to people in other countries, blocking any parental rights... Theres apparently at least one movie coming out, a lot of stories about it, and so many people sharing stories from their mothers and grandmothers. I guess its more well known than I first thought.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164853.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
+<span style="font-size:4em">6. The Radium Girls. In the 1920s, they worked at a watch company painting the hours on the watches using radium, a radioactive element that glows in the dark. They did this with no PPE and werent told radium is dangerous. Meanwhile, the chemists had full PPE and worked in a sealed environment.Worse, they were instructed to lick the tip of the brush to make a very fine point. Some of them would paint their nails or their teeth with it for fun when they went out at night.They would develop cancer whenever the paint touched, and many of them had such decay in their jaws that their mandibles had to be held on with bandages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. In my familys region in Africa they used to carry out the capital punishment by snakebite.Just a snakebite to each ankle, and then letting the man spend his remaining time with his family before he [passed away] (under supervision).I thought it sounded sort of humane in a way, like our lethal injections, but apparently they say it was one of the most horrific ways that existed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The Vipeholm Experiment.Sweden are mostly known as a not very scary country. With good and mostly accessible dental care.The Vipeholm experiments were a series of human experiments where patients of Vipeholm Hospital for the intellectually disabled in Lund, Sweden, were fed large amounts of sweets to provoke dental caries (1945–1955). The experiments were sponsored both by the sugar industry and the dentist community, in an effort to determine whether carbohydrates affected the formation of cavities.The experiments provided extensive knowledge about dental health and resulted in enough empirical data to link the intake of sugar to dental caries.[1] However, today they are considered to have violated the principles of medical ethics.Hey, you are institutionalized and suffering and powerless - lets make your teeth rot out of your skull. For uhhh science.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. The sad case of Ota Benga. He was a “pygmy” boy from the Congo who was essentially captured and brought to the USA to be displayed in freak shows. He had undergone tribal customs such as having his teeth filed into points before his capture.He eventually got out of the carnivals and dreamed of returning to Africa, then WWI happened, making the trip impossible for the foreseeable future. He [ended himself] by gunshot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Khuk Khi Kai, or the Chicken Poop Prison in Thailand. Used by French forces to hold political prisoners (rebellious Thai people) in the Chanthaburi region.The long-standing impacts of this much-feared torture are still felt in the region today - theres a Thai saying for those who buck authority that roughly translates to Be careful not to get caught in a chicken poop prison. I learned about this prison from my parents who learned about it from theirs.How it worked, was there was a small, 2-story prison. Bottom floor houses the prisoners, and the top floor is basically a huge chicken coop.The grated floor/ceiling ensures that the chicken poop falls onto the prisoners below.Apparently, even though the maximum sentence in Khuk Khi Kai was around a week, it was one of the most feared punishments there was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Ideal Maternity Home here in Canada. From the 1920s till the 1940s, they took in babies from unwed mothers and they were selling them especially to desperate jewish families in New Jersey (adoption was illegal in the US back then).It was later discovered that the people who ran this business would starve the unmarketable babies by feeding them only molasses and water (the babies would last around 2 weeks on this diet). They put the corpses in wooden box often used for butter and thats why the victims are called the Butterbox Babies. The boxes were either buried on the property or at sea or burned in the home furnace. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
+<span style="font-size:4em"> The parents who gave their child to this maternity home would go back and see how their child is doing but were told the child has died when in fact it had been sold to adopting parents. Between 400 and 600 died in that home and at least a thousand were adopted but sadly, the adopted babies often suffered from diseases because of the unsanitary conditions and lack of care at the home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The massacre of kalavrita. It is a village is Greece. The Germans entered it and rounded up all the male villagers in a field. They then shot them all with machine guns. After that they got the children and women and put them in the church. When everyone was inside, they locked the doors and set fire to the church. Around 20 minutes into the burning, a German soldier couldn’t take it anymore and opened the doors. Around half of the people escaped the fire but the rest perished. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
+<span style="font-size:4em"> The German soldier was shot for this, and if you go to kalavrita today his name is on the memorial. No one was punished for this apart from the leader of the division, who I was told by my grandmother that he died in a gulag. But everyone else got away with it. It is sad that no one knows about this, as things like this happened all over Greece and Russia and Poland. I only know about this because my Great grandmother was one who escaped in the church. This massacre was in retaliation for the villagers supporting the local resistance force, which had recently [unalived] about 10 nazis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. The January 1945 sinking of the MV Wilhelm Gustloff. It was a German ship carrying fleeing Germans from the Eastern Front to the West through the Baltic Sea. It was sunk by the Soviet Navy shorty after setting sail. The total death toll is unknown but estimated at over 9000 since there were so many stowaways. It is the worst maritime disaster ever, several times more than the Titanic.It didnt get nearly the press because they were the enemy so who cares, and the Nazi media certainly didnt report it because theyre at the waning days of a war theyre badly losing so the last thing they need is more hits to their already sinking morale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The Cadaver Synod.Basically the pope had a previous Popes corpse exhumed so the corpse could stand trial for something made up. So they dug up his bloated 7 month old corpse and convicted him, retroactively nullifying his papacy. Then they dumped his bloated and convicted corpse in a river. The people got pissed and overthrew the pope, who was strangled in prison. The next pope came along and had the corpse collected from the river and its papacy posthumously reinstated.897 was a crazy year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164864.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Human “experimentation” by Japanese Unit 731 during WWII, committed primarily against innocent Chinese civilians. Nothing I’ve ever heard of in my life, including in fiction, is darker than the horrors committed for years by Unit 731, a military biological and chemical weapons research division of the Japanese Imperial military.There’s not enough room in a Reddit post to list half of it, but here’s a taste: Dissections of living babies, pregnant women, etc. without anesthesia (also known as a vivisection) usually after they had been deliberately exposed and left to suffer from horrible diseases, chemical and biological weapons, and so on. Freezing limbs off of victims. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164865.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
+<span style="font-size:4em">Horror-movie sadistic surgeries involving cutting off limbs and attaching them to the wrong sides of a victim, or removing organs and connecting the tubes back together without the organs to see what would happen, such as running the esophagus straight to the intestines with no stomach in between.Not to mention the fact that the victims were routinely tortured for the sake of torture, without even the flimsy excuse of “science” being conducted.And we’re talking about thousands upon thousands of victims, usually hapless Chinese civilians, political prisoners, POWs, and the homeless, over the course of years in huge facilities with thousands of staff committing these atrocities.The icing on the cake? General MacArthur and the rest of the US government found out about it when they captured Japan — and they granted Unit 731 immunity for their war crimes so long as they share their findings with America and ONLY America. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164866.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
+<span style="font-size:4em">Many of the former Unit 731 members even went on to have very successful and profitable futures in Japan after the war.Edit: Based on a couple of the comments I’ve gotten where people are making judgement calls about the modern day Japanese for this - I’d just like to make clear that I hold no prejudice against the Japanese, and I’m certainly not encouraging others to — every country and people has truly horrific pasts, and almost all of them sweep it under the rug as best they can. Even in our generation. We can argue that torture conducted by US soldiers in Guantanamo or Abu Ghraib, for example, aren’t half as bad, or were more justified, but ultimately torture is torture and sadism is sadism. A culture or government that begins to permit such things and justify them is well on its way down the spiral with enough motivation. Let’s not fool ourselves into comforting racism or nationalism that our countries or people are incapable of atrocities of our own, even today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164867.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. In the US it was common to do invasive surgery on infants without anesthesia until the mid 1980s. It was thought that newborns couldn’t feel pain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164868.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The New London School Explosion. On the afternoon of March 18, 1937, the shop teacher at the school in New London, TX turned on an electric sander. Unbeknownst to him, there was a massive natural gas leak under the school. The sander sparked, which ignited the gas and caused a massive explosion that [unalived] almost 300 students and teachers. It was absolutely horrific. The force of the explosion was so great that a two ton block of concrete crushed a car parked 200 feet away. This event is actually why natural gas has a smell now. They started adding it after the explosion so that something like this couldn’t ever happen again.My grandfather was actually one of the survivors of the explosion. He never talked about it, even to his own family, so I didn’t really know too much about it (other than the fact that he’d survived) until after his death. Toward the end of his life, he’d suffered a series of strokes that left him pretty physically incapacitated, so my dad had given him a voice-activated tape recorder and suggested maybe he could record his memoirs for his grandkids to listen to someday. 12 Life Tips Everyone Should KnowAs it turns out, he did. We have hours and hours of cassette tapes of him telling the story of his (actually very interesting) life, including a big section on the New London school explosion. For the sake of everyone’s privacy, I’ll call my grandfather Papa and use an initial for anyone else.Papa was in eighth grade when it happened, in his English class at about 3:00 PM on a Thursday afternoon. At the beginning of class, Papa and his buddy T had been messing around and being loud in the back of the classroom (as eighth grade boys often do). His teacher, Miss M, had enough of their disruptions and made Papa switch seats with another student. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
+<span style="font-size:4em">He moved into the girl’s desk in the front row, and she moved back into his desk in the back of the room. When the school exploded, they were taking a test on the book Ivanhoe. Papa was knocked out for a short time, and when he woke up, he couldn’t see anything because the dust was so thick. He looked down and saw that his pencil had blown clear through his hand. When the dust cleared, he saw that the whole back of the room was gone. I won’t go into details, but there were bodies (and parts of bodies) everywhere. The students in the front half of the room survived. The students in the back half did not. That included Papa’s friend T and the little girl who’d been forced to take Papa’s desk because of his misbehavior at the beginning of class. If he hadn’t been acting up, he would have been [unalived] and she would have lived. He carried the guilt of her death until the day he died.Papa’s classroom was on the second floor. There wasn’t any way to get to the room other than the open cavity of the explosion. After the few seconds of initial shock wore off, he and another classmate jumped into action. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
+<span style="font-size:4em">They were the only two kids in the class who hadn’t been badly injured. They made a tourniquet out of a sock and a shoelace for a girl with a severe injury to her arm and dug out their teacher, who was alive, but badly injured. By then, men were running up underneath the hole, so Papa and the other boy started lowering the injured to them. Then those who could walk, including Papa, climbed down. He ran off to look for his older brother, B, to see if he was OK.As it turned out, B had been supposed to be in Geometry class. However, he and his buddy had snuck out to go fishing. The explosion happened as they were opening the door to head out to the parking lot. The force of the blast sent them tumbling head over foot across the lot. They were both banged up and dazed, but they survived. The rest of their Geometry class was [unalived]. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
+<span style="font-size:4em">I don’t know that there’s a moral in the fact that both my grandfather and his brother survived because they were misbehaving that day. I do know that it weighed very heavily on both of them for he rest of their lives.There’s a lot more to his story about the day and the aftermath (most of it absolutely horrific), but I won’t go into all of it here. A few small tidbits though:- Papa and the boy who helped him rescue the other students from their classroom were both awarded medals and certificates of valor for their actions that day.- Nearly every family in town lost a child - some all of their children. I’m sure you can imagine the extreme toll this took on everyone’s mental health. Papa described New London in the months following the explosion as a “town with no children.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
+<span style="font-size:4em">To help with the healing process, the oil companies actively recruited families with kids to transfer in, so that there was some sense of normalcy when school started again in the fall.- Papa had played French horn in the school band. However, when school started up again, he was asked to switch to trumpet, as the entire trumpet section had been [unalived].A few years later, my grandfather went on to fight in World War II, and he saw some of the worst conflict in the Pacific (including Peleliu and the liberation of Manila). But he said that nothing he saw during the war was ever as bad as what he saw the day of the explosion. I’m always amazed that more people don’t know about it. It was major international news at the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Anyone whos familiar with Mary, Queen of Scots most likely knows that she was beheaded, but many people dont know *how* she was beheaded. My APUSH teacher told my class this story and its probably one of the most simultaneously interesting, funniest, and saddest executions in history.The first thing to note was that Mary wore a red dress rather than a white one for a very specific reason: after the execution of a royal or high-class person, commoners would often tear off blood-stained fabric from their clothing solely to flex that they got their hands on the blood of a noble. With red fabric, it would be difficult to see actual blood on the dress. Smart move on Marys end.During the actual execution, it was said that Marys executioner was not very experienced and actually *missed* the initial swing, jamming the axe or whatever weapon they used into the back of her head rather than through her neck. This didnt [take out] her yet, though, and she instead made some sort of medieval olden-time exclamation that can be roughly translated to goddamn! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164875.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
+<span style="font-size:4em">EDIT: After the executioner was done, he picked up her head by the hair, not knowing it was a wig, and the head fell out and rolled onto the floor (thanks Plug_5 and moiochi for reminding me)After Mary was properly [unalived], her body was left for public viewing, but the audience was surprised to see her red dress start to rustle before allowing Marys small terrier dog to climb out from underneath. Tragically, the dog refused to leave the body and eventually passed away after staying at the same spot for a lengthy amount of time.History buffs, please feel free to make any corrections as I heard this story a while ago and probably made a few errors in my recalling! :)TL;DR: Mary, Queen of Scots avoided crazy memorabilia-savers at her execution with a very intelligent move, got shanked in the head during a failed attempt, the executioner dropped her head onto the floor, and had her dog in her dress with her the entire time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033551/87164551/87113262.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">28 Dank Memes to Improve Humor Circulation</a><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163008.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033427/87164536/87091012.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033602/87164553/87113267.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033645/87164560/87131172.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163010.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163011.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033549/87164550/87113255.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163013.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163014.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163009.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163015.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163019.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163022.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163024.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033438/87164538/87091018.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163025.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033515/87164545/87103966.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163026.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163028.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163029.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163032.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163033.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163034.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163035.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163036.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163037.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163038.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163040.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163041.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163042.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163045.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163046.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033419/87164535/87090989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033430/87164537/87092924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033441/87164539/87094929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033450/87164540/87092926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033452/87164541/87096916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033502/87164542/87096936.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033504/87164543/87096924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033514/87164544/87103961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033525/87164546/87099779.png" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033527/87164547/87103973.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033538/87164548/87103981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033539/87164549/87113253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033601/87164552/87113263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033613/87164554/87131154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033619/87164555/87113260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033624/87164556/87131159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033630/87164557/87113284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033635/87164558/87131162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163007.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033641/87164559/87131176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033652/87164561/87131177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033656/87164562/87131185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033703/87164563/87158741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033708/87164564/87158743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033714/87164565/87158745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033721/87164566/87158746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033725/87164567/87158748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033732/87164568/87158750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033736/87164569/87158757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033742/87164570/87158758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033747/87164571/87158764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033754/87164572/87158769.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">20 Ways (Crazy) People Got Revenge</a><br>
+## <a href="#linky4" id="linky3">20 Ways (Crazy) People Got Revenge</a><br>
 
 <span style="font-size:4em">1. I shitted the bed and blamed the dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163725.jpg" style="width:100%"><br>
 
@@ -227,7 +151,7 @@ Last updated: 05/12/2022-10:11:31
 
 <span style="font-size:4em">19. Had a fight in school with a guy because im close friends with his girl. F--ked her on the weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163744.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">15 Unexpected Details from Industry Insiders</a><br>
+## <a href="#linky5" id="linky4">15 Unexpected Details from Industry Insiders</a><br>
 
 <span style="font-size:4em">1. “Former hotel worker. If a place is clearly low on guests, you can pretty much get a room for next to nothing if you ask nice enough and are good to the front desk agents. Corporate hates vacancies, so they’d rather have something than nothing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164090.jpg" style="width:100%"><br>
 
@@ -261,7 +185,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">15. “I worked at a movie theater… every theater has mice. Increased chances to avoid them if you do not sit near the screen or anywhere with curtains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164100.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">New James Webb Telescope Images Make Space Look Brand New</a><br>
+## <a href="#linky6" id="linky5">New James Webb Telescope Images Make Space Look Brand New</a><br>
 
 <span style="font-size:4em">1. A comparison of the same constellation of stars captured by the Spitzer Space Telescope launched in 2003 and the James Webb Telescope, showcasing a night-and-day difference.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105821/87164997/James-Webb-Photos-01.jpg" style="width:100%"><br>
 
@@ -295,7 +219,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">16. What hell look like, floating through the void. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113618/87165044/james-webb-photos-11.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">32 People Who Have No Grip On the Real World</a><br>
+## <a href="#linky7" id="linky6">32 People Who Have No Grip On the Real World</a><br>
 
 <span style="font-size:4em">1. My friend stole my card information and bought loads of expensive stuff. I asked her if it was her before reporting it, knowing that a) she was going through a tough time and I wanted to give her a chance to make it right and b) that I could be in trouble for conspiracy to fraud if I reported it and they believed Id got stuff delivered to my friend to claim fraud for the money back. She said no, I thought someone else had done it so I reported it.When she got arrested she said she didnt think theyd take the fraud thing so far. She thought you could just call up banks to get the money back and they wouldnt investigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164148.jpg" style="width:100%"><br>
 
@@ -361,7 +285,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">32. Often you can see young people supporting socialism / communism, while being either ignorant or in denial of the horrors it caused in the soviet union and Maos China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164176.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">42 Memes That May Be Hard To Argue With.</a><br>
+## <a href="#linky8" id="linky7">42 Memes That May Be Hard To Argue With.</a><br>
 
 <span style="font-size:4em">1. I mean I guess if youre writing and starring in the movie, why wouldnt you set yourself up with a hottie for a wife?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163527.jpg" style="width:100%"><br>
 
@@ -447,7 +371,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163528.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">12 Life Tips Everyone Should Know</a><br>
+## <a href="#linky9" id="linky8">12 Life Tips Everyone Should Know</a><br>
 
 <span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
 The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
@@ -493,7 +417,7 @@ The next time you see a mass post or “share this on” message asking for info
 
 <span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Trashiest Wedding Stories Ever Told</a><br>
+## <a href="#linky10" id="linky9">25 Trashiest Wedding Stories Ever Told</a><br>
 
 <span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
 
@@ -560,6 +484,48 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
+
+<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
 
 ## <a href="#linky12" id="linky11">27 Cringeworthy Tattoos That We Can't Unsee</a><br>
 
@@ -772,7 +738,125 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">31 Fascinating Photos and Interesting Images</a><br>
+## <a href="#linky15" id="linky14">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044653/87165221/hilary-duff-womens-health4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044943/87165224/duff5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044955/87165226/duff2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">26 Painfully Funny Memes That Hurt So Good</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">31 Fascinating Photos and Interesting Images</a><br>
 
 <span style="font-size:4em">1. This cool staircase that goes into the void.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011049/87164428/87158259.jpg" style="width:100%"><br>
 
@@ -836,169 +920,139 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">31. Local complications of intranasal cocaine abuse include chronic rhinitis, sinusitis, epistaxis, ossification or necrosis of the nasal septum, and in rare cases, palatal perforation. In this case, a 25-year-old man reported 5 years of nasal cocaine use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163545.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">28 Dank Memes to Improve Humor Circulation</a><br>
+## <a href="#linky19" id="linky18">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033551/87164551/87113262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163008.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033427/87164536/87091012.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033602/87164553/87113267.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033645/87164560/87131172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033549/87164550/87113255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163014.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163015.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163019.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033438/87164538/87091018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033515/87164545/87103966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163028.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163029.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163032.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163033.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163034.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163035.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163036.jpeg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">25 Dark Facts to Frighten Your Friends</a><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163037.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. The United States Government has a plan for collecting taxes after a nuclear explosion!
-Tbh, If a taxman came to my house after a nuke went off, Id probably just eat him. -u/OccultOddBall
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164310.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163038.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I was sat down by a supervisor because I could tell them that the burnt plastic smell in the bathroom meant someone did heroin in there and we need to watch out for needles in the trash. Id recently transferred there from a store where it was at least a weekly problem for a while. -u/Hydrosimian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164311.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163040.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Platypus doesn’t have nipples, they just kinda sweat milk. -u/Danjurnoodl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164312.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163041.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. If you don’t want a huge mess, freeze the body first then cut it up. -u/Temporary_Cow_8486</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164313.png" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163042.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Marie Curies body will continue to emit radiation for another millennium and a half.
-You have to sign a liability waiver if you want to see anything she owned because she was so radioactive. -u/theletterhrn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164314.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163045.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A body falling from 14 stories high, onto the pavement, will have cracks in the skin kind of like stomping on an orange. -u/FRIENDLY_CANADIAN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164315.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163046.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. If you need to dispose of a body in water, you need to cut open their abdomen first. In the bloating portion of decomposition, gasses will build up in the chest cavity/abdomen and cause the corpse to float back up to the surface or at least try to. -u/PrimadonnaGorl</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164328.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033419/87164535/87090989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. In high school, in a science class, the teacher asked the class if anyone knew how many grams were in a pound. A stoner kid in the back immediately said 454. The teacher asked him how he knew that. Uh, I just do. -u/MrGreg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164316.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033430/87164537/87092924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Blue crabs will eat anything within a few days and will mutilate bones beyond recognition -u/AmberSoul99</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164317.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033441/87164539/87094929.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Babies bounce. Their bones are soft enough that instead of thudding, they bounce a little. -u/elly996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164318.png" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033450/87164540/87092926.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The Pepsi-Cola company once responded to a man who claimed to have found a mouse in his can of Mountain Dew, stating that due to the high concentration of citric acid, any biological remains left in a can from the canning to consumption time frame would be dissolved before opening. -u/IWasToldYouHadPie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164319.png" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033452/87164541/87096916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. The smell of cutting into a human skull is eerily similar to that of opening a fresh bag of Fritos. You either learn to hate Fritos or get hungry around the smell of skull dust. -u/okifur</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164320.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033502/87164542/87096936.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Bears will perform oral sex on their partner. -u/Rooster0112</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164321.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033504/87164543/87096924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Kids under 5 years will often try to hide from a fire, instead of running. Firefighters find the bodies. -u/Corgi_with_stilts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164322.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033514/87164544/87103961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. McDonalds stated that it costs more to make worm burgers than it does to make them out of beef. (Actually said by McDonalds to refute the claim they were padding out beef burgers with worm meat.) -u/ichankal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164323.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033525/87164546/87099779.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. If your pee stinks like movie theater popcorn for longer than a week you should get checked for diabetes. -u/Riker3946</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164324.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033527/87164547/87103973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Tapirs have prehensile penises. Spotted hyenas have a birth canal that passes through their pseudo-penis clitoris, so pups very well may need to literally claw their way into the world, or suffocate trying. -u/Mandalorian_23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164325.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033538/87164548/87103981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. An ear infection left untreated can grow and sit for years on end, slowly eating away at your ear canal. If untreated long enough the erosion causes dead skin cells in your ear unable to escape so they build up into a benign cyst called a cholesteatoma. Left untreated this can grow and affect balance, facial movement and eventually lead to deathly infection. -u/cohen63</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164326.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033539/87164549/87113253.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The organ that sells for the most on the dark Web is the small intestine at about 800,000 USD. -u/toastedboi765</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164327.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033601/87164552/87113263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. One quarter of all mammal species are bats. -u/-mushroom-cat-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164329.jpg" style="width:100%"><br>
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033613/87164554/87131154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Penguins regularly do acts of necrophilia and prostitute themselves for pretty rocks. Sometimes they lie, too, and just steal the rocks. -u/PandaDragonTrain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164330.jpg" style="width:100%"><br>
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033619/87164555/87113260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. A spiders legs curl up when they die because they lose all blood pressure and their legs can only extend through hydraulic force Not an entomologist, just an arachnophobe. -u/RipAffectionate9958</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164331.jpg" style="width:100%"><br>
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033624/87164556/87131159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. If you slap yourself in the nipple it will become erect in 8 seconds or less. Commence. -u/ummcheese</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164332.jpg" style="width:100%"><br>
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033630/87164557/87113284.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Your face is a crumple zone. If you fall forward, even really hard, you can avoid a concussion and brain damage though you may have 20 bone breaks in your face and skull. -u/expat-brit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164333.jpg" style="width:100%"><br>
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033635/87164558/87131162.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. If your body gets severely low on vitamin C, your old scars will open back up, even surgical scars. Its because even though they seem dormant and healed they are actually constantly regenerating, which requires vitamin C. -u/Foreignfig</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87164334.jpg" style="width:100%"><br>
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87163007.jpeg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033641/87164559/87131176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033652/87164561/87131177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033656/87164562/87131185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033703/87164563/87158741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033708/87164564/87158743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033714/87164565/87158745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033721/87164566/87158746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
+<span style="font-size:4em">60. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033725/87164567/87158748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
+<span style="font-size:4em">61. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033732/87164568/87158750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
+<span style="font-size:4em">62. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033736/87164569/87158757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
+<span style="font-size:4em">63. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033742/87164570/87158758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
+<span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033747/87164571/87158764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
+<span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033754/87164572/87158769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">30 Vintage Photos of Old School Celebrities</a><br>
+## <a href="#linky20" id="linky19">30 Vintage Photos of Old School Celebrities</a><br>
 
 <span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
 
@@ -1059,58 +1113,4 @@ You have to sign a liability waiver if you want to see anything she owned becaus
 <span style="font-size:4em">29. Jack Nicholson In 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164082.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
-
-## <a href="#linky20" id="linky19">26 Painfully Funny Memes That Hurt So Good</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
 
