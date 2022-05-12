@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/12/2022-11:11:31
+Last updated: 05/12/2022-12:11:33
 <br>
 ## <a href="#linky2" id="linky1">28 WTF Moments in History We Don't Talk About</a><br>
 
@@ -57,59 +57,47 @@ Last updated: 05/12/2022-11:11:31
 
 <span style="font-size:4em">EDIT: After the executioner was done, he picked up her head by the hair, not knowing it was a wig, and the head fell out and rolled onto the floor (thanks Plug_5 and moiochi for reminding me)After Mary was properly [unalived], her body was left for public viewing, but the audience was surprised to see her red dress start to rustle before allowing Marys small terrier dog to climb out from underneath. Tragically, the dog refused to leave the body and eventually passed away after staying at the same spot for a lengthy amount of time.History buffs, please feel free to make any corrections as I heard this story a while ago and probably made a few errors in my recalling! :)TL;DR: Mary, Queen of Scots avoided crazy memorabilia-savers at her execution with a very intelligent move, got shanked in the head during a failed attempt, the executioner dropped her head onto the floor, and had her dog in her dress with her the entire time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164876.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">28 Dank Memes to Improve Humor Circulation</a><br>
+## <a href="#linky3" id="linky2">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163830.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163831.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163832.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163833.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163834.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163835.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163836.png" style="width:100%"><br>
+<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163837.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163838.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163839.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163840.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163841.gif" style="width:100%"><br>
+<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163842.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163843.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163844.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163845.png" style="width:100%"><br>
+<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163847.png" style="width:100%"><br>
+<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163848.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163849.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87163857.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">20 Ways (Crazy) People Got Revenge</a><br>
 
@@ -485,198 +473,7 @@ Now the bride got angry and there was much back and forth with various family me
 <span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 Athletes Who Played Absolutely Blitzed Out of Their Mind</a><br>
-
-<span style="font-size:4em">1. Bobby Layne most notably played for the Detroit Lions and won 3 championships. Layne would get his fix every halftime, as he would just take swigs of alcohol during speeches.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030135/87164515/bobbylanye.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Bernie Carbo was both drunk and high during the 1975 world series. He just decided to smoke a joint and drink some beer before the game. Carbo would go on to hit a home run while high AF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030146/87164516/bernie.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Charles Barkley played a game nice and drunk after he was notified that he may be traded. The trade fell through as Barkley was paying his bill for a little boozy brunch. He played that same night.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030208/87164518/charlesbark.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Red Sox Pitcher Dennis Boyd was a known drug addict. It got so bad that he even hid crack under his hat. The crack eventually spilled onto the mound.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030219/87164519/dennisboyd.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Perhaps the most infamous player on this list, Dock</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030230/87164521/dock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Fred Thurston once drank 10 vodkas to stay warm. Playing in Green Bay is probably the coldest the place in the NFL, so during the Ice Bowl in 67, Thurston needed his alcohol jacket.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030240/87164522/fred.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. John Daly is a legend in his own right. He once claimed to have drank a fifth of Jack every single day when he was 23. Hes known to drink on the course, and as you can see hes a man who loves his smokes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030229/87164520/daly.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Brett Favre was addicted to pain killers and was even sent to rehab. He had a slight relapse during Super Bowl 31 in Louisiana. Favre could be seen heaving on the sideline, after going out drinking on bourbon street. He still led the Packers to a Super Bowl victory.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030241/87164523/favre.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Keith Hernandez was high on cocaine while playing for the St. Louis Cardinals. Because thats what you did in the 80s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030251/87164524/keith.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Cowboys player Thomas Henderson was high on cocaine during Super Bowl 13. He used an inhaler and mixed coke with water (which I didnt even know was a thing.) The Cowboys would lose that game to the Pittsburgh Steelers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030252/87164525/hollywood.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Keon Clark never played one NBA game sober. He even admitted to drinking a pint of Gin a day. woof.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030302/87164526/keon.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Metta World Peace (formerly Ron Artest) would indulge in some halftime Hennessy out of his locker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030303/87164527/metta.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In 1997 Patrick Rafter won the Davis Cup still drunk from the night before. He later apologized for being inebriated.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030315/87164528/rafter.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The legend of Wade Boggs gets better and better every time you hear it. Boggs has stated that he drank over 100 beers on a cross-country flight and went on to play a game the next day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030157/87164517/boggs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Ricky Davis and his crew went out before a game in 2000. Allegedly they killed 19 bottles of top-shelf tequila and he would go on to not only play drunk, but barely miss out on a triple double after shooting at his own net.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030326/87164529/rickydavis.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mike Cameron hit 2 home runs against the Yankees in a game in 2001. He was absolutely hammered when he did it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030334/87164530/mikecameron.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Tim Raines would do cocaine before games. He would then stash the coke his back pocket, which is why he would slide headfirst so as not to crush his bag of cocaine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030338/87164531/timraines.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Mike Tyson has claimed that he did coke right before going out to fight Danny Williams in 2004.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030344/87164532/tyson.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. In 1998 David Wells pitched a perfect game for the Yankees. He would later admit that he was still drunk. Wells had attended a Saturday Night Live after party, stayed up until 5am and only got an hour of sleep. LEGEND STUFF!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030350/87164533/wells.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. As legend has it, the White Sox once tried to drink Babe Ruth out of the lineup. The took him out drinking the night before, and the Babe showed up the next day drunk as a skunk. He absolutely destroyed the Sox in that game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/030935/87164534/babe.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">27 Cringeworthy Tattoos That We Can't Unsee</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165493.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">30 "Crazy" People Who Were Proven Right</a><br>
-
-<span style="font-size:4em">1. Galileo - he believed the Earth and other planets orbited the Sun, contrary to popular belief that all stars and planets orbited Earth. The Catholic Church called it heresy, and ordered him to turn himself in to the Holy Office to begin a trial for his beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Sinead O’Connor - she was vilified for ripping up a photo of the pope to protest child abuse within the Catholic Church. Spoiler alert - the Catholic Church was covering up child abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stanislav Petrov. Though we dont see him as crazy, Im sure his crewmates thought he was. He directly disobeyed Soviet military protocols and prevented a nuclear war.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Rose McGowan was completely ostracized and blacklisted for talking about Weinstein too early.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. John Yudkin. The single scientist who didnt believe the sugar industrys research that demonized fats. Till his death hes adamant that fats werent the cause of obesity and heart attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. During the plague in Moscow there was a priest (or something) DIScouraging people kissing the statue of Maria, as to stop the spreading of the virus.
-
-The poor man was burned alive for blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Tesla. Edison is still credited with the lightbulb. His last words put it into perspective All these years that I had spent in the service of mankind brought me nothing but insults and humiliation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hemingway talked about the FBI following him prior to his suicide. They thought he was paranoid. Decades later some papers get released, turns out the FBI was following him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lisa Bonet. She was vilified for hating Cosby in the 80s. Who’s the villain now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The inventor of dialysis, Dr. Willem Kolff. Although its hard to blame them, haha. He saw people dying of kidney disease and said Hey, what if we take all of the blood out of your body, clean it, and put it back in? (Cleaning your blood is the job of your kidneys, and a dialysis machine is basically an artificial kidney, on the *outside* of your body.) It was a wild idea and he started his work during WWII and had to work with basic materials like orange juice cans, sausage skins, and a washing machine. Many of the first patients died, but they were already going to die painfully. Eventually, he ironed the kinks out and started saving lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Charles Darwin. The religious outcry against evolution was engineered by his academic rivals more than from religious resistance. But even now, after all that politics is centuries dead, there remain people who categorically resist demonstrable fact because of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Craig Ferguson having empathy for Britney Spears in his 2007 monologue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. There was a wacko looking guy on Oprah who stopped his vanilla presentation to tell the audience that plastic causes cancer, stop using it to store food and water.
-
-Oprah cut to commercial and whisked him off the show.
-
-Dude was right. BPAs were outed that day, but it took another decade for that info to become public knowledge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Anyone who covered their webcam camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Giordano Bruno was (probably) the first European who proposed the possibility that not only was the universe infinite, but stars were not just points of light in the sky; they could be suns with their own planets, and that some of those planets might even host life.
-
-The Catholic Church had him tried for Heresy and had him burned at the stake and his contemporaries though he was completely insane. He had some kooky ideas, but he was absolutely right about the size of the universe and stars being suns with their own planets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Margaret Dunbar. Her four year old son went missing and one day the cops found him and brought him home. Except it wasn’t her son and everyone tried to gaslight her into believing it was. Well she was right and no one knows what happened to the real Bobby Dunbar to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I dont know that guys name but he basically from 1541-1542 travelled accross south america. The first european to do so. While he was on his journey he said he saw millions of people and large cities , with a lot of life in them , where today is the amazon rainforest.After he had finished his journey he had told the stories of those cities and about a hundred years later when explorers visited the place there was nothing , no cities , no people , just jungle. So they thought he had made all that up. But modern technology has shown that there might have accually been a lot of cities there , and that those people died out with smallpox and all cities were covered by the jungle within the course of 50 years. So basically people thought he was crazy and made everything up but in modern times its proven that he was right all along.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Will Rogers a humorist when he invented the term trickle-down economics as a joke stating that this type of economy would just make the rich richer and the poor poorer.
-
-And then we actually implemented it and used the term trickle-down. And Will Rogers was right.
-
-The rent has gone though the roof and our salaries have stagnated and we cant afford The American Dream anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Martha Mitchell.. She was like part of the reason why it was discovered that Nixon was involved in Watergate. Her husband was part of the Nixon group so she got some inside details. When she wanted to tell the news about the whole scandal, her husband and Nixon men put her in a hotel and restrained her from having any contact with anyone. She was seen as an insane person her husband and Nixons men even managed to convince the psychiatrists that she was out of her mind.
-
-Actually theres a phenomenon in psychology which was named after her a.k.a the Martha Mitchell Effect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Heinrich Schliemann. He 100% believed that ancient Troy had really existed. So he armed himself with a copy of the Iliad, and actually managed to find and excavate the city. Hed told everyone and their sister that Troy was a real place for 40 years before he found it, and everyone thought he was cuckoo for Cocoa Puffs. Not so much, it turns out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Remember the government accountant in George W Bush’s presidency who said the war in Afghanistan would cost a billion dollars a month and he was fired? Well, he was right. It was 300 million dollars per day for 20 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Dr. Atkins.
-
-When his first book The New Diet Revolution came out, he was mocked and ridiculed for thinking that refined sugars, flour, and starch caused the glycemic index to skyrocket which led to your body storing fat. When he died people thought he died from his own diet.
-
-Keto-acidosis and how you can lose weight by reducing your glycemic index was largely his research.
-
-It was later stolen and copied and called The Zone Diet and The Caveman Diet and The Paleo Diet which were all based on his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. All the people that said the NSA/CIA was spying on us for years.
-Thanks to edward Snowden we now know that was true and it was so much so that the NSA had built back doors in pretty much every single electronic device that exsists all the way down to the network switch level on cisco switches and the internet backbone through AT&T network hubs. The fact that there wasnt mass revolt after that information was released kinda blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Eisenhower. Re: The military–industrial complex.
-
-In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Clair Patterson-he was made out to be crazy by giant oil companies bc he tested ice cores in the Arctic and figured out that the amount of lead in the atmosphere, the water, and our bodies was extremely high and caused by leaded gasoline. He petitioned Congress for years to make it illegal to add lead to gasoline, but the corporations kept getting him shut down because they used lead as an anti-knock agent for internal combustion engines. Ironically, lead was causing everyone else to go crazy because it is shaped like a neurotransmitter and blocks receptors causing insanity, similarly to what mercury does, and many employees of the oil companies had gone mad. After decades of battling the oil companies, he finally got his way and lead was removed from gasoline. Since then, the amount of lead in the atmosphere and I’m living things has decreased dramatically. Clair Patterson… a f**king hero.
-
-He also created the first truly “clean room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Boltzman spend his life trying to prove his formula but ended up commiting suicide because none of his collegues believed him. Now, his formula is basically the amen in thermodynamics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. MrBeast infiltrated the YouTube market early. Mastered it. Making millions on millions a decade later at age 23. He bet on new media, looked crazy for a while but in the end won big.
-
-I understand to most he’s not a historical figure but as a marketing and digital media expert—he’s a pioneer in my book. He wrote the playbook. Plus there’s a typo in the question haha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Lord Kitchener (Horacio Herbert Kitchener) Secretary State of War for the British Army. At the onset of WW1, everyone thought the war would end very quickly, either going one way or the other. Kitchener was one of the few people to envision a long war, and to prepare accordingly, even though the British government actively hampered many of his efforts (even though he was a war hero)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Mitt Romney and his comment about Russia. I voted against him, but I’ll be damned if he wasn’t right about Russia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Henry A Wallace was Roosevelts running mate and vice president in his 3rd term in office but was dropped from the ticket in the 4th in favor of Truman. Wallace was correct on a lot of issues manifesting in America that are still here today, race, education, and what happens to society unfer unregulated capitalism.
-
-In many ways Wallaces story mirrors the story of every single progressive the democratic party has tried to run in the 20th century. Rhetoric is fine but dont go after corporate greed.
-
-Truman and Wallace could not have been more different. If Wallace had stayed as running mate and vp at the time of FDRs death, its possible to imagine we would be living in a totally different world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165593.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">31 Dank Memes We Can All Abide By</a><br>
+## <a href="#linky11" id="linky10">31 Dank Memes We Can All Abide By</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164682.jpg" style="width:100%"><br>
 
@@ -738,7 +535,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
+## <a href="#linky12" id="linky11">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
 
@@ -750,177 +547,344 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
+## <a href="#linky13" id="linky12">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">26 Painfully Funny Memes That Hurt So Good</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">31 Fascinating Photos and Interesting Images</a><br>
-
-<span style="font-size:4em">1. This cool staircase that goes into the void.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011049/87164428/87158259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This cool transparent leaf I saw today.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011038/87164426/87158262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. These new bathroom stall doors don’t have gaps on the sides.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010622/87164422/87162987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “The white patch of fur on my puppy’s chest looks like a bird in flight.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011031/87164425/87158276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A clever design idea for screwdriver and drill bits.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011705/87164430/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. My school has an anvil for the percussion section.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010634/87164424/87162991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Ukrainian soldier with Kriss Vector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Apparently it was Bring Your Goose To Work Day at my friend’s office.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011042/87164427/87158277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012310/87164480/87155036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The indian 1 rupee coin just has a dude giving a thumbs up on it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011056/87164429/87158286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A bottle opener that looks like an exotic bird.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011716/87164431/87155078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This bag for an eye glass company.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011728/87164432/87155079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nasir-ol-Molk Mosque in Iran, it was built in the 18TH century.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011739/87164433/87155083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. A fish sculpture made out of trash recovered from the ocean.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012321/87164481/87155043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Discovered that my tooth implant doesn’t glow like the rest of my teeth under a black light — regular photo for comparison.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012332/87164482/87155071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012340/87164483/87155044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. 1900 Brothel Candles – those were popular in European brothels between 1880 and 1905 – used as a timer, once the wax is consumed, the session ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Kedarnath India at Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The doors of the C-17 Corrosion Control Hanger at Hickam Air Force Base on Oahu were specifically made to be fitted around the large aft of a Globemaster III</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Kriss Vector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. US Army has awarded its Next Generation Squad Weapon (NGSW) contract to SIG SAUER to replace its M4/M4A1 carbines & M249 SAW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hoover Dam spillway tunnel, 50 feet wide & 600 feet deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The inside of a Super 8 Projector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. An artist found a way to convey grief</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. News anchor from the other angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Some parents, likely now in their 70’s, still looking for their missing child</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Tuscany sword. A Tuscan knight plunged his sword into a rock in the year 1180. He then swore off war and became a hermit. It is believed that this sword evolved into the Excalibur story in the UK (Sword in the stone & King Arthur). The sword remains embedded in the stone to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163543.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. If you don’t pay back your loans in Dubai, this is classed as stealing and you have to go to jail due to Sharia law. This leads to many failed foreign businessman abandoning 1000s of supercars at the airport as they flee the country</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Found this 8 bit styled byte coke in a nearby market.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010629/87164423/87162993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. This truck is polished so well it takes a second to see it.. it isn’t photoshopped in anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Local complications of intranasal cocaine abuse include chronic rhinitis, sinusitis, epistaxis, ossification or necrosis of the nasal septum, and in rare cases, palatal perforation. In this case, a 25-year-old man reported 5 years of nasal cocaine use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163545.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">36 Times People Had Spine-Chilling Experiences</a><br>
+
+<span style="font-size:4em">1. As an officer on a reservation, we kept getting reports of a “tall man” at different places in a town on our reservation. One night we was able to catch him on a thermal camera. There was about 8-10 officers there. It was on a hill overlooking the town that was right below.
+
+Tall, about 8-9 feet tall. Long dark hair. Human face. Really fast and quick
+
+We sent officers that was in the town over to where it was walking towards a housing and we could see the officer get out and cross a fence and look with his flashlight but it looked like the figure was in a slight ravine to his side and couldn’t see it. We was giving directions on radio but our portable radios sucked and unless you was right next to your unit, they wouldn’t work. We watched as the tall figure walked right down the middle of the street and we could hear all the dogs in the housing start freaking out. It then walked out of sight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My dad used to work at a haunted house and wanted to add a ghost story to the website to get more people to come. He hired a medium to look around the place to see if she sensed anything. My dad didn’t really believe in the stuff though. Half way through the tour she asks if my father was missing a hammer. He said he was missing a lot of his tools. The medium said an old women passed in the floor above and had the hammer. My dad asked the spirit to give it back and the next day it was laying on the table. After that he left flowers for the spirit and it never took anything again</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Chupacabra are just coyotes with mange. Thats why as soon as Hollywood came up with a name the whole southwest was like S**t! Ive seen that!
+
+They sure look like something paranormal. A healthy coyote doesnt act like one dying of mange, and the abnormal behavior is pretty creepy all on its own.
+
+Most of my creepy experiences had pretty straightforward explanations. Like feeding the cat and then my cat walked in through the cat flap. There really was a second cat. He didnt look that much like mine when I was paying attention, but at first glance? Their heads and backs were close enough to make the mistake.
+
+Another story isnt mine, but a friends.
+
+A tropical storm hit and she was watching the weather for updates on the tornado watch/warnings when she heard her cat scratching and crying like mad at the front door. Horrified her pet was outside in the storm, she rushed downstairs to let her in. Her mom caught her just before she got to the door and stopped her. She said thats not our cat! And pointed to where their cat was cowering in a corner, eyes glued to the door.
+
+They crept around to a bedroom window to look at the front porch and discovered it was a pair of bobcats that were scratching and crying at the door. After some frantic discussion, they opened the garage door partway to give them shelter so the bobcats wouldnt damage the door any more than they already had. It took a few minutes, but the bobcats left the shelter of the porch and entered the garage and ate the cat food there.
+
+One of the bobcats gave birth in their garage that night. As soon as the storm passed and the water receded (about a day later), the bobcats carried the kittens back to their den. Based on where we sighted the kittens after that, we think the mama cat was in labor when the storm flooded her den. We think the bobcats had watched her cat come and go and figured any port in a storm.. Still, they were very creeped out for weeks after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Went on fishing weekend with best bud in college. Stayed at his grandpas house in middle of bum f**k nowhere. We where sleeping in the sun room as it was a gorgeous night, and I was asking my friend bout the noises. Deer, foxes, and the like. Then we hear what is best described as a scream/wail…his grandpa came out of the house said “You boys just come on sleep on the couches now”. Never offered an explanation and I didn’t question s**t. 90yr old man with a 12gauge in hand says move…you move.
+
+Edit: to y’all saying cougar, mountain Lion, owl, y’all might be right. But when grandpa who lived on the land for 80yrs comes out in his underpants shirtless and says get in the house. Yea don’t argue or question.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’m convinced I’ve had something following me for years; possibly my entire life. I’ve always had weird things happening to me.
+
+Weird experiences like as a kid (I don’t remember it but my mom told me about it) I would wake her up asking about the “person” in my doorway. Then later when my parents first started leaving me home alone I remember having to call them multiple times and have them rush home or someone come get me because I could swear I wasn’t alone in the house.
+
+Living with my parents I would hear footsteps upstairs when no one else is home, once had my wife (while we were just dating) there and she heard it too. I would shut a door, and then later that door would be wide open
+
+At Me and my wife’s first townhome things would fly of the shelf’s (like once a box of spaghetti noodles tucked away in the back of the pantry behind other things found it’s way to the ground without disturbing anything in front of it), pictures would fly off and away from walls but none of the others would even be rocking. Same footsteps upstairs. Weird things like my ukulele strumming itself in another room.
+
+I have very specific and detailed stories but it’s a lot to type out, I don’t really care if anyone believes me but I know what I’ve seen and felt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. It happened a few months ago. My 1 year old cat Salem, passed suddenly and I was so sad that I couldnt save his life. On that day I called my workplace and told them my grandpa passed away (he passed 20y ago) so I could cry at home I cried days because of him. One day I went to work and there was a guy who is doing witchcraft and he can see the energy / aura, etc. So I passed him with my ppt (powered pallet truck) and he looked at me and said Oh my god, who passed away my darling?  I told him my grandpa as I didnt want to blow my cover. And the guy said Are you sure it was your grandpa? Because a black cat is sitting on your truck and meowing very loud.. I was in shock. I didnt tell no one that I had a cat, didnt post anything on Facebook. Then he described me how that cat looks like with a white spot on the chest. He described my cat. My black cat.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Recently just started a new job where one of my duties is to lock up this building that was once a cancer hospital. I thought I was crazy but my stories have been confirmed by my co-workers/security camera footage.
+
+Most wild experience? Was about 10pm and massive snowstorm outside so I expected some weird noises like howling from the wind etc. Im on the first floor which is just a labyrinth of hallways, making sure all the doors are locked, out of nowhere I heard what sounded like someone groaning, I attributed this to the wind outside. 5 minutes later, it happened again so I yelled Police whos there!, Show yourself! (Yes, I work for a PD). I radio for backup and confirmation the building is empty besides me, which is confirmed, backup never shows up due to the nuts snowstorm outside none of the sergeants felt like coming to help since they knew what was likely going on from watching cameras. Im finishing the 2nd floor and I heard what sounded like someone banging their head on the door downstairs or something, it was loud. I get downstairs and the locking mechanisms on the door I heard the noise come from is unlocked. This locking mechanism is only unlocked by 2 very specific keys (they dont even look like keys), myself and my Sarge on duty are the only ones that have em. At this point Im literally sweating and just f*****g hurry up back to the 2nd floor and lock up the fastest I have ever done so.
+
+I get back to base and tell our dispatcher and Sgt what happened and theyre just sitting there laughing acknowledging my claims. They said that building is haunted as f**k and even students have experiences there in mid-day. My dispatcher then showed me the locking mechanism being unlocked (its a huge bar of metal, very noticeable on camera) and chills just ran down my back. She then showed me running down the hallway on my way to exit and one of the doors I locked swung open behind me, I didnt hear it because my gun belt and boots were making too much noise.
+
+So yeah. Im not scared of being shot at but f**k ghosts, no time for those c**k suckers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I posted this in another thread like this a while back
+
+Several years ago, some friends and I were driving through one of the millions of small towns around the North/South Carolina border in the mountains. It was well after midnight. My friend looks behind us, and sees a pair of headlights coming up on us. Quickly. Like, easily 60-70 MPH when the limit is 25 or so. No signs of stopping so my friend pulls over to let the car past.
+
+And what passes us is two lights. Just lights. Far too bright to be a firefly or any luminescent creature. As bright as headlights, if not brighter. Not attached to anything. No car, nothing. Just two lights booking it down the road.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. 30+ years ago, my mom’s stepdad passed away (my step-grandpa? he was basically her father; real dad walked out when she was nine).
+
+There was a gathering at the house following the funeral.
+
+Phone rings, my mom picks up, and hears a male caller say her name in an interrogative fashion(like “Susan?!?”). She was sure it was his voice, panicked, and hung up.
+
+Caller didn’t call back, and the reverse dial pulled up a previous number to someone she knew who had called much earlier. So essentially the Call from Beyond didn’t happen as far as the phone company was concerned.
+
+To this day, she believes it was him and regrets panicking and hanging up.
+
+FWIW my mother is not religious/spiritual/etc.
+
+Bonus story:
+
+When my other grandfather passed away (2004, from complications following colon surgery. He was in his late 90s so it was a good run) he was in the hospital following his surgery. My dad and aunt had a feeling it might be a 50/50 chance he pulled through, given his age, so they were present.
+
+He wakes up and asks when he got back. They ask him to explain.
+
+He said he had a dream he was on a road trip in an airstream trailer with a buddy of his with whom he had a falling out 50+ years ago. He was driving and they were blinded by a bright light in the windshield. Then he woke up.
+
+A few minutes later, he went to sleep and passed.
+
+Come to find out he and his buddy had always wanted to do a cross country road trip, but has some kind of falling out and never spoke again. My grandma remembered it happening shortly after WWII. Must have weighed heavily on him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. My dad owned rental houses. Back in the 90s, my girlfriend and I’d go in after a renter left and rehab the house. One particular house, he’d purchased years ago with the renter already in the house. When they passed away, we went in and started in the bedrooms, first painting then cutting out the carpets. We noticed we kept losing our carpet cutters but thought we’d accidentally rolled them up in the carpets. So we got fluorescent orange cutters. Nope still can’t find them. Then we pull the living room carpet. Several large stains that look exactly like dried blood are soaked into the cork underfloor. OK, might be stain, or someone butchered a chicken in the living room-No telling. But as I’m painting a living room wall, I see a human shaped shadow coast across the wall. I think someone is walking around the house, maybe a meter reader. I run outside and no one is there, up or down the street. I run around the house. NO ONE is there. We finish in a big hurry and get paid. My dad calls later and asks what we used to clean with because the house is full of flies. I go back wash every flat surface with bleach and water. Next day- full of flies. It’s a house built on a concrete slab, so no crawl space. He decides they must be getting in through a crack in the slab and fills the cracks with silica. Nope still flies. I vacuumed up hundreds of dead flies. He had lived through the depression and fought in WWII. He raised 10 kids and lived to tell. But he sold that cursed house in a second. He didn’t believe in that s**t but he wasn’t a fool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. One day my wife came home, we were living in an apartment in midtown. It’s about 10:00 pm and I was taking the trash to the dumpster in the alley behind my complex. The complex had only 6 two story apartments, the front door of each facing south. We lived in #5, and if you were to walk outside, once you open the door there’s a little raised landing where you’d put a welcome mat, step off the landing, you’re on a walkway, and you have to go either left or right because there’s a very tall wooden fence separating the complex from the large house next door. So if you turn right and walk down past apartments #4-1 you run into a gate, go through a gate, and you’re now on one of the main streets in midtown. If you were to turn left coming out of the apartment, you will pass apartment #6, then the laundry room, and immediately into a rod iron gate, and immediately on the other side is the dumpster. It’s a very short distance from my door to the dumpster and with nothing to obstruct your view, you can see from the dumpster all the way down the length of the walkway to the gate at the other end of the complex. The entire area is well lit, literally every unit would turn their front porch light on every night, and there is a street light right where the dumpster is, and one right on the other side of the street side gate. So it was easy to see my wife open the gate and head up the walkway towards our apartment. I waved at her and have no idea how she didn’t see me, and I thought about yelling but didn’t want to scare her or startle the neighbors. I was done emptying the garbage so I just started walking the short distance to her. As I’m walking up, I see the door to our apartment open, of course I figured she opened it but it was dark so I didn’t actually SEE her do it, then she kind of leans in and I could hear her calling my name, but she would not walk in to the apartment, our own apartment, so why not walk right in, right? Then, when I got behind her and said hi she became frantic, asking me how the f**k did you do that, how did you get back outside?!? I explained I’d been at the dumpster emptying the trash, to which she interrupted me said “no, you opened the door for me and walked upstairs, I called after you and you turned your head and looked at me but didnt say anything and just kept walking, and then she started crying. I searched the apartment, found nothing. We moved about 6 months later to the house we’re at now. One day shortly after we moved in, my wife thought she saw me walk past the windows that look into the back yard from the kitchen, but it wasn’t me, and again she said it looked just like me, and that it walked all the way around the house before disappearing, and then she realized I was in the bedroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. When my youngest son was about 3 years old we were eating out in town and he got a bit restless.
+I decided to take him for a walk and as I held a door open he got away from me and made a break for it(pedestrian area so safe)
+He bolted into an adjacent site which had a ruined chapel/almshouses with info boards for tourists.
+I found him staring up at the Chapel ruins.
+‘What are you doing,mate?’
+His reply?…..’A long time ago I got married here’
+‘What!?’
+‘A long time ago……’
+Then a switch flicked,he was a 3 year old with energy to burn and was off running again.
+Shook me to my core</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This happened to me when I was 6. I was in my bed sound asleep when I felt the mattress beside me slowly shift as if someone was laying beside me. I opened my eyes and there was a full grown adult woman beside me.
+
+She wasnt particularly scary, just normal looking but she was a strange person in my bed. Of course I opened my mouth to scream but before I did she put her finger to her lips as if to tell me to be quiet. Her eyes looked very frightened and she seemed to be silently pleading for me to keep quiet.
+
+Of course I screamed my guts out and I heard my parents getting up out of their bed. The strange woman just looked very sad, her eyes were full of tears. Dad turned my bedroom light on and as soon as he did she just wasnt there anymore. No sign of her at all. I slept in my parents room that night. I was very scared but even more so I had a deep feeling of sadness.
+
+That was decades ago and I still remember it clearly.
+
+Ive had a few run ins like that, different people though, never that same woman.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. This is my sisters story and idk if it is paranormal or not, but she thought it was a lil spooky.
+
+
+She lived in a tiny lil studio apartment one summer and came home to quickly get a bite to eat, wash up and go back out with friends.
+She puts some bread in the toaster and goes into bathroom to wash face/do makeup etc. She hears the toaster pop and comes out to get it, but the toast is nowhere to be found. She checked the floors, counters everywhere and it was just gone. Toaster was still hot. Really weirded her out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Not sure this counts but I once saw a cat, a hare, a rat, a fox, a seagull and a weasel all standing stock still on a b road near Appleby in late summer a couple of years ago. The weird thing was they were totally still in a perfect circle in the road facing each other, I approached in my car and had to stop, I waited a few seconds then they all seemed to snap out of it and legged it in different directions into the surrounding fields. So odd Ive never been able to work out what they were doing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My first year of university a girl I lived with had her friend over one night. He’d been shooting footage on London Bridge at 3AM to get some shots of it abandoned at night. He was really riled up about something and insisted we watch it with the audio up all the way and listen closely.
+
+Around the 1 minute mark I heard a low, deeply menacing voice whisper slowly “as you walk the devil’s path..” then something unintelligible… then “…death.” It felt so final and evil. He turned to us and said, “did you hear it?” I said I’d heard a voice. “What did it say?” I told him what I’d heard.
+
+His face went white. “You heard the exact same thing as me. You’re not the first.” My housemate said she’d heard the same thing as well. He hadn’t heard the voice when he was on the bridge, only when he was working on the audio, but he’d shown it to other people who had heard the same thing.
+
+I don’t really have any other paranormal encounters so this one might not stand out, but I’m generally wary of paranormal s**t and this still scared me. There was some sort of presence on that bridge at night. It wanted to make itself known. I don’t ever want to know what it was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This is pretty mild, but I took my dog for a walk, got home, went to the corner store 5 minutes away. When I came back opened the door and my whole house smelled like perfume. Locked gate, locked house, security cameras and a dog that barks at everything. I live alone, nobody stopped by and my house smelled like someone ran around spraying Chanel number 5. It doesnt sound believable, Ill never be able to explain it, but it happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Working on ships, some are pretty old and you hear some weird stories.
+
+
+4 years ago during a South American season, I used to hang out with the Brazilians, fun and cool people, one was the gift shop manager.
+
+Hed rant and rant about how his team is lazy and how they keep trying to weasel out of working because they claim to see a little girl running around the gift shop, one night, we were having coffee with the head of the Photography department and hes extra salty, talking about how hell have to do an extra couple of hours because of his team.
+
+In the middle of the night, I get a call from the Photo manager, she tells me our friend in her cabin crying and shivering, I run over, thinking he got some bad news from home or something.
+
+Turns out he was working in his office, the door faces a long mirror that covers most of the wall (clothes section) and after hearing giggling, he saw the shadow of a child through the reflection, as if she was leaning to look into the door while trying to hide, only in the reflection, he says he jumped up and ran out, the giggling and sounds of tiny feet running around the shop and into the Casino (same deck).
+
+Im not big into the paranormal, but the following day I mentioned this to my boss and she told me that about 20 years back, a little girl came out of the theatre with her parents, she was running ahead of them, around the gift shop, but eventually she went into the Casino, coming out at the Atrium, a drop with Glass lifts that go from Deck 12 to 5, so a good drop, she leaned over the railing to look down, lost her balance and fell, breaking her neck on impact and passing.
+
+Apparently it was a common sighting at the Shop and Casino.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I was reading a library book before bed one night when I was a teenager. It was something really boring I had checked out for a history project for school and I couldnt keep my eyes open. I fell asleep with it on my bed. I had like a sleep paralysis event happen and I watched this shadowy figure of a man walk into my room, look around, pick up a few knick-knacks and put them back down. It was so terrifying, my entire body was screaming to move but I couldnt - not even my fingers. I just wanted to scream for help- but nothing happened, no matter how desperately I tried. I finally got enough courage to look at the man but he wouldnt come into focus for some reason... he was just a shadow, like he wasnt fully there. He came up to the side of my bed and stood over me, looking down at me for what felt like forever. I was so terrified but I couldnt move a muscle. Then he reached down, grabbed my library book, and turned, walking out of my room. I never found that library book, ever, after tearing apart my room and my house.
+
+My mom said it was a coping dream for losing the book but I distinctly remember falling asleep reading it that night and I even had sent a text to my boyfriend that night saying that I wished I had chosen a different book because this ome was putting me to sleep. I had to pay a fine and everything!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. At a cemetery in rural Thailand: blue light orbs that jumped from gravestones to the top of the trees.
+
+In Malaysia: seeing a crowd of ragged people crossing a busy intersection. The other three people in the car didnt see anything. This happened in board daylight.
+
+Etc.
+
+Ive been seeing and hearing things since a young age. Tried a lot of things to stop it but none worked. So I just live with it because it doesnt seem to have any detrimental effect on me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Never believed in ghosts, openly mocked people that did. Went camping and my wife and I were going to sleep in the pole barn. Brought the dog into the barn and immediately she was freaking out. Very uncommon for such a relaxed and tired dog. Walking around the air mattress and whining. After about 5 minutes of me telling her to calm down, a light shines through the aluminum siding.
+
+Imagine holding a flashlight on the other side of a curtain doing a figure 8. It seemed like there was some sort of flashlight shining through the aluminum door.
+
+I dont mention anything for a few minutes as Im questioning everything Ive ever known to be true. My wife asks Do you see that?. I say Oh f**k, you see it too?. At that exact moment I realized we both saw it, it turned into the brightest orb Ive ever seen. Lit up the whole barn as if it was daytime. Then it started floating towards us. I yelled at my wife to run and the dog was already at the door. We ran as fast as we could and didnt dare go back to get the air mattress. Our dog never would walk in that pole barn again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I saw a UFO when I was 11 years old. I will swear on this until the day I die.
+
+It was around 9:00-9:30 at night, and it was the spring time. I was wide awake, completely sober, not on any meds.
+
+I looked out the window, and in between my house and my neighbors house were a bunch of trees. It was a wooded area. Well, on the ground in this wooded area was a UFO. Except, the physical surroundings were unaffected. None of the trees were crushed. This UFO sat there for about 5-10 minutes, then slowly took off in the air. In just went around in circles as it got higher, and as it got higher, the circles got wider. This lasted another 5 minutes or so until it vanished</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Ever since I was 10, I’ve always encountered a sleep paralysis episode once a month. This experience I will never forget. I went to sleep really early then I usually do. Probably around 7 or so. I woke up at 2 in the morning and found out I couldn’t move. I tried calling my mom and dad but nothing. Living in a big room was always unsettling for me since there were lots of shadowy corners. I’m saying this because in one corner there was a long dark black figure.
+
+It had no facial features from what I remember. But the legs and that huge long body is what terrified me the most. It crept closer and closer. Every movement felt like hours. Then it got to the side of my bed and their long finger was pointed at me. I closed my eyes and I think that’s when I passed out. I woke up a few hours later at 4 and it was still dark. The figure was gone though. I didn’t get out of my bed or anything. I just cried and cried and cried. I stayed up the rest of the night looking at the corners every second.
+
+The trauma from that was so bad that I had to go see a therapist and my mom pulled me out of school for a few days so I could relax and be to myself. Every now and then I think about that day. And it makes me cry. The thought of me thinking I would die or being taken still scares me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. My dad had s**t going on in his house, so much s**t that almost every kid who would come in, myself, my sisters, my brother and my dad have all had multiple experiences in there.
+
+I remember one time, I was going upstairs to have a shower. The bathroom was the end of the hallway and on the way to it, I had to pass by the room I shared with my sisters when I was over for the weekends. As I passed by, I seen something sit up on the bottom bunk (we had bunk beds in there) out of the corner of my eye. This thing looked like a little girl. She had pale skin, short black hair that was cut in a bob style with straight bangs covering her forehead, and her eyes were these massive circles with large black dots in the center for pupils. She was facing sideways so her right shoulder was facing me when she turned her head, the other half of her body looked like it was under the blankets.
+
+I remember getting such an intense feeling of fear that I went back downstairs and refused to go upstairs at all or even sleep in the house. My dad had to set up the camping tent in the backyard for the rest of the weekend
+
+If this occurrence had been nothing/me just seeing things that werent there, I feel like I shouldnt still remember it in perfect detail at the age I am now (seen it when I was maybe 6 or so. Im 23 now)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I was on a beach called Butterfly beach in Montecito California. It was late at night and I was walking with a gf at the time. We looked at the beach from an elevated walkway and noticed a small black humanoid creature about 4 feet tall with a massive spherical head maybe 2-3 ft in diameter.
+
+The moon caught it just right and it reflected on its spherical head. My gf at the time screamed and the thing jumped into the ocean and swam away. It was just hanging out in the beach watching the moonlight I guess. Nothing I have googled has explained this thing we saw.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Ive told this story before but while my husband and I were driving through the middle of nowhere Nevada in the middle of the night, we swore we saw a gargoyle or something fly across the highway. It had a huge wingspan, 2 arms, and 2 legs. We only saw it for a second as it crossed in front of our car but we both saw the same thing. It could have been some sort of massive bat I guess but gargoyle was definitely what came to mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. One time as a teenager I was making something to eat and randomly heard a bunch of birds chirping super loud. I look up and into the living room and see at least 20 “spirit” birds flying around the room. Think the old style white light effects they used for Tinkerbell. I was a little weirded out (not too much, at that point I was used to hearing/seeing spirits) and was also hearing “say hi to mom!”. So I asked her. I said, “hey mom? Did you ever have birds? Like, lots of birds? Before I was born?” She stopped and looked very confused. She said, “Yeah. I had close to 2 dozen wild parakeets when I was a teenager. Why?”
+I told her because they were all flying around the living room saying hi right then. She had never mentioned before having had birds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I remember as a kid I would explore old abandoned houses and buildings. One time I heard a rattling noise while in this two story house. Followed the sound upstairs and saw a leather belt on the ground, writhing around and twisting like a serpent. I was too scared to touch it and ran away. There was nothing in that room that could have caused it, no windows for drafts or anything. Sometimes I think I just dreamed it because it was so long ago but it felt so real and I can remember all the details.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. My best friend and I found a store that didnt exist.
+
+
+It was full of pagan items and things like it, such as zodiac sign necklaces, candles, and books. It was downtown in our small city, and we were both familiar with the area and had never seen this store before. We ended up not buying anything because we were a couple of broke teenagers, but we did agree that we were going to return when we had more money.
+
+
+Except that when we did have more money, maybe two weeks later, that store was gone. It wasnt that the owner had closed up and left an empty space behind. The doorway no longer existed. It hadnt been freshly bricked over or anything, it just wasnt there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I was working at a summer camp in the PNW one year. On the second or third night there, I was jogging alone back from the staff campfire to the cabin, where the campers and my co-counselor slept. Im walking in this big grassy throughway that has some taller reeds separating it from a shore of the Puget Sound. Its probably... 2am? Full moon.
+
+As Im jogging I see this... person. In the reeds. Its wearing a white gown, and it has no face, just hair. I only notice it because, as I approached it, it stood up from a crouched position, backed up joltily a few steps, then crouched down again, but I could still see it crouching there, like it was waiting. Its movements told me that it was not human. My knees gave out, and I felt flooded with fear as I collapsed. I tried to run back to my cabin but my legs would. not. work. I crawled and scrambled there on all fours. I tried to scream but no sound came out. Just gasping. I finally got to my cabin and fumbled with the doorknob for what felt like a minute before I could open it. I closed the door and stood there waiting for a while inside. I didnt hear anything, but I barely slept.
+
+At some point later that night I remember laughing, thinking Oh, it was just one of the campers peeing! I was hysterically laughing at myself for like twenty minutes, then fell asleep.
+
+Next morning though, I realize that no campers returned to the cabin that could have potentially been out there peeing that night. I asked all of them, and all of them said they hadnt gone out to pee the previous night.
+
+Ill add that this was a camp that was *overtly* for nonreligious, skeptically minded staff and campers, of which I was and still largely am, but I have no explanation for what I saw that night. Still scares the s**t out of me just typing this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. ok, so not really a cryptid, but i reckon ive seen something undocumented:
+
+my wife and i were driving along the highway in remote northern west australia. we come around a corner from behind a hill and theres this massive bird in the middle of the highway ripping into a kangaroo. we slam on the brakes to avoid hitting it and it spreads its wings and flies away. this things wingspan was easily longer than our corolla and the top of the bonnet was probably 2/3 the height of it standing on the road. it looked like a type of eagle.
+
+now, a wedge tail eagle is supposed to be the biggest flighted bird in the world. and ive seen wedgetails, right up close and trained to do tricks. this thing was easily at least 4 times the size as that. it could easily lift off with a dog or small child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. So i was taking a shower when i suddenly heard a faint voice, like a woman sobbing, i got out almost immediately. Apparently my step dad had experienced the same thing, and had also seen what he thought was a girl sitting on his side of the bed, but me and my mom were both out of state at the time. Our things will randomly go missing and reappear as well</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. So mine is dumb, but its the closest Ive got. Summer of 2020 I had just finished up working on an outdoor drive-in concert, and was standing around chatting with the rest of the crew as the audience cleared out. Mid conversation, I saw a woman walk behind the group wheeling a bicycle (I was the only one facing her). I dont know what came over me, but as soon as I saw her I said out loud thats a f*****g ghost, when I looked again she was gone.
+
+What makes bizarre to me is that it was perfectly reasonable for there to be a woman wheeling a bicycle through the parking lot, a big concert had just ended so its not surprising. What was weird was that when I saw this totally normal thing my brain immediately and unequivocally recognized her as a ghost.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Back in June of 2020 my friend, his wife, my dad and some of my friends friends all went on a ghost investigation at Benson Grist Mill. Its a 100+ year old mill that was made by one of the leaders of the mormon church at the time.
+
+Once I got onto the property I instantly felt like I had an apple lodged in my throat. I thought it was anxiety and I just brushed it off. We entered into a house that was on the property and tried to get an evp recording. I felt like something was trying to shove me to the ground.
+
+I then met up with my friend in the basement of the mill and I began to cry for no reason. His wife helped me get out of the mill and calm down. After about 30 minutes I felt the presence of a child telling me to go to the school house. Its as if the child was trying to comfort me. I found out later there was a little girl who passed away near the mill.
+
+I woke up the next morning with bruises on my neck. I went back again and something else happened. I can make another post about it if anyone is interested haha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. When i was a child, my niece who my parents adopted after her parents passed, would tell us about nightmares she had about a clown living in our Airing cupboard (from UK, you could call it a boiler room).
+
+We always just thought it was bad dreams obviously.
+
+My partner on one of the times she slept at my mothers house ahe told me she was having dreams of a clown living in the airing cupboard.
+
+No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. dont know if this counts but when ever im walking in the middle of the night in the dark towards my bedroom it always looks like theirs a figure in front of me and most of the time i attempt to punch that thing in front of me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165685.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">30 Vintage Photos of Old School Celebrities</a><br>
+
+<span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Betty White 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Freddie Mercury Talking To David Bowie. (Live Aid - 1985)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The Young Princess Diana With Her Guinea Pig, Peanut - 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Jimi Hendrix Aged 15, With His First Electric Guitar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sting Giving His Autograph To A Young Gwen Stefani, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shakira, 1990</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Keanu Reeves And Carrie Anne Moss Celebrating The Release Of The Matrix, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Whitney Houston, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Carrie Fisher And A 13 Year Old Warwick Davis Behind The Scenes Of Return Of The Jedi In 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Harrison Ford, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Marilyn Monroe, 1950s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Joaquin Phoenix. 1996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Audrey Hepburn Photographed By Philippe Halsman In Rome (1954)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Marilyn Monroe On A New York City Subway, At Grand Central Station In 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Steve & Terri Irwin In 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Ben Affleck And Matt Damon Calling Their Moms After Winning The Oscar For Good Will Hunting, 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Rose Byrne And Heath Ledger, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Beatles Waiting To Cross Abbey Road, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Meryl Streep During Her Cheerleader Days At Bernards High School, Bernardsville, Nj, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Brittany Murphy, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Janis Joplin In London, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Susan Sarandon, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Tom Cruise, Emilio Estevez, C. Thomas Howell, Patrick Swayze, Ralph Macchio, Rob Lowe And Matt Dillon, The Outsiders - 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Sofia Vergara Pre-Fame At Miami Beach, Early 1990s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Debbie Reynolds And Carrie Fisher (1961)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Robert Downey Jr, Anthony Michael Hall And Uma Thurman, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Stevie Nicks, 1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Jack Nicholson In 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033551/87164551/87113262.jpg" style="width:100%"><br>
 
@@ -1052,65 +1016,293 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033754/87164572/87158769.jpg" style="width:100%"><br>
 
-## <a href="#linky20" id="linky19">30 Vintage Photos of Old School Celebrities</a><br>
+## <a href="#linky17" id="linky16">26 Painfully Funny Memes That Hurt So Good</a><br>
 
-<span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Betty White 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164054.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Freddie Mercury Talking To David Bowie. (Live Aid - 1985)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164055.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The Young Princess Diana With Her Guinea Pig, Peanut - 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164056.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Jimi Hendrix Aged 15, With His First Electric Guitar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164057.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sting Giving His Autograph To A Young Gwen Stefani, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164058.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Shakira, 1990</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164059.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Keanu Reeves And Carrie Anne Moss Celebrating The Release Of The Matrix, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164060.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Whitney Houston, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164061.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Carrie Fisher And A 13 Year Old Warwick Davis Behind The Scenes Of Return Of The Jedi In 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164062.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Harrison Ford, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164063.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Marilyn Monroe, 1950s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164064.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Joaquin Phoenix. 1996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164065.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Audrey Hepburn Photographed By Philippe Halsman In Rome (1954)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164066.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Marilyn Monroe On A New York City Subway, At Grand Central Station In 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164067.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Steve & Terri Irwin In 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164068.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Ben Affleck And Matt Damon Calling Their Moms After Winning The Oscar For Good Will Hunting, 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164069.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Rose Byrne And Heath Ledger, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164070.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Beatles Waiting To Cross Abbey Road, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164071.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Meryl Streep During Her Cheerleader Days At Bernards High School, Bernardsville, Nj, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164072.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Brittany Murphy, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164074.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Janis Joplin In London, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164075.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Susan Sarandon, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164076.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Tom Cruise, Emilio Estevez, C. Thomas Howell, Patrick Swayze, Ralph Macchio, Rob Lowe And Matt Dillon, The Outsiders - 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164077.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Sofia Vergara Pre-Fame At Miami Beach, Early 1990s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164078.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Debbie Reynolds And Carrie Fisher (1961)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164079.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Robert Downey Jr, Anthony Michael Hall And Uma Thurman, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164080.jpg" style="width:100%"><br>
+## <a href="#linky18" id="linky17">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
 
-<span style="font-size:4em">28. Stevie Nicks, 1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164081.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Jack Nicholson In 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164082.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">31 Fascinating Photos and Interesting Images</a><br>
+
+<span style="font-size:4em">1. This cool staircase that goes into the void.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011049/87164428/87158259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This cool transparent leaf I saw today.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011038/87164426/87158262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. These new bathroom stall doors don’t have gaps on the sides.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010622/87164422/87162987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “The white patch of fur on my puppy’s chest looks like a bird in flight.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011031/87164425/87158276.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. A clever design idea for screwdriver and drill bits.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011705/87164430/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. My school has an anvil for the percussion section.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010634/87164424/87162991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Ukrainian soldier with Kriss Vector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Apparently it was Bring Your Goose To Work Day at my friend’s office.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011042/87164427/87158277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012310/87164480/87155036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The indian 1 rupee coin just has a dude giving a thumbs up on it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011056/87164429/87158286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A bottle opener that looks like an exotic bird.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011716/87164431/87155078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This bag for an eye glass company.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011728/87164432/87155079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Nasir-ol-Molk Mosque in Iran, it was built in the 18TH century.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011739/87164433/87155083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A fish sculpture made out of trash recovered from the ocean.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012321/87164481/87155043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Discovered that my tooth implant doesn’t glow like the rest of my teeth under a black light — regular photo for comparison.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012332/87164482/87155071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/012340/87164483/87155044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. 1900 Brothel Candles – those were popular in European brothels between 1880 and 1905 – used as a timer, once the wax is consumed, the session ends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Kedarnath India at Night</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The doors of the C-17 Corrosion Control Hanger at Hickam Air Force Base on Oahu were specifically made to be fitted around the large aft of a Globemaster III</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Kriss Vector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163536.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. US Army has awarded its Next Generation Squad Weapon (NGSW) contract to SIG SAUER to replace its M4/M4A1 carbines & M249 SAW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Hoover Dam spillway tunnel, 50 feet wide & 600 feet deep.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The inside of a Super 8 Projector</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. An artist found a way to convey grief</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. News anchor from the other angle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Some parents, likely now in their 70’s, still looking for their missing child</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Tuscany sword. A Tuscan knight plunged his sword into a rock in the year 1180. He then swore off war and became a hermit. It is believed that this sword evolved into the Excalibur story in the UK (Sword in the stone & King Arthur). The sword remains embedded in the stone to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163543.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. If you don’t pay back your loans in Dubai, this is classed as stealing and you have to go to jail due to Sharia law. This leads to many failed foreign businessman abandoning 1000s of supercars at the airport as they flee the country</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Found this 8 bit styled byte coke in a nearby market.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/010629/87164423/87162993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. This truck is polished so well it takes a second to see it.. it isn’t photoshopped in anyway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Local complications of intranasal cocaine abuse include chronic rhinitis, sinusitis, epistaxis, ossification or necrosis of the nasal septum, and in rare cases, palatal perforation. In this case, a 25-year-old man reported 5 years of nasal cocaine use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163545.jpg" style="width:100%"><br>
+
+## <a href="#linky20" id="linky19">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164608.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111246/87165796/87165256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111257/87165797/87165270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111309/87165798/87165264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111317/87165799/87165267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111320/87165800/87165282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111328/87165801/87165287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111332/87165802/87165294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165803/87165296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165804/87165280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111343/87165805/87165298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111351/87165806/87165596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111355/87165807/87165598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111402/87165808/87165602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111407/87165809/87165609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111413/87165810/87165610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111418/87165811/87165613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111425/87165812/87165626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111429/87165813/87165627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111436/87165814/87165631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111442/87165815/87165636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111448/87165816/87165640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111454/87165817/87165637.jpg" style="width:100%"><br>
 
