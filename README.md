@@ -1,163 +1,97 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/12/2022-13:11:31
+Last updated: 05/12/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">16 People Confess Incredibly Dark Family Secrets</a><br>
+## <a href="#linky2" id="linky1">Zuckerberg Posts a Selfie and Gets Trolled to Hell and Back </a><br>
 
-<span style="font-size:4em">1. My cousin married a serial killer, she had 2 boys with him and he tried to kill one of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164258.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Here is the original selfie which started the Zuck photoshop roasting. The picture shows the roboman with employees of Metas first store cheesing for their overlord. And in typical roast fashion the image was photoshopped.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120504/87165064/zuck-selfie-photoshops2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My uncle had always been a raging alcoholic. A dangerous alcoholic. Well, my aunt married him anyways. They went to Germany for their honeymoon. Only he returned. We asked about the aunt and he pretended like he had no idea what we were talking about and how he has never gotten married.About five years later he married again despite us all trying to tell the woman not to. They went to Jamaica for their honeymoon. Same thing. He came back without her. Again pretended like hes never married. We began suspecting he was killing them. We called the police. They investigated. Nothing turned up. And then the years later, he married again. But COVID happened and they havent gone on a honeymoon.Were not sure shed believe us if we told her. So we have distanced ourselves from my uncle and he remains as the secret we dont talk about. We dont talk about Bruno type situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164246.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lets show how human we can be guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120456/87165063/zuck-selfie-photoshops1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. My cousin is really my sister. My Aunt and Uncle couldnt have kids so my parents did for them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164249.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I see no difference. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120402/87165053/zuck-selfie-photoshops6.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. My father is the youngest of 13 kids. But actually my grandparents only had 9 kids. Grandpa ran a farm and had a truck to deliver the produce from his and the surrounding farms. During WW2 he drove to Amsterdam to deliver food and secretly brought back Jewish boys. He hid them on his farm pretending they were his kids. Partially very nice of him, but he also just needed extra hands to work. After the war most of the boys went home to family members, but 4 of them had no remaining family. He officially adopted those 4 boys and just went on as if they had always been part of the family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164245.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. OH YEAH! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120445/87165061/zuck-selfie-photoshops3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. My moms brother and her dad secretly don’t like her but its sad because she loves them so much</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164250.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120351/87165051/zuck-selfie-photoshops7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. My grandmother on my moms side might be the s**ttiest person Ive ever met. She treats me like c**p because Im a teenager, a girl, and I remind her of my mom who she also tends to treat like c**p. She caused my uncles divorce because she MOVED IN with him and his then wife because shes a hoarder and cant even live in her house anymore. Shes completely ruined my youngest cousin and now he worships her in such a creepy way. Shes also racist, homophobic, sexist, anti-vax, etc. I just hate her. And we cant find a way to cut ties because when were in her state she finds a way to figure out that were there and guilts my parents into visiting. I hate her so much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164251.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Some how the beard makes him look even less like a human. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120454/87165062/zuck-selfie-photoshops11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My grandfather, my Moms Dad, was in the Merchant Marines in the 40s during WW2. It turns out that he was actually honorably discharged in July, 1945 and NOT November, 1945 like hed told everyone. He stayed in California for 4 months, unbeknownst to anyone. To earn extra money to bring home, he made 3 porn movies. He was 32-33 at the time, a big, robust, good looking man. He was married to my grandmother already and my Mom wasnt born until 1947, so they were childless still. We never found any of this out until 1984, when my Dad got a hold of some VHS vintage porn from the 40s and watched it with my Mom. My Mom recognized him right away. He had a very distinctive tattoo on the inside of his lower left forearm. A buddy of his was still alive at the time (1984) and still living in California, so my Mom got in touch. Sure enough, the friend (in his 70s) confirmed it and told her about the 3 movies. He starred in them himself and eventually sent her copies of the other 2 films. My grandfather died in 1969, and my grandmother in 1983. According to my Mom, she was sure no one had any clue.The money my grandfather earned helped to pay off the only car they had at the time and the rest helped to reestablish their nest egg.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164252.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And once the photoshops made their way to Twitter, the jokes started coming in. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120359/87165052/zuck-selfie-photoshops8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I thought my dad had died but apparently he sent me away because I was born with a hearing problem and I wasnt perfect enough for him. I also didnt know I had a sister until four years ago, because my father decided that because my older brother was born, dear old dad could send my sister and I away, putting us both up for adoption. My mom got in the way though and managed to claim me, but I only recently got in touch with my sister and oldest brother, as we all met at Dads funeral after he passed from cancer. Im not sad that hes gone, but I dont hate him. He hated me, but I dont have a reason to hate him. Im not sad though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164254.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Its not going well. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120413/87165055/zuck-selfie-photoshops4.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. It’s actually f*cking awesome. Grandfathers great aunt by marriage ran the most notorious brothel in Sydney and had a lifelong feud with another brothel owner. She did go to the other madams funeral when she died, but as reported by the newspaper “just to make sure the old b***h stays in the ground”. The whole feud started over a dog breeding scam! RIP Tilly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164255.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Too many Marks. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120421/87165056/zuck-selfie-photoshops10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. That I was sexually abused for many many years by an uncle. When I finally worked up the courage to tell my mother, I was forced to keep it a secret so my grandmother wouldnt know the horrible thing her son had done. Im still holding onto this to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164256.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120443/87165060/zuck-selfie-photoshops9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. At twenty-one, when I asked my mother why I had no siblings, she confided that I had actually been born a twin and my brother had died because I choked him with my umbilical cord. She said I must never tell anyone or mention it to my father because he was still upset that it was the boy who had died. I had wanted a brother or sister all my life so was deeply sad and felt incredibly guilty to the point where I unsuccessfully attempted to end my life. (There was other stuff going on too - death of my boyfriend of five years - so I was already in a dark place.)Years later when I was carrying my own twins I began to realise that parts of her story seemed unusual and looked into my birth records. And heres the darkest bit - it turns out there never was a twin. I never confronted her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164257.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120410/87165054/zuck-selfie-photoshops12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Take your pick: The murderer, the murderer who got away, or the one who abused children to death (murdered) without suspicion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164260.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Stuble, but effective. How long did it take you to spot the fangs? Wait, what fangs? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120432/87165058/zuck-selfie-photoshops14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. It’s not actually disturbing or anything but somehow the fact my great gran got admitted to a psyche ward because she became suicidal has become something no one talks about. She died 5 or so years ago and I only found out this year that 20 years ago she was admitted for a few months and both my mum and gran are really ashamed of this fact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164261.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Look into my eyes and come with me aboard my ship. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120423/87165057/zuck-selfie-photoshops5.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Quite some secrets here.- My mom and her sisters were abused by the same uncle when they were little. No one believed my mom when she spoke back in the day, and her sisters never said anything until last year, I think.- My grandad from my moms side was a alcoholic and a violent person. He hit my grandma A LOT, and also hit my uncles when they were little. Everyone in town knows him as a great and kind person, and the greatest friend.- We dont know who my dads father is. My grandma never said a word, never will. The man I call my grandpa on his side doesnt Even look like him. Other people know who my bio grandad is, but no one seems to remember the name. Also my dad doesnt care so idk who my actual grandad is and probably will never know.- Word says my grandad from my dad found his wife sleeping with this other man and set her on fire, leaving her a huge very visible scar on her belly, chest and neck, almost to her face. He denies it all.Theres more, but its getting quite long, so Ill leave it at that. Quite the family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164262.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">30 Vintage Photos of Old School Celebrities</a><br>
 
-<span style="font-size:4em">15. My childhood home burnt down in 2009, when I was 8 years old, and my whole family knows the truth about what really happened that day... Lets say the fire was unaccidentaly accidental...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164263.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The darkest secret our family has is a few streaks of alcoholism here and there and the fact that were so boring that we dont have dark secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164264.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Betty White 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164054.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">26 Painfully Funny Memes That Hurt So Good</a><br>
+<span style="font-size:4em">3. Freddie Mercury Talking To David Bowie. (Live Aid - 1985)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041309/87163628/sad-memes-02.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The Young Princess Diana With Her Guinea Pig, Peanut - 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041321/87163629/sad-memes-03.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Jimi Hendrix Aged 15, With His First Electric Guitar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041332/87163630/sad-memes-01.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Sting Giving His Autograph To A Young Gwen Stefani, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041343/87163631/sad-memes-06.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Shakira, 1990</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041351/87163632/sad-memes-04.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Keanu Reeves And Carrie Anne Moss Celebrating The Release Of The Matrix, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041354/87163633/sad-memes-07.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Whitney Houston, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163634/sad-memes-08.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Carrie Fisher And A 13 Year Old Warwick Davis Behind The Scenes Of Return Of The Jedi In 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041402/87163635/sad-memes-05.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Harrison Ford, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041405/87163636/sad-memes-09.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Marilyn Monroe, 1950s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/09/041413/87163637/sad-memes-10.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Joaquin Phoenix. 1996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163407.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Audrey Hepburn Photographed By Philippe Halsman In Rome (1954)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163410.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Marilyn Monroe On A New York City Subway, At Grand Central Station In 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163405.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Steve & Terri Irwin In 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163399.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Ben Affleck And Matt Damon Calling Their Moms After Winning The Oscar For Good Will Hunting, 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163401.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Rose Byrne And Heath Ledger, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163402.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Beatles Waiting To Cross Abbey Road, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163404.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Meryl Streep During Her Cheerleader Days At Bernards High School, Bernardsville, Nj, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163400.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Brittany Murphy, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163406.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Janis Joplin In London, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163398.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Susan Sarandon, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163408.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Tom Cruise, Emilio Estevez, C. Thomas Howell, Patrick Swayze, Ralph Macchio, Rob Lowe And Matt Dillon, The Outsiders - 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163412.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Sofia Vergara Pre-Fame At Miami Beach, Early 1990s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163403.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Debbie Reynolds And Carrie Fisher (1961)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163414.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Robert Downey Jr, Anthony Michael Hall And Uma Thurman, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163416.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. Stevie Nicks, 1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163417.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Jack Nicholson In 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164082.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">15 Unexpected Details from Industry Insiders</a><br>
+<span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Former hotel worker. If a place is clearly low on guests, you can pretty much get a room for next to nothing if you ask nice enough and are good to the front desk agents. Corporate hates vacancies, so they’d rather have something than nothing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Environmental scientist…….nothing is ever completely cleaned up…..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164087.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Funeral industry here. I have no interest in your dead relative, or anything about them or you. I bury people 6 days a week and cant be bothered to k ow anything more than “does the name on my paperwork match the name on this headstone or flag in the cemetery”. To me, this is just Thursday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164088.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Not really a dirty secret but more of a lot of miscommunication. There is no allergy friendly carpet. If you are allergic to dust the fibers themselves will always cling to dust like velcro regardless of coatings composition or weave. You can get some carpets that are more resistant but if you or a loved one have a serious allergy carpet is a no-go… a myth of wool being better or triexta being better has been perpetrated by people thinking something all natural is always better when they still have the same issues.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Home based service providers are hired directly out of college to be paid low and burn out and then quit. To be replaced by a fresh batch of graduates.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “People might be surprised store-bought name brand food in many circumstances is no different than the generic version. The contract food manufacturer’s just switch out the packaging a lot of the times.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “While filming porn the SMELLS are often HORRIBLE.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “There are a lot of large, old chillers and HVAC units that leak CFCs and HCFCs into the atmosphere that keep getting band-aid patches for years, simply because the owners don’t want to pay the cost to replace them. A LOT.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I am a locksmith. There are plenty of secrets in our industry. But the dirty secret, in my view, is just how many companies there are out there, who will attend a simple lockout job, that could and should be solved with non-destructive entry techniques, and instead drill out the customers lock barrel, risk damaging their nightlatch, and make a mess, then charge the customer over the odds for replacement locks or parts thereof.
-
-That kind of crap makes me furious. If you aren’t in the job to secure and protect your client, using your mechanical and technical skill, if you are in the job to exploit people, victimise them and basically steal from them, then you need arrested and thrown in jail, alongside the people you are supposed to be helping protect your clientele from.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Not my current profession but my previous. If you ordered prime rib from our restaurant we would actually under cut the portions to save more money. The minimum the cooks were instructed to under cut was 1 ounce and up to 2.5 ounces depending on the order size. Guests started realizing the differences from past dining experiences and management was instructed to ‘convince’ them that nothing has changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “The salads at my job are exactly the same size, the small one is just out in a bigger bowl to make it look smaller and we charge more for the “big” salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Pornstar here. “Cum shots” in porn (photos anyways, not videos) are made with facial cleansers, not actual cum. Those cumming will save it for the actual scene itself, not the before pictures.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “I’m a nanny. I don’t follow all the parents rules and do whatever is easiest for me during the day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Working at a strip club. If you don’t tip the dj well or you piss him off, he will put the green lights on you while on stage. The green light makes everyone look x5 worse and it shows every imperfection. Also most of us aren’t actually drinking or drunk. We pretend so men think our guards are down and will spend more because they think they can get away with more. We are great at acting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I worked at a movie theater… every theater has mice. Increased chances to avoid them if you do not sit near the screen or anywhere with curtains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164100.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">New James Webb Telescope Images Make Space Look Brand New</a><br>
-
-<span style="font-size:4em">1. A comparison of the same constellation of stars captured by the Spitzer Space Telescope launched in 2003 and the James Webb Telescope, showcasing a night-and-day difference.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105821/87164997/James-Webb-Photos-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Higher resolution cameras allow us to observe a much higher image density than ever before. As opposed to the Hubble telescope, the James Webb Telescope images capture a lower range of light frequency -- hence the stark difference in the types of colors and light waves shown.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113607/87165043/james-webb-photos-12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The pointed star look of the James Webb telescope images comes from the arrangement of near-perfect mirrors that are used to compose each snapshot of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105833/87164998/james-webb-photos-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Nasas gallery of mirror-alignment test images, showing that in all aspects of calibration the James Webb Telescope is ahead-of or right-on schedule. We couldnt have asked for a more perfect launch and deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105852/87165001/james-webb-photos-02.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The thruster jets of the James Webb Telescope launch on Christmas, last year.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105855/87165002/james-webb-photos-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The James Webb Telescope was launched from the European spaceport that is -- perhaps a little ironically -- in South America at the Guiana Space Centre. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105906/87165004/james-webb-photos-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The final image of our boy leaving Earth. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105903/87165003/james-webb-photos-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A selfie taken by the James Webb Telescope early in its deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105844/87164999/james-webb-photos-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An artist rendering, showing what the James Webb Telescope will look like in space. notice that the gold-coated mirror array is set to function as a perfect mirror, while sections of the device will be essentially invisible in the hard light of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105913/87165005/james-webb-photos-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. An infographic showing how the James Webb Telescope was launched and deployed. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105919/87165006/james-webb-photos-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The worlds most badass telescope sittin in the lab. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113628/87165045/james-webb-photos-14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A scientist goofing around one of the mirror arrays. Notice the reflectivity is crystal clear -- if a little perspective-warped. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113637/87165046/james-webb-photos-13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The fully-coated mirror arrays in all their splendor. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113640/87165047/james-webb-photos-15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The James Webb Telescope being assembled. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113648/87165048/james-webb-photos-16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The absolutely jaw-dropping Golden Spider of the James Webb Telescope. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113723/87165049/james-webb-photos-17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. What hell look like, floating through the void. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113618/87165044/james-webb-photos-11.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">32 People Who Have No Grip On the Real World</a><br>
+## <a href="#linky4" id="linky3">32 People Who Have No Grip On the Real World</a><br>
 
 <span style="font-size:4em">1. My friend stole my card information and bought loads of expensive stuff. I asked her if it was her before reporting it, knowing that a) she was going through a tough time and I wanted to give her a chance to make it right and b) that I could be in trouble for conspiracy to fraud if I reported it and they believed Id got stuff delivered to my friend to claim fraud for the money back. She said no, I thought someone else had done it so I reported it.When she got arrested she said she didnt think theyd take the fraud thing so far. She thought you could just call up banks to get the money back and they wouldnt investigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164148.jpg" style="width:100%"><br>
 
@@ -223,7 +157,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">32. Often you can see young people supporting socialism / communism, while being either ignorant or in denial of the horrors it caused in the soviet union and Maos China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164176.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">42 Memes That May Be Hard To Argue With.</a><br>
+## <a href="#linky5" id="linky4">42 Memes That May Be Hard To Argue With.</a><br>
 
 <span style="font-size:4em">1. I mean I guess if youre writing and starring in the movie, why wouldnt you set yourself up with a hottie for a wife?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163527.jpg" style="width:100%"><br>
 
@@ -309,59 +243,7 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163528.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">25 Trashiest Wedding Stories Ever Told</a><br>
+## <a href="#linky6" id="linky5">25 Trashiest Wedding Stories Ever Told</a><br>
 
 <span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
 
@@ -429,7 +311,7 @@ Now the bride got angry and there was much back and forth with various family me
 <span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">31 Dank Memes We Can All Abide By</a><br>
+## <a href="#linky7" id="linky6">31 Dank Memes We Can All Abide By</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164682.jpg" style="width:100%"><br>
 
@@ -491,7 +373,7 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
+## <a href="#linky8" id="linky7">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
 
@@ -503,7 +385,41 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">28 WTF Moments in History We Don't Talk About</a><br>
+## <a href="#linky9" id="linky8">New James Webb Telescope Images Make Space Look Brand New</a><br>
+
+<span style="font-size:4em">1. A comparison of the same constellation of stars captured by the Spitzer Space Telescope launched in 2003 and the James Webb Telescope, showcasing a night-and-day difference.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105821/87164997/James-Webb-Photos-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Higher resolution cameras allow us to observe a much higher image density than ever before. As opposed to the Hubble telescope, the James Webb Telescope images capture a lower range of light frequency -- hence the stark difference in the types of colors and light waves shown.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113607/87165043/james-webb-photos-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The pointed star look of the James Webb telescope images comes from the arrangement of near-perfect mirrors that are used to compose each snapshot of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105833/87164998/james-webb-photos-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Nasas gallery of mirror-alignment test images, showing that in all aspects of calibration the James Webb Telescope is ahead-of or right-on schedule. We couldnt have asked for a more perfect launch and deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105852/87165001/james-webb-photos-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The thruster jets of the James Webb Telescope launch on Christmas, last year.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105855/87165002/james-webb-photos-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The James Webb Telescope was launched from the European spaceport that is -- perhaps a little ironically -- in South America at the Guiana Space Centre. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105906/87165004/james-webb-photos-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The final image of our boy leaving Earth. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105903/87165003/james-webb-photos-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. A selfie taken by the James Webb Telescope early in its deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105844/87164999/james-webb-photos-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An artist rendering, showing what the James Webb Telescope will look like in space. notice that the gold-coated mirror array is set to function as a perfect mirror, while sections of the device will be essentially invisible in the hard light of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105913/87165005/james-webb-photos-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. An infographic showing how the James Webb Telescope was launched and deployed. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105919/87165006/james-webb-photos-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The worlds most badass telescope sittin in the lab. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113628/87165045/james-webb-photos-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A scientist goofing around one of the mirror arrays. Notice the reflectivity is crystal clear -- if a little perspective-warped. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113637/87165046/james-webb-photos-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The fully-coated mirror arrays in all their splendor. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113640/87165047/james-webb-photos-15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The James Webb Telescope being assembled. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113648/87165048/james-webb-photos-16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The absolutely jaw-dropping Golden Spider of the James Webb Telescope. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113723/87165049/james-webb-photos-17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. What hell look like, floating through the void. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113618/87165044/james-webb-photos-11.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">28 WTF Moments in History We Don't Talk About</a><br>
 
 <span style="font-size:4em">1. In the 1970s, a film team was filming an episode of The Six Million Dollar Man at an amusement park fun house. A stage hand was moving a fake wax figure on a rope when one arm fell off, revealing human flesh and bone underneath. Following an autopsy, it was discovered to be the body of a 60-year-old outlaw who had been taxidermied to some extent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164860.jpg" style="width:100%"><br>
 
@@ -559,163 +475,7 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">EDIT: After the executioner was done, he picked up her head by the hair, not knowing it was a wig, and the head fell out and rolled onto the floor (thanks Plug_5 and moiochi for reminding me)After Mary was properly [unalived], her body was left for public viewing, but the audience was surprised to see her red dress start to rustle before allowing Marys small terrier dog to climb out from underneath. Tragically, the dog refused to leave the body and eventually passed away after staying at the same spot for a lengthy amount of time.History buffs, please feel free to make any corrections as I heard this story a while ago and probably made a few errors in my recalling! :)TL;DR: Mary, Queen of Scots avoided crazy memorabilia-savers at her execution with a very intelligent move, got shanked in the head during a failed attempt, the executioner dropped her head onto the floor, and had her dog in her dress with her the entire time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164876.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Weird Things You Never Knew About Mussolini</a><br>
-
-<span style="font-size:4em">1. Mel Brooks initially titled The Producers as Springtime for Hitler, named after the fictitious musical that drove the plot. Universal expressed an interest, but wanted it to be changed to Springtime for Mussolini, as Mussolinis nicer.
- 
--u/AbathaCrispy
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Mussolini did not participate in the March on Rome. Mussolini appointed leaders of the march and took pictures with them but went to Milan, only arriving in Rome a day later after the march had succeeded.
- 
--u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. One of Emperor Caligula’s floating/pleasure palaces was built and anchored on Lake Nemi. Sunk later in the first century, it was recovered in a feat of engineering sponsored by Benito Mussolini in the 1930s, but destroyed during a German retreat in 1944.
- 
--u/BronxLens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Milhouse from the Simpsons was named after U.S president Richard Milhous Nixon. The name was the most unfortunate name Matt Groening could think of for a child. Later in the series, it was also revealed that Milhouses middle name was Mussolini
- 
--u/jvst_joshin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After the Italian government arrested Mussolini following the fall of Rome, Hitler sent a squadron of gliders to rescue him from a mountaintop castle. The operation was a success, without a shot being fired.
- 
--u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Raffaele Bendandi was an Italian clockmaker who could predict earthquakes, such as the 1915 Avezzano earthquake which killed 30,000, using a self taught method that wasnt backed by science. Mussolini made Bendandi a Knight but banned his public predictions in 1928 because it harmed tourism.
- 
--u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Mussolini ordered the execution of his son-in law
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Rachele Mussolini had five children with the Italian dicatator, some of them living to old age in the 1990s. After the war, Rachele Mussolini ran a restaurant in her native village of Predappio, where she served pasta dishes
- 
--u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. From 1917 to 1918 British Intelligence paid an Italian journalist the modern equivalent of £6,000 (US$ 8,290) per week to keep up the pro-war campaigning. The cash got him a start in politics, and was also allegedly lavished on his many mistresses. The journalist was 34-year-old Benito Mussolini
- 
--u/Brutal_Deluxe_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Italian fascist dictator Benito Mussolini had his first wife (married 1914) imprisoned and their son, Benito Albino Mussolini, forcibly interned in an asylum in Mombello, Province of Milan, where he was murdered on 26 August 1942 after repeated coma-inducing injections, at 26.
- 
--u/Looking_At_The_Past</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mussolinis great-grandson is a soccer player who plays on the right wing at Lazio
- 
--u/elbenji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mussolini’s granddaughter is a right-wing politician in Italy.
- 
--u/mr_oberts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nobel Peace Prize nominees included Hitler, Stalin, and Mussolini
- 
--u/an_astrophysicist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1932, Mussolini described antisemitism as a German vice and stated that There was no Jewish Question in Italy and could not be one in a country with a healthy system of government.
- 
--u/JoeFalchetto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165784.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Mussolini was so jealous of Germanys gains in Europe, he warned Belgium and the Netherlands about the oncoming German invasion
- 
--u/VLenin2291</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Maserati worked hard and failed to construct a V16 town car for Benito Mussolini before Ferry Porsche of Volkswagen built one for Adolf Hitler
- 
--u/rosesandtherest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Benito Mussolini was highly superstitious and anti-clerical. After he learned about the curse of the Pharaohs, he ordered the immediate removal of an Egyptian mummy from Palazzo Chigi in Rome which he had accepted as a gift. He also shocked audiences several times by daring to be struck dead.
- 
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165787.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. After the Nazi assassination of Austrian Chancellor Engelbert Dollfuss, Fascist Italian dictator Mussolini mobilized the Italian army on the Austrian border and threatened Hitler with open war if German troops crossed into Austria.
- 
--u/verostein</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The corpses of Mussolini and his mistress were beaten and urinated upon and finally left to hang upside down, for public display, from a rusty beam outside a petrol station
- 
--u/Wagamaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Mussolini believed pasta was the reason for many problems in the Italian society and pushed for rice-based food like risotto. He had support from artists of Italian Futurism, who claimed that pasta made people weak and lazy.
- 
--u/Altairve</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. That Mussolinis Fascist Revolutionary Party tried to out-socialist the socialists in Italys 1919 elections & the socialists received 40 times as many votes. Mussolini lost so badly that he received zero votes in his home town & the socialists held a mock funeral procession for his career.
- 
--u/Dhididnfbndk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hitler, Mussolini, and Himmler once all flew on Hitlers plane, and during that flight, Mussolini sat in the cockpit and briefly took the controls for about an hour. After the flight, Mussolini directed his staff to tell people that he had flown Hitler home from the front.
- 
--u/roraima_is_very_tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Benito Mussolini wrote a romance novel: The Cardinals Mistress
- 
--u/Awesomeuser90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Benito Mussolini had a pet lion
- 
--u/TheTravelier</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Benito Mussolini signed Vatican City into existence. The 1929 Lateran Treaty ended the dispute between the Italian government & the Catholic Church, which allowed the Vatican to exist as its own sovereign state and compensated the church $92 million (> $1 billion today) for the Papal states.
- 
--u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165795.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">26 Charts Filled With Random Knowledge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165236.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165231.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165232.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165233.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165234.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165235.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165237.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165229.gif" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165254.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">31 Fascinating Photos and Interesting Images</a><br>
+## <a href="#linky11" id="linky10">31 Fascinating Photos and Interesting Images</a><br>
 
 <span style="font-size:4em">1. This cool staircase that goes into the void.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/011049/87164428/87158259.jpg" style="width:100%"><br>
 
@@ -779,197 +539,63 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">31. Local complications of intranasal cocaine abuse include chronic rhinitis, sinusitis, epistaxis, ossification or necrosis of the nasal septum, and in rare cases, palatal perforation. In this case, a 25-year-old man reported 5 years of nasal cocaine use.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163545.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">12 Life Tips Everyone Should Know</a><br>
+## <a href="#linky12" id="linky11">Madonna Needs Some Serious Help</a><br>
 
-<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
-The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
-Unlock Developer Options:
-
-Settings > About Phone > 7x tap on Build Number
-
-Decrease animation time:
-
-Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Your parents took decades to furnish their house.
-If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
-
-It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
-I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
-Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
-Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
-The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
-16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
-
-14,606 – Starbucks stores in the U.S. in 2018
-
-13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
+## <a href="#linky13" id="linky12">16 People Confess Incredibly Dark Family Secrets</a><br>
 
-<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. My cousin married a serial killer, she had 2 boys with him and he tried to kill one of them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164258.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">20 Ways (Crazy) People Got Revenge</a><br>
+<span style="font-size:4em">2. My uncle had always been a raging alcoholic. A dangerous alcoholic. Well, my aunt married him anyways. They went to Germany for their honeymoon. Only he returned. We asked about the aunt and he pretended like he had no idea what we were talking about and how he has never gotten married.About five years later he married again despite us all trying to tell the woman not to. They went to Jamaica for their honeymoon. Same thing. He came back without her. Again pretended like hes never married. We began suspecting he was killing them. We called the police. They investigated. Nothing turned up. And then the years later, he married again. But COVID happened and they havent gone on a honeymoon.Were not sure shed believe us if we told her. So we have distanced ourselves from my uncle and he remains as the secret we dont talk about. We dont talk about Bruno type situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. I shitted the bed and blamed the dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163725.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My cousin is really my sister. My Aunt and Uncle couldnt have kids so my parents did for them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164249.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Was bullied by a kid a lot in 6th grade. I met his older sister at a bar when I was 21 and slept with her.I didn’t rub it in his face since I never talked to him after 6th grade, but I’m sure he knows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163727.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My father is the youngest of 13 kids. But actually my grandparents only had 9 kids. Grandpa ran a farm and had a truck to deliver the produce from his and the surrounding farms. During WW2 he drove to Amsterdam to deliver food and secretly brought back Jewish boys. He hid them on his farm pretending they were his kids. Partially very nice of him, but he also just needed extra hands to work. After the war most of the boys went home to family members, but 4 of them had no remaining family. He officially adopted those 4 boys and just went on as if they had always been part of the family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I made an entire bar break out in a brawl because I ate a bag of chips. No joke.Three guys were verbally harassing me in a small-town dive bar. This woman comes in from a smoke and yells to the bartender “give me a bag of chips!” on her way to the bathroom.He sets them down at her seat next to me. I inhale these chips and carefully slide them near the guys when they aren’t looking.She comes out, sees the bag and starts getting in their faces. Her husband sees the commotion and gets involved and fists start flying.I ducked out as the husband entered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163728.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My moms brother and her dad secretly don’t like her but its sad because she loves them so much</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164250.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Hit a person with a cactus once…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163729.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My grandmother on my moms side might be the s**ttiest person Ive ever met. She treats me like c**p because Im a teenager, a girl, and I remind her of my mom who she also tends to treat like c**p. She caused my uncles divorce because she MOVED IN with him and his then wife because shes a hoarder and cant even live in her house anymore. Shes completely ruined my youngest cousin and now he worships her in such a creepy way. Shes also racist, homophobic, sexist, anti-vax, etc. I just hate her. And we cant find a way to cut ties because when were in her state she finds a way to figure out that were there and guilts my parents into visiting. I hate her so much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164251.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Got my Christian school bully’s parents divorced.I forget what TGIF show I lifted the bit from but when I met the kids mom I said “then who was that lady your dad kissed?”.Which set off a chain reaction that eventually led to their divorce that very year.I was just trying to be a smart aleck but I got a natural 20 and shit just sorta happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163730.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My grandfather, my Moms Dad, was in the Merchant Marines in the 40s during WW2. It turns out that he was actually honorably discharged in July, 1945 and NOT November, 1945 like hed told everyone. He stayed in California for 4 months, unbeknownst to anyone. To earn extra money to bring home, he made 3 porn movies. He was 32-33 at the time, a big, robust, good looking man. He was married to my grandmother already and my Mom wasnt born until 1947, so they were childless still. We never found any of this out until 1984, when my Dad got a hold of some VHS vintage porn from the 40s and watched it with my Mom. My Mom recognized him right away. He had a very distinctive tattoo on the inside of his lower left forearm. A buddy of his was still alive at the time (1984) and still living in California, so my Mom got in touch. Sure enough, the friend (in his 70s) confirmed it and told her about the 3 movies. He starred in them himself and eventually sent her copies of the other 2 films. My grandfather died in 1969, and my grandmother in 1983. According to my Mom, she was sure no one had any clue.The money my grandfather earned helped to pay off the only car they had at the time and the rest helped to reestablish their nest egg.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164252.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Had a wet fart in bed and blamed the wife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163731.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I thought my dad had died but apparently he sent me away because I was born with a hearing problem and I wasnt perfect enough for him. I also didnt know I had a sister until four years ago, because my father decided that because my older brother was born, dear old dad could send my sister and I away, putting us both up for adoption. My mom got in the way though and managed to claim me, but I only recently got in touch with my sister and oldest brother, as we all met at Dads funeral after he passed from cancer. Im not sad that hes gone, but I dont hate him. He hated me, but I dont have a reason to hate him. Im not sad though.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. They usually do it to themselves from my experience I just sit back and watch the stupid and let them know I love this part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163732.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. It’s actually f*cking awesome. Grandfathers great aunt by marriage ran the most notorious brothel in Sydney and had a lifelong feud with another brothel owner. She did go to the other madams funeral when she died, but as reported by the newspaper “just to make sure the old b***h stays in the ground”. The whole feud started over a dog breeding scam! RIP Tilly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164255.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Eat a nature valley bar in their bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163733.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. That I was sexually abused for many many years by an uncle. When I finally worked up the courage to tell my mother, I was forced to keep it a secret so my grandmother wouldnt know the horrible thing her son had done. Im still holding onto this to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164256.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Old landlord wouldn’t give me back my deposit that I felt should have been given back. Went back in one last time, removed a wall light switch cover, broke a hole in the electrical box and poured a bag of sugar into the wall.Put the switch cover back on and left. They fought roaches and bugs for months.It’s the little things that help me get through life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163734.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. At twenty-one, when I asked my mother why I had no siblings, she confided that I had actually been born a twin and my brother had died because I choked him with my umbilical cord. She said I must never tell anyone or mention it to my father because he was still upset that it was the boy who had died. I had wanted a brother or sister all my life so was deeply sad and felt incredibly guilty to the point where I unsuccessfully attempted to end my life. (There was other stuff going on too - death of my boyfriend of five years - so I was already in a dark place.)Years later when I was carrying my own twins I began to realise that parts of her story seemed unusual and looked into my birth records. And heres the darkest bit - it turns out there never was a twin. I never confronted her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164257.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. They were looking for something, and I knew where it was. So I moved it somewhere they’d never look lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163726.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Take your pick: The murderer, the murderer who got away, or the one who abused children to death (murdered) without suspicion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164260.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I hit a bully on the head with a shovel on the beach after he threatened to beat me up.Next week (after going to the hospital) he wasn’t a bully but actually kind of nice towards me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163735.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. It’s not actually disturbing or anything but somehow the fact my great gran got admitted to a psyche ward because she became suicidal has become something no one talks about. She died 5 or so years ago and I only found out this year that 20 years ago she was admitted for a few months and both my mum and gran are really ashamed of this fact.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164261.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Walking away and living rent-free in their head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163736.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Quite some secrets here.- My mom and her sisters were abused by the same uncle when they were little. No one believed my mom when she spoke back in the day, and her sisters never said anything until last year, I think.- My grandad from my moms side was a alcoholic and a violent person. He hit my grandma A LOT, and also hit my uncles when they were little. Everyone in town knows him as a great and kind person, and the greatest friend.- We dont know who my dads father is. My grandma never said a word, never will. The man I call my grandpa on his side doesnt Even look like him. Other people know who my bio grandad is, but no one seems to remember the name. Also my dad doesnt care so idk who my actual grandad is and probably will never know.- Word says my grandad from my dad found his wife sleeping with this other man and set her on fire, leaving her a huge very visible scar on her belly, chest and neck, almost to her face. He denies it all.Theres more, but its getting quite long, so Ill leave it at that. Quite the family.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. It’s not really revenge so much as karma, but my ex who cheated on me with another woman found out that she was lying to him about who she was…Apparently, she was married, had 3 kids, didn’t look like her photos, had a different job than what she said etc. basically had been catfishing him lolI didn’t have much empathy for him and I said “yeah it sucks being lied to and trusting someone to be who they claim to be, being lead on and have the values they claim to have etc”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163738.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My childhood home burnt down in 2009, when I was 8 years old, and my whole family knows the truth about what really happened that day... Lets say the fire was unaccidentaly accidental...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164263.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I cut a piece of my cousins hair off while she was sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163739.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. The darkest secret our family has is a few streaks of alcoholism here and there and the fact that were so boring that we dont have dark secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Found out my then boyfriend was cheating on me so I gave him a pregnancy scare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My ex got with my best friend, so I started talking to him again, getting with him, got to the point where we were close to getting into a relationship, then got with one of his friends</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I taught the dog to destroy my parent’s things when I was mad as a kid…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. my lil sister once got me trouble when we were little so I snuck bologna in her pillow and she slept on it for weeks until it molded</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Had a fight in school with a guy because im close friends with his girl. F--ked her on the weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163744.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">30 Vintage Photos of Old School Celebrities</a><br>
-
-<span style="font-size:4em">1. Elton John And Cher (1975)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Betty White 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Freddie Mercury Talking To David Bowie. (Live Aid - 1985)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The Young Princess Diana With Her Guinea Pig, Peanut - 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Jimi Hendrix Aged 15, With His First Electric Guitar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sting Giving His Autograph To A Young Gwen Stefani, 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Shakira, 1990</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Keanu Reeves And Carrie Anne Moss Celebrating The Release Of The Matrix, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Whitney Houston, 1982</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Carrie Fisher And A 13 Year Old Warwick Davis Behind The Scenes Of Return Of The Jedi In 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Harrison Ford, 1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Marilyn Monroe, 1950s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Joaquin Phoenix. 1996</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Audrey Hepburn Photographed By Philippe Halsman In Rome (1954)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Marilyn Monroe On A New York City Subway, At Grand Central Station In 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Steve & Terri Irwin In 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Ben Affleck And Matt Damon Calling Their Moms After Winning The Oscar For Good Will Hunting, 1997</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Rose Byrne And Heath Ledger, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The Beatles Waiting To Cross Abbey Road, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Meryl Streep During Her Cheerleader Days At Bernards High School, Bernardsville, Nj, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Brittany Murphy, 1999</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Janis Joplin In London, 1969</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Susan Sarandon, 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Tom Cruise, Emilio Estevez, C. Thomas Howell, Patrick Swayze, Ralph Macchio, Rob Lowe And Matt Dillon, The Outsiders - 1983</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Sofia Vergara Pre-Fame At Miami Beach, Early 1990s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Debbie Reynolds And Carrie Fisher (1961)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Robert Downey Jr, Anthony Michael Hall And Uma Thurman, 1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Stevie Nicks, 1980</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Jack Nicholson In 1972</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Singer Jimmie Rodgers And His Wife Colleen On Their Wedding Day In Camas, Wa In 1957. Four Months Later He Would Be Discovered And Record His First Of Many Million Selling Songs (Honeycomb). These Are My Parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164083.jpg" style="width:100%"><br>
-
-## <a href="#linky20" id="linky19">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
+## <a href="#linky14" id="linky13">41 Memes and Pics Dug up From the Dungeon of Dankness</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033551/87164551/87113262.jpg" style="width:100%"><br>
 
@@ -1100,4 +726,222 @@ The next time you see a mass post or “share this on” message asking for info
 <span style="font-size:4em">64. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033747/87164571/87158764.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">65. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/10/033754/87164572/87158769.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">24 Times Instagrammers Got a Hefty Dose of Reality</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164052.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">15 Unexpected Details from Industry Insiders</a><br>
+
+<span style="font-size:4em">1. “Former hotel worker. If a place is clearly low on guests, you can pretty much get a room for next to nothing if you ask nice enough and are good to the front desk agents. Corporate hates vacancies, so they’d rather have something than nothing.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Environmental scientist…….nothing is ever completely cleaned up…..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Funeral industry here. I have no interest in your dead relative, or anything about them or you. I bury people 6 days a week and cant be bothered to k ow anything more than “does the name on my paperwork match the name on this headstone or flag in the cemetery”. To me, this is just Thursday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Not really a dirty secret but more of a lot of miscommunication. There is no allergy friendly carpet. If you are allergic to dust the fibers themselves will always cling to dust like velcro regardless of coatings composition or weave. You can get some carpets that are more resistant but if you or a loved one have a serious allergy carpet is a no-go… a myth of wool being better or triexta being better has been perpetrated by people thinking something all natural is always better when they still have the same issues.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Home based service providers are hired directly out of college to be paid low and burn out and then quit. To be replaced by a fresh batch of graduates.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “People might be surprised store-bought name brand food in many circumstances is no different than the generic version. The contract food manufacturer’s just switch out the packaging a lot of the times.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “While filming porn the SMELLS are often HORRIBLE.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “There are a lot of large, old chillers and HVAC units that leak CFCs and HCFCs into the atmosphere that keep getting band-aid patches for years, simply because the owners don’t want to pay the cost to replace them. A LOT.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I am a locksmith. There are plenty of secrets in our industry. But the dirty secret, in my view, is just how many companies there are out there, who will attend a simple lockout job, that could and should be solved with non-destructive entry techniques, and instead drill out the customers lock barrel, risk damaging their nightlatch, and make a mess, then charge the customer over the odds for replacement locks or parts thereof.
+
+That kind of crap makes me furious. If you aren’t in the job to secure and protect your client, using your mechanical and technical skill, if you are in the job to exploit people, victimise them and basically steal from them, then you need arrested and thrown in jail, alongside the people you are supposed to be helping protect your clientele from.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Not my current profession but my previous. If you ordered prime rib from our restaurant we would actually under cut the portions to save more money. The minimum the cooks were instructed to under cut was 1 ounce and up to 2.5 ounces depending on the order size. Guests started realizing the differences from past dining experiences and management was instructed to ‘convince’ them that nothing has changed.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “The salads at my job are exactly the same size, the small one is just out in a bigger bowl to make it look smaller and we charge more for the “big” salad.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Pornstar here. “Cum shots” in porn (photos anyways, not videos) are made with facial cleansers, not actual cum. Those cumming will save it for the actual scene itself, not the before pictures.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “I’m a nanny. I don’t follow all the parents rules and do whatever is easiest for me during the day.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Working at a strip club. If you don’t tip the dj well or you piss him off, he will put the green lights on you while on stage. The green light makes everyone look x5 worse and it shows every imperfection. Also most of us aren’t actually drinking or drunk. We pretend so men think our guards are down and will spend more because they think they can get away with more. We are great at acting.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I worked at a movie theater… every theater has mice. Increased chances to avoid them if you do not sit near the screen or anywhere with curtains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164100.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">20 Ways (Crazy) People Got Revenge</a><br>
+
+<span style="font-size:4em">1. I shitted the bed and blamed the dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Was bullied by a kid a lot in 6th grade. I met his older sister at a bar when I was 21 and slept with her.I didn’t rub it in his face since I never talked to him after 6th grade, but I’m sure he knows.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I made an entire bar break out in a brawl because I ate a bag of chips. No joke.Three guys were verbally harassing me in a small-town dive bar. This woman comes in from a smoke and yells to the bartender “give me a bag of chips!” on her way to the bathroom.He sets them down at her seat next to me. I inhale these chips and carefully slide them near the guys when they aren’t looking.She comes out, sees the bag and starts getting in their faces. Her husband sees the commotion and gets involved and fists start flying.I ducked out as the husband entered.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Hit a person with a cactus once…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Got my Christian school bully’s parents divorced.I forget what TGIF show I lifted the bit from but when I met the kids mom I said “then who was that lady your dad kissed?”.Which set off a chain reaction that eventually led to their divorce that very year.I was just trying to be a smart aleck but I got a natural 20 and shit just sorta happened.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Had a wet fart in bed and blamed the wife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163731.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. They usually do it to themselves from my experience I just sit back and watch the stupid and let them know I love this part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163732.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Eat a nature valley bar in their bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Old landlord wouldn’t give me back my deposit that I felt should have been given back. Went back in one last time, removed a wall light switch cover, broke a hole in the electrical box and poured a bag of sugar into the wall.Put the switch cover back on and left. They fought roaches and bugs for months.It’s the little things that help me get through life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. They were looking for something, and I knew where it was. So I moved it somewhere they’d never look lol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I hit a bully on the head with a shovel on the beach after he threatened to beat me up.Next week (after going to the hospital) he wasn’t a bully but actually kind of nice towards me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Walking away and living rent-free in their head.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. It’s not really revenge so much as karma, but my ex who cheated on me with another woman found out that she was lying to him about who she was…Apparently, she was married, had 3 kids, didn’t look like her photos, had a different job than what she said etc. basically had been catfishing him lolI didn’t have much empathy for him and I said “yeah it sucks being lied to and trusting someone to be who they claim to be, being lead on and have the values they claim to have etc”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I cut a piece of my cousins hair off while she was sleeping.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Found out my then boyfriend was cheating on me so I gave him a pregnancy scare</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My ex got with my best friend, so I started talking to him again, getting with him, got to the point where we were close to getting into a relationship, then got with one of his friends</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I taught the dog to destroy my parent’s things when I was mad as a kid…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. my lil sister once got me trouble when we were little so I snuck bologna in her pillow and she slept on it for weeks until it molded</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Had a fight in school with a guy because im close friends with his girl. F--ked her on the weekend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163744.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165355.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165358.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165361.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165362.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165363.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165365.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165367.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165368.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165369.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165370.jpg" style="width:100%"><br>
+
+## <a href="#linky19" id="linky18">12 Life Tips Everyone Should Know</a><br>
+
+<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
+The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
+Unlock Developer Options:
+
+Settings > About Phone > 7x tap on Build Number
+
+Decrease animation time:
+
+Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Your parents took decades to furnish their house.
+If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
+
+It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
+I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
+Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
+Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
+The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
+16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
+
+14,606 – Starbucks stores in the U.S. in 2018
+
+13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
 
