@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/12/2022-22:11:31
+Last updated: 05/12/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
 
@@ -179,33 +179,71 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">16. The darkest secret our family has is a few streaks of alcoholism here and there and the fact that were so boring that we dont have dark secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164264.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">Zuckerberg Posts a Selfie and Gets Trolled to Hell and Back </a><br>
+## <a href="#linky7" id="linky6">32 People Who Have No Grip On the Real World</a><br>
 
-<span style="font-size:4em">1. Here is the original selfie which started the Zuck photoshop roasting. The picture shows the roboman with employees of Metas first store cheesing for their overlord. And in typical roast fashion the image was photoshopped.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120504/87165064/zuck-selfie-photoshops2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. My friend stole my card information and bought loads of expensive stuff. I asked her if it was her before reporting it, knowing that a) she was going through a tough time and I wanted to give her a chance to make it right and b) that I could be in trouble for conspiracy to fraud if I reported it and they believed Id got stuff delivered to my friend to claim fraud for the money back. She said no, I thought someone else had done it so I reported it.When she got arrested she said she didnt think theyd take the fraud thing so far. She thought you could just call up banks to get the money back and they wouldnt investigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Lets show how human we can be guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120456/87165063/zuck-selfie-photoshops1.png" style="width:100%"><br>
+<span style="font-size:4em">2. My brother told me “I’m avoiding Asian people if I see them on the street or anything. You know, for safety because of the coronavirus.” He’s Asian. OUR ENTIRE FAMILY IS ASIAN.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I see no difference. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120402/87165053/zuck-selfie-photoshops6.png" style="width:100%"><br>
+<span style="font-size:4em">3. Work with a girl who is a flat earther and on top of that denied the existence of space. When the topic came up and I disagreed she asked if I had ever been there... obviously I havent. I told her I have also never been to Japan and that does not mean it doesnt exist.She complained to management about my intolerance of her beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. OH YEAH! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120445/87165061/zuck-selfie-photoshops3.png" style="width:100%"><br>
+<span style="font-size:4em">4. I dated this girl who believed her roommates were spying on her. That every time they had friends over and were hanging out in the common space and laughing, it was because they were spying on her in her room. She also believed the government was spying on her and her parents directly. Us dating lasted about a week and ended not just because the red flags, but because she tried to drop by unannounced after only being on a couple dates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164173.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120351/87165051/zuck-selfie-photoshops7.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I will never forget the man who angrily told me, a wheelchair user with no feet and no prosthetics, to go down the stairs if I didn’t want to wait for the elevator (I had been talking to my friend, and mentioned we were going to be a little late because of the huge line).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Some how the beard makes him look even less like a human. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120454/87165062/zuck-selfie-photoshops11.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I knew a girl who cheated on her boyfriend. When he found out, he broke up with her. She said you cant break up with me, it has to be mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. And once the photoshops made their way to Twitter, the jokes started coming in. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120359/87165052/zuck-selfie-photoshops8.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Parents of a 35 years old woman, who was hospitalized after suffering severe anoxic brain damage 20 years ago. She had been in the same ward since, barely conscious.They refused to get her transferred to a more suitable facility for 20 years, saying that theres no reason to do so: those facilities are for lost causes, and their daughter is going to make a full recovery, finish school, get married and be totally fine.Working in hospitals got me quite a collection of these stories, but this one I thought was one of the saddest ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Its not going well. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120413/87165055/zuck-selfie-photoshops4.png" style="width:100%"><br>
+<span style="font-size:4em">8. An ex became really religious and Id still talk to her sometimes. Somehow the topic of flat earth theories came up and she said she thinks its actually possible that it could be true. I tried to explain that we have more than enough imagery and data indicating that the earth is round, and she said it could all be planted there by Satan.You just cant come up with a response to that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Too many Marks. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120421/87165056/zuck-selfie-photoshops10.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My mother, and a several people in my family, believe that God marks people. If someone ultimately has a good soul theyre white and Im sure you can guess where it goes from there. If only non-White did s**tty things that would make sense but you dont even have to look at much of the world to see that is not the case. When I try to bring up that tons of white people do awful things her logic is theyre lost souls that will eventually find their way. Meanwhile shell believe a non White will never find their way even if they act like they have. The level of delusion this takes is one of the most frightening things to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120443/87165060/zuck-selfie-photoshops9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. In college I had a roommate from the most sheltered part of Long Island. We met an exchange student from Switzerland and I swear to god she said this in complete seriousness: Oh wow I didnt know people actually lived in Switzerland, I thought there were just banks there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120410/87165054/zuck-selfie-photoshops12.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. This was from a Regional manager of Starbucks, after they removed merit based raises that could go up to a 5% increase, changed to a flat 2% increase.When she asked if people liked the new raise plan,I said actually no, they feel unmotivated with no reason to perform any better than just normal.Regional manager “your staff need to realise working isn’t about money”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Stuble, but effective. How long did it take you to spot the fangs? Wait, what fangs? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120432/87165058/zuck-selfie-photoshops14.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I knew someone who un-ironically tried to convince me that not only is Pokemon demonic, but they exist in real life and there are reported cases of then attacking and harming people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Look into my eyes and come with me aboard my ship. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120423/87165057/zuck-selfie-photoshops5.png" style="width:100%"><br>
+<span style="font-size:4em">13. Do you not envy us?One of my guides in North Korea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I met a lady who thought that High Fructose Corn Syrup was a conspiracy by the OIL INDUSTRY, to kill more people so that their bodies would be cycled through the earth in order to produce more oil.Yknow. The oil Cycle. That process that takes billions of years??Talk about a long con.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The pastor of a small town church *insisted* that members set up the parish hall and provide food and beverages for 125 people after every Sunday service, even though the average attendance was only around 20 people.Week after week, month after month, much food would be disposed of and large urns of coffee dumped down the sink - and all because the pastor was in denial about the reality of weekly attendance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My cousin was spoiled and sheltered her entire childhood through college. Then her parents stupidly cut the leash without any preparation and released her into society.She quickly got in trouble for bouncing checks all over town. My mom picked her up and asked why the hell she was writing bad checks everywhere. Turns out my cousin was under the impression that as long as you had checks in your checkbook, you had money in your account. She didn’t understand that you deposit in a number and then can spend or withdraw up to that amount.Please teach your kids basic finance.Note: this was like 1996 before it turns into a “who writes a check anymore” discussion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I used to work at a software company in downtown Boston. One of the best perks of the job at the time was the flexibility in hours. Many folks had regular wfh days. Myself, I knew I could drop my kids off at school, get into the office by 9:30 and my boss had no issue with it whatsoever. Others with kids had similar arrive late or leave early schedules depending on their childcare.After a few years a new CEO comes in, spends a month observing how the office works, then calls for a company wide meeting. During the meeting she tells everyone she believes having a full office 8-5 is the most productive environment, and at the start of the next month, all wfh was canceled, and she wanted everyone in the office during those set hours. No showing up late or leaving early.A lively debate ensued, with discussions of there being very little warning, to pleas of flexibility, to concerns of making necessary childcare arrangements - especially given that in many cases (i.e. schools) we couldnt adjust those times. Plus, commuting into Boston sucks.After listening to all of these arguments, she finally responds with a long speech of appreciating the sacrifices everyone has to make to better the company, everyone doing their part, blah blah blah. She ends it by saying, I understand where youre all coming from! Years ago when my kids were little, my husband and I had to hire three nannies to cover all of the times we had to work!I remember we all looked around at each other, speechless. It was also the moment I realized I would have to start looking for another job. When the millionaire CEO thinks hiring 3 nannies is a relatable example to her middle class employees, its pretty clear shes not going to change her mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My SIL legit believes she’s a strong, independent businesswoman who owns three major businesses. She does three MLM gigs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A friend posted on his story that he’s tired of seeing everyone posting bad haircuts on social media. Saying that since he has “financial stability”(Forex pyramid scheme.) that if they don’t have $30 for a haircut, they need to “re-evaluate their lives.” He had no clue these people were posting at home haircuts during a global pandemic...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Had a friend who insisted she was in a relationship with a C-list celebrity whom she met once during a comic convention.All the celebrity’s Instagram and twitter posts were for her and everything had a meaning behind it.When the celebrity got married, she said that it was just for the media so she and celebrity could live a quiet life.When he didn’t do anything for her birthday, she had a breakdown. She went to therapy not long after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I was a stable hand of a very upper tier barn in a wealthy part of the country. The staff have to sign non-disclosure agreements to protect clients.On one particularly scorching July day, I overheard a client venting to another about how she was incredibly stressed and going to have a mental breakdown because her first choice catering company was all booked up for the weekend of her last minute yacht party.Im paycheck to paycheck and had probably a total of 3 days off since christmas. I would love for a yacht party to be my basis for a mental breakdown. Needless to say, the staff had a healthy chuckle on that one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I had a customer come into my office to rent a car. Said she had a reservation for a car, she didn’t. Told her our deposit structure and she SLAMS a $20 bill on the counter and exclaims that’s enough for a deposit. I politely tell her it doesn’t cover her minimum rate. She then proceeds to ask what rank in the military I am. Completely confused, I tell her I am the manager and that has nothing to do with our policy. Then she says she out-ranks me and I was disobeying a superior’s orders. I kicked her out and she threatened to deport me...a completely white Chicagoan male adult. I couldn’t even be mad at her lunacy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I went to a private international school in London as a teenager, most kids there had parents working good jobs but in-between them were some filthy rich kids with parents in the oil industry or something similar.In 8th grade we were talking about our easter break and my friend from Belgium was talking about how his family had decided last minute to go there over the break, but had decided to drive there because there were no flights available.Then this Russian billionaire classmate of mine asked him why don´t you take a private jet?. She was so clueless when we started laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Im fairly convinced that my current shift supervisor thinks anyone who works an overtime shift is doing it out of loyalty to the company, and not because of the 1.5x pay rate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. My MIL told me that Pepsi has aborted fetuses in it and that drinking it will make you gay. As I was drinking a Pepsi.Other highlights from her: she doesn’t trust doctors and says they’re all paid off by the government to hide some ominous truth from everyone else.She believes covid-19 is a hoax and also believes it comes from 5g- how she believes both of them simultaneously is beyond me.She thinks anxiety and depression are myths and that church is the only answer.She thinks the only reason people don’t like Donald Trump is because he’s against abortion and if it weren’t for that 100% of the populace would adore him.I could go on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. There is a girl at my work that always b**ches about not making enough bc she makes 200-300 a paycheck. Then is always the first to leave early and always shows up late and has other ppl take her shifts. She asked me how I make 600-800 a paycheck. I said bc I work more. I’m currently at work taking over HER shift. She doesn’t realize if you don’t work more you’ll be paid less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. My old boss at the time was a girl of 26 who got 4 million dollars from her mom a year to play with. Her mom is very wealthy in china. Her daughter is here trying to be a CEO of a company for funzies.I accidentally got a job at that company.One days she told us we were all going on a group outting for bonding. She took us to an outlet mall four hours away. Told the rest of us 7 people that she was going to go shop and shed see us later. That was code for dont follow me, f*****s. Every 2 hours shed let us know she was going to go unload her bags to the giant van they rented and would group text us telling us we can meet her there to unload as well. We all get paid under 50k. We have nothing to unload.By lunch she had proceeded to fill up the van with s**t. She then asks me where all my new stuff is and I said Im budgeting right now. She goes take out a credit card and go shop! Thats the American way! Seriously. Ok.By 9 pm her bags were taking up peoples seats and they had to sit with her stuff. She spent 30k. The rest of us spent about 70$. We were tired and bored and cold.To this day I still believe she thinks she did something nice for us, and doesnt understand how polarizing and not at all team bonding that was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. My bosss wife 28, she grew up in a wealthy family and married to a man who was 3rd generation owning the company he was in, they were a regional power, etc.She was talking to a staff that in general - made 36K a year, mumbling about a staffer who was on his Honeymoon.Tennessee?! HA! Tennessee?! She looked around the room for everyone to join in. My GOD! How did she agree to that? We did Hawaii and that was *least* I told him was acceptable.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Working in a pharmacy>Hello. Can I get the yellow ones please?* Sorry, could I get your name first?>It doesnt matter, I just need the yellow round ones.* Did you have a prescription.>No. I always get them here - little yellow round ones.It went on like this for literally 20 something minutes.Heres what I found out in that time:By little yellow round ones, he meant red/orange circular Xarelto tablets. He had been on a lower dose a couple of years ago, he had not filled the yellow ones in over 18 months.There was one dispense tech who knew his name and knew his doctor, by sheer coincidence, shed greeted him every time he came in for the last 2-3 years.He physically had no idea how a pharmacy works. Hed only even been to this one, only ever picked up one medication and only through one tech who knew the doctor sent his scripts through everu few months.It was surreal, explaining reality to somebody who by pure fortune had never experienced it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. My mother and father were given $20,000 by my grandparents in 1965. My parents were able to buy a house with the money.Fast forward 50 years, my mother gave me and my sisters $10,000 each. She was unable to understand that we could not buy houses for half the price 50 years later and accused us of not being good with money because she was able to do it. At the time she was sitting on a s**t ton of money in the bank and was 100% aware that to buy a house in her neighborhood would cost around $1,000,000 so, 100 times the amount of money she gave us and 50 times as much money as her parents gave her 50 years earlier.God, if only I could be so good with money as she wss.Not saying the $10k wasnt nice. Just saying she expected us to become her neighbors with no understanding of inflation, while thinking half the amount she was given 50 years earlier should be enough while knowing full well the value of her house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. My step-fathers grandpa suffered from psychosis in a strange way. He wasn’t able to distinguish mirror reflections from real life. He would often be found talking to the mirrors (his reflection) for hours. Later on, he wasn’t allowed to have any mirrors because he would believe that “that man” was there to kill him and often would turn violent. Turn violent as in he would start punching and clawing against the mirrors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Often you can see young people supporting socialism / communism, while being either ignorant or in denial of the horrors it caused in the soviet union and Maos China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164176.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">20 Perfectly Fitting Items to Release That Serotonin</a><br>
 
@@ -249,98 +287,33 @@ That kind of crap makes me furious. If you aren’t in the job to secure and pro
 
 <span style="font-size:4em">20. My bathroom would look so godd*mn clean every single day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055519/87165320/vaccum.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 "Idiots" Who Were Right the Whole Time</a><br>
+## <a href="#linky9" id="linky8">Zuckerberg Posts a Selfie and Gets Trolled to Hell and Back </a><br>
 
-<span style="font-size:4em">1. Galileo - he believed the Earth and other planets orbited the Sun, contrary to popular belief that all stars and planets orbited Earth. The Catholic Church called it heresy, and ordered him to turn himself in to the Holy Office to begin a trial for his beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165582.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Here is the original selfie which started the Zuck photoshop roasting. The picture shows the roboman with employees of Metas first store cheesing for their overlord. And in typical roast fashion the image was photoshopped.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120504/87165064/zuck-selfie-photoshops2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Sinead O’Connor - she was vilified for ripping up a photo of the pope to protest child abuse within the Catholic Church. Spoiler alert - the Catholic Church was covering up child abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165564.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Lets show how human we can be guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120456/87165063/zuck-selfie-photoshops1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Stanislav Petrov. Though we dont see him as crazy, Im sure his crewmates thought he was. He directly disobeyed Soviet military protocols and prevented a nuclear war.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165565.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I see no difference. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120402/87165053/zuck-selfie-photoshops6.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Rose McGowan was completely ostracized and blacklisted for talking about Weinstein too early.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165566.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. OH YEAH! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120445/87165061/zuck-selfie-photoshops3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. John Yudkin. The single scientist who didnt believe the sugar industrys research that demonized fats. Till his death hes adamant that fats werent the cause of obesity and heart attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165567.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120351/87165051/zuck-selfie-photoshops7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. During the plague in Moscow there was a priest (or something) DIScouraging people kissing the statue of Maria, as to stop the spreading of the virus.
-
-The poor man was burned alive for blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165568.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Some how the beard makes him look even less like a human. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120454/87165062/zuck-selfie-photoshops11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tesla. Edison is still credited with the lightbulb. His last words put it into perspective All these years that I had spent in the service of mankind brought me nothing but insults and humiliation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165569.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And once the photoshops made their way to Twitter, the jokes started coming in. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120359/87165052/zuck-selfie-photoshops8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Hemingway talked about the FBI following him prior to his suicide. They thought he was paranoid. Decades later some papers get released, turns out the FBI was following him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165570.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Its not going well. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120413/87165055/zuck-selfie-photoshops4.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Lisa Bonet. She was vilified for hating Cosby in the 80s. Who’s the villain now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165571.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Too many Marks. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120421/87165056/zuck-selfie-photoshops10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The inventor of dialysis, Dr. Willem Kolff. Although its hard to blame them, haha. He saw people dying of kidney disease and said Hey, what if we take all of the blood out of your body, clean it, and put it back in? (Cleaning your blood is the job of your kidneys, and a dialysis machine is basically an artificial kidney, on the *outside* of your body.) It was a wild idea and he started his work during WWII and had to work with basic materials like orange juice cans, sausage skins, and a washing machine. Many of the first patients died, but they were already going to die painfully. Eventually, he ironed the kinks out and started saving lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165572.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120443/87165060/zuck-selfie-photoshops9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Charles Darwin. The religious outcry against evolution was engineered by his academic rivals more than from religious resistance. But even now, after all that politics is centuries dead, there remain people who categorically resist demonstrable fact because of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165573.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120410/87165054/zuck-selfie-photoshops12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Craig Ferguson having empathy for Britney Spears in his 2007 monologue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165574.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Stuble, but effective. How long did it take you to spot the fangs? Wait, what fangs? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120432/87165058/zuck-selfie-photoshops14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. There was a wacko looking guy on Oprah who stopped his vanilla presentation to tell the audience that plastic causes cancer, stop using it to store food and water.
-
-Oprah cut to commercial and whisked him off the show.
-
-Dude was right. BPAs were outed that day, but it took another decade for that info to become public knowledge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Anyone who covered their webcam camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Giordano Bruno was (probably) the first European who proposed the possibility that not only was the universe infinite, but stars were not just points of light in the sky; they could be suns with their own planets, and that some of those planets might even host life.
-
-The Catholic Church had him tried for Heresy and had him burned at the stake and his contemporaries though he was completely insane. He had some kooky ideas, but he was absolutely right about the size of the universe and stars being suns with their own planets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Margaret Dunbar. Her four year old son went missing and one day the cops found him and brought him home. Except it wasn’t her son and everyone tried to gaslight her into believing it was. Well she was right and no one knows what happened to the real Bobby Dunbar to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I dont know that guys name but he basically from 1541-1542 travelled accross south america. The first european to do so. While he was on his journey he said he saw millions of people and large cities , with a lot of life in them , where today is the amazon rainforest.After he had finished his journey he had told the stories of those cities and about a hundred years later when explorers visited the place there was nothing , no cities , no people , just jungle. So they thought he had made all that up. But modern technology has shown that there might have accually been a lot of cities there , and that those people died out with smallpox and all cities were covered by the jungle within the course of 50 years. So basically people thought he was crazy and made everything up but in modern times its proven that he was right all along.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Will Rogers a humorist when he invented the term trickle-down economics as a joke stating that this type of economy would just make the rich richer and the poor poorer.
-
-And then we actually implemented it and used the term trickle-down. And Will Rogers was right.
-
-The rent has gone though the roof and our salaries have stagnated and we cant afford The American Dream anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Martha Mitchell.. She was like part of the reason why it was discovered that Nixon was involved in Watergate. Her husband was part of the Nixon group so she got some inside details. When she wanted to tell the news about the whole scandal, her husband and Nixon men put her in a hotel and restrained her from having any contact with anyone. She was seen as an insane person her husband and Nixons men even managed to convince the psychiatrists that she was out of her mind.
-
-Actually theres a phenomenon in psychology which was named after her a.k.a the Martha Mitchell Effect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Heinrich Schliemann. He 100% believed that ancient Troy had really existed. So he armed himself with a copy of the Iliad, and actually managed to find and excavate the city. Hed told everyone and their sister that Troy was a real place for 40 years before he found it, and everyone thought he was cuckoo for Cocoa Puffs. Not so much, it turns out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Remember the government accountant in George W Bush’s presidency who said the war in Afghanistan would cost a billion dollars a month and he was fired? Well, he was right. It was 300 million dollars per day for 20 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Dr. Atkins.
-
-When his first book The New Diet Revolution came out, he was mocked and ridiculed for thinking that refined sugars, flour, and starch caused the glycemic index to skyrocket which led to your body storing fat. When he died people thought he died from his own diet.
-
-Keto-acidosis and how you can lose weight by reducing your glycemic index was largely his research.
-
-It was later stolen and copied and called The Zone Diet and The Caveman Diet and The Paleo Diet which were all based on his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. All the people that said the NSA/CIA was spying on us for years.
-Thanks to edward Snowden we now know that was true and it was so much so that the NSA had built back doors in pretty much every single electronic device that exsists all the way down to the network switch level on cisco switches and the internet backbone through AT&T network hubs. The fact that there wasnt mass revolt after that information was released kinda blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Eisenhower. Re: The military–industrial complex.
-
-In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Clair Patterson-he was made out to be crazy by giant oil companies bc he tested ice cores in the Arctic and figured out that the amount of lead in the atmosphere, the water, and our bodies was extremely high and caused by leaded gasoline. He petitioned Congress for years to make it illegal to add lead to gasoline, but the corporations kept getting him shut down because they used lead as an anti-knock agent for internal combustion engines. Ironically, lead was causing everyone else to go crazy because it is shaped like a neurotransmitter and blocks receptors causing insanity, similarly to what mercury does, and many employees of the oil companies had gone mad. After decades of battling the oil companies, he finally got his way and lead was removed from gasoline. Since then, the amount of lead in the atmosphere and I’m living things has decreased dramatically. Clair Patterson… a f**king hero.
-
-He also created the first truly “clean room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Boltzman spend his life trying to prove his formula but ended up commiting suicide because none of his collegues believed him. Now, his formula is basically the amen in thermodynamics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. MrBeast infiltrated the YouTube market early. Mastered it. Making millions on millions a decade later at age 23. He bet on new media, looked crazy for a while but in the end won big.
-
-I understand to most he’s not a historical figure but as a marketing and digital media expert—he’s a pioneer in my book. He wrote the playbook. Plus there’s a typo in the question haha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Lord Kitchener (Horacio Herbert Kitchener) Secretary State of War for the British Army. At the onset of WW1, everyone thought the war would end very quickly, either going one way or the other. Kitchener was one of the few people to envision a long war, and to prepare accordingly, even though the British government actively hampered many of his efforts (even though he was a war hero)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Mitt Romney and his comment about Russia. I voted against him, but I’ll be damned if he wasn’t right about Russia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Henry A Wallace was Roosevelts running mate and vice president in his 3rd term in office but was dropped from the ticket in the 4th in favor of Truman. Wallace was correct on a lot of issues manifesting in America that are still here today, race, education, and what happens to society unfer unregulated capitalism.
-
-In many ways Wallaces story mirrors the story of every single progressive the democratic party has tried to run in the 20th century. Rhetoric is fine but dont go after corporate greed.
-
-Truman and Wallace could not have been more different. If Wallace had stayed as running mate and vp at the time of FDRs death, its possible to imagine we would be living in a totally different world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165593.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Look into my eyes and come with me aboard my ship. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120423/87165057/zuck-selfie-photoshops5.png" style="width:100%"><br>
 
 ## <a href="#linky10" id="linky9">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
 
@@ -462,7 +435,100 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111454/87165817/87165637.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">36 Scariest Moments People Still Don't Understand</a><br>
+## <a href="#linky11" id="linky10">30 "Idiots" Who Were Right the Whole Time</a><br>
+
+<span style="font-size:4em">1. Galileo - he believed the Earth and other planets orbited the Sun, contrary to popular belief that all stars and planets orbited Earth. The Catholic Church called it heresy, and ordered him to turn himself in to the Holy Office to begin a trial for his beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165582.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Sinead O’Connor - she was vilified for ripping up a photo of the pope to protest child abuse within the Catholic Church. Spoiler alert - the Catholic Church was covering up child abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Stanislav Petrov. Though we dont see him as crazy, Im sure his crewmates thought he was. He directly disobeyed Soviet military protocols and prevented a nuclear war.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Rose McGowan was completely ostracized and blacklisted for talking about Weinstein too early.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. John Yudkin. The single scientist who didnt believe the sugar industrys research that demonized fats. Till his death hes adamant that fats werent the cause of obesity and heart attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. During the plague in Moscow there was a priest (or something) DIScouraging people kissing the statue of Maria, as to stop the spreading of the virus.
+
+The poor man was burned alive for blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Tesla. Edison is still credited with the lightbulb. His last words put it into perspective All these years that I had spent in the service of mankind brought me nothing but insults and humiliation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Hemingway talked about the FBI following him prior to his suicide. They thought he was paranoid. Decades later some papers get released, turns out the FBI was following him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Lisa Bonet. She was vilified for hating Cosby in the 80s. Who’s the villain now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The inventor of dialysis, Dr. Willem Kolff. Although its hard to blame them, haha. He saw people dying of kidney disease and said Hey, what if we take all of the blood out of your body, clean it, and put it back in? (Cleaning your blood is the job of your kidneys, and a dialysis machine is basically an artificial kidney, on the *outside* of your body.) It was a wild idea and he started his work during WWII and had to work with basic materials like orange juice cans, sausage skins, and a washing machine. Many of the first patients died, but they were already going to die painfully. Eventually, he ironed the kinks out and started saving lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Charles Darwin. The religious outcry against evolution was engineered by his academic rivals more than from religious resistance. But even now, after all that politics is centuries dead, there remain people who categorically resist demonstrable fact because of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Craig Ferguson having empathy for Britney Spears in his 2007 monologue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. There was a wacko looking guy on Oprah who stopped his vanilla presentation to tell the audience that plastic causes cancer, stop using it to store food and water.
+
+Oprah cut to commercial and whisked him off the show.
+
+Dude was right. BPAs were outed that day, but it took another decade for that info to become public knowledge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anyone who covered their webcam camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Giordano Bruno was (probably) the first European who proposed the possibility that not only was the universe infinite, but stars were not just points of light in the sky; they could be suns with their own planets, and that some of those planets might even host life.
+
+The Catholic Church had him tried for Heresy and had him burned at the stake and his contemporaries though he was completely insane. He had some kooky ideas, but he was absolutely right about the size of the universe and stars being suns with their own planets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Margaret Dunbar. Her four year old son went missing and one day the cops found him and brought him home. Except it wasn’t her son and everyone tried to gaslight her into believing it was. Well she was right and no one knows what happened to the real Bobby Dunbar to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I dont know that guys name but he basically from 1541-1542 travelled accross south america. The first european to do so. While he was on his journey he said he saw millions of people and large cities , with a lot of life in them , where today is the amazon rainforest.After he had finished his journey he had told the stories of those cities and about a hundred years later when explorers visited the place there was nothing , no cities , no people , just jungle. So they thought he had made all that up. But modern technology has shown that there might have accually been a lot of cities there , and that those people died out with smallpox and all cities were covered by the jungle within the course of 50 years. So basically people thought he was crazy and made everything up but in modern times its proven that he was right all along.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Will Rogers a humorist when he invented the term trickle-down economics as a joke stating that this type of economy would just make the rich richer and the poor poorer.
+
+And then we actually implemented it and used the term trickle-down. And Will Rogers was right.
+
+The rent has gone though the roof and our salaries have stagnated and we cant afford The American Dream anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Martha Mitchell.. She was like part of the reason why it was discovered that Nixon was involved in Watergate. Her husband was part of the Nixon group so she got some inside details. When she wanted to tell the news about the whole scandal, her husband and Nixon men put her in a hotel and restrained her from having any contact with anyone. She was seen as an insane person her husband and Nixons men even managed to convince the psychiatrists that she was out of her mind.
+
+Actually theres a phenomenon in psychology which was named after her a.k.a the Martha Mitchell Effect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165581.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Heinrich Schliemann. He 100% believed that ancient Troy had really existed. So he armed himself with a copy of the Iliad, and actually managed to find and excavate the city. Hed told everyone and their sister that Troy was a real place for 40 years before he found it, and everyone thought he was cuckoo for Cocoa Puffs. Not so much, it turns out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165583.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Remember the government accountant in George W Bush’s presidency who said the war in Afghanistan would cost a billion dollars a month and he was fired? Well, he was right. It was 300 million dollars per day for 20 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Dr. Atkins.
+
+When his first book The New Diet Revolution came out, he was mocked and ridiculed for thinking that refined sugars, flour, and starch caused the glycemic index to skyrocket which led to your body storing fat. When he died people thought he died from his own diet.
+
+Keto-acidosis and how you can lose weight by reducing your glycemic index was largely his research.
+
+It was later stolen and copied and called The Zone Diet and The Caveman Diet and The Paleo Diet which were all based on his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. All the people that said the NSA/CIA was spying on us for years.
+Thanks to edward Snowden we now know that was true and it was so much so that the NSA had built back doors in pretty much every single electronic device that exsists all the way down to the network switch level on cisco switches and the internet backbone through AT&T network hubs. The fact that there wasnt mass revolt after that information was released kinda blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Eisenhower. Re: The military–industrial complex.
+
+In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Clair Patterson-he was made out to be crazy by giant oil companies bc he tested ice cores in the Arctic and figured out that the amount of lead in the atmosphere, the water, and our bodies was extremely high and caused by leaded gasoline. He petitioned Congress for years to make it illegal to add lead to gasoline, but the corporations kept getting him shut down because they used lead as an anti-knock agent for internal combustion engines. Ironically, lead was causing everyone else to go crazy because it is shaped like a neurotransmitter and blocks receptors causing insanity, similarly to what mercury does, and many employees of the oil companies had gone mad. After decades of battling the oil companies, he finally got his way and lead was removed from gasoline. Since then, the amount of lead in the atmosphere and I’m living things has decreased dramatically. Clair Patterson… a f**king hero.
+
+He also created the first truly “clean room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Boltzman spend his life trying to prove his formula but ended up commiting suicide because none of his collegues believed him. Now, his formula is basically the amen in thermodynamics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. MrBeast infiltrated the YouTube market early. Mastered it. Making millions on millions a decade later at age 23. He bet on new media, looked crazy for a while but in the end won big.
+
+I understand to most he’s not a historical figure but as a marketing and digital media expert—he’s a pioneer in my book. He wrote the playbook. Plus there’s a typo in the question haha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Lord Kitchener (Horacio Herbert Kitchener) Secretary State of War for the British Army. At the onset of WW1, everyone thought the war would end very quickly, either going one way or the other. Kitchener was one of the few people to envision a long war, and to prepare accordingly, even though the British government actively hampered many of his efforts (even though he was a war hero)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Mitt Romney and his comment about Russia. I voted against him, but I’ll be damned if he wasn’t right about Russia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Henry A Wallace was Roosevelts running mate and vice president in his 3rd term in office but was dropped from the ticket in the 4th in favor of Truman. Wallace was correct on a lot of issues manifesting in America that are still here today, race, education, and what happens to society unfer unregulated capitalism.
+
+In many ways Wallaces story mirrors the story of every single progressive the democratic party has tried to run in the 20th century. Rhetoric is fine but dont go after corporate greed.
+
+Truman and Wallace could not have been more different. If Wallace had stayed as running mate and vp at the time of FDRs death, its possible to imagine we would be living in a totally different world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165593.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">36 Scariest Moments People Still Don't Understand</a><br>
 
 <span style="font-size:4em">1. As an officer on a reservation, we kept getting reports of a “tall man” at different places in a town on our reservation. One night we was able to catch him on a thermal camera. There was about 8-10 officers there. It was on a hill overlooking the town that was right below.
 
@@ -695,7 +761,53 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">36. dont know if this counts but when ever im walking in the middle of the night in the dark towards my bedroom it always looks like theirs a figure in front of me and most of the time i attempt to punch that thing in front of me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165685.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">31 Dank Memes We Can All Abide By</a><br>
+## <a href="#linky13" id="linky12">12 Life Tips Everyone Should Know</a><br>
+
+<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
+The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
+Unlock Developer Options:
+
+Settings > About Phone > 7x tap on Build Number
+
+Decrease animation time:
+
+Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Your parents took decades to furnish their house.
+If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
+
+It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
+I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
+Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
+Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
+The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
+16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
+
+14,606 – Starbucks stores in the U.S. in 2018
+
+13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">31 Dank Memes We Can All Abide By</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164682.jpg" style="width:100%"><br>
 
@@ -757,73 +869,7 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">32 People Who Have No Grip On the Real World</a><br>
-
-<span style="font-size:4em">1. My friend stole my card information and bought loads of expensive stuff. I asked her if it was her before reporting it, knowing that a) she was going through a tough time and I wanted to give her a chance to make it right and b) that I could be in trouble for conspiracy to fraud if I reported it and they believed Id got stuff delivered to my friend to claim fraud for the money back. She said no, I thought someone else had done it so I reported it.When she got arrested she said she didnt think theyd take the fraud thing so far. She thought you could just call up banks to get the money back and they wouldnt investigate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My brother told me “I’m avoiding Asian people if I see them on the street or anything. You know, for safety because of the coronavirus.” He’s Asian. OUR ENTIRE FAMILY IS ASIAN.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Work with a girl who is a flat earther and on top of that denied the existence of space. When the topic came up and I disagreed she asked if I had ever been there... obviously I havent. I told her I have also never been to Japan and that does not mean it doesnt exist.She complained to management about my intolerance of her beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I dated this girl who believed her roommates were spying on her. That every time they had friends over and were hanging out in the common space and laughing, it was because they were spying on her in her room. She also believed the government was spying on her and her parents directly. Us dating lasted about a week and ended not just because the red flags, but because she tried to drop by unannounced after only being on a couple dates.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I will never forget the man who angrily told me, a wheelchair user with no feet and no prosthetics, to go down the stairs if I didn’t want to wait for the elevator (I had been talking to my friend, and mentioned we were going to be a little late because of the huge line).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I knew a girl who cheated on her boyfriend. When he found out, he broke up with her. She said you cant break up with me, it has to be mutual.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Parents of a 35 years old woman, who was hospitalized after suffering severe anoxic brain damage 20 years ago. She had been in the same ward since, barely conscious.They refused to get her transferred to a more suitable facility for 20 years, saying that theres no reason to do so: those facilities are for lost causes, and their daughter is going to make a full recovery, finish school, get married and be totally fine.Working in hospitals got me quite a collection of these stories, but this one I thought was one of the saddest ones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. An ex became really religious and Id still talk to her sometimes. Somehow the topic of flat earth theories came up and she said she thinks its actually possible that it could be true. I tried to explain that we have more than enough imagery and data indicating that the earth is round, and she said it could all be planted there by Satan.You just cant come up with a response to that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My mother, and a several people in my family, believe that God marks people. If someone ultimately has a good soul theyre white and Im sure you can guess where it goes from there. If only non-White did s**tty things that would make sense but you dont even have to look at much of the world to see that is not the case. When I try to bring up that tons of white people do awful things her logic is theyre lost souls that will eventually find their way. Meanwhile shell believe a non White will never find their way even if they act like they have. The level of delusion this takes is one of the most frightening things to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. In college I had a roommate from the most sheltered part of Long Island. We met an exchange student from Switzerland and I swear to god she said this in complete seriousness: Oh wow I didnt know people actually lived in Switzerland, I thought there were just banks there!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. This was from a Regional manager of Starbucks, after they removed merit based raises that could go up to a 5% increase, changed to a flat 2% increase.When she asked if people liked the new raise plan,I said actually no, they feel unmotivated with no reason to perform any better than just normal.Regional manager “your staff need to realise working isn’t about money”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I knew someone who un-ironically tried to convince me that not only is Pokemon demonic, but they exist in real life and there are reported cases of then attacking and harming people</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Do you not envy us?One of my guides in North Korea</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I met a lady who thought that High Fructose Corn Syrup was a conspiracy by the OIL INDUSTRY, to kill more people so that their bodies would be cycled through the earth in order to produce more oil.Yknow. The oil Cycle. That process that takes billions of years??Talk about a long con.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The pastor of a small town church *insisted* that members set up the parish hall and provide food and beverages for 125 people after every Sunday service, even though the average attendance was only around 20 people.Week after week, month after month, much food would be disposed of and large urns of coffee dumped down the sink - and all because the pastor was in denial about the reality of weekly attendance.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My cousin was spoiled and sheltered her entire childhood through college. Then her parents stupidly cut the leash without any preparation and released her into society.She quickly got in trouble for bouncing checks all over town. My mom picked her up and asked why the hell she was writing bad checks everywhere. Turns out my cousin was under the impression that as long as you had checks in your checkbook, you had money in your account. She didn’t understand that you deposit in a number and then can spend or withdraw up to that amount.Please teach your kids basic finance.Note: this was like 1996 before it turns into a “who writes a check anymore” discussion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I used to work at a software company in downtown Boston. One of the best perks of the job at the time was the flexibility in hours. Many folks had regular wfh days. Myself, I knew I could drop my kids off at school, get into the office by 9:30 and my boss had no issue with it whatsoever. Others with kids had similar arrive late or leave early schedules depending on their childcare.After a few years a new CEO comes in, spends a month observing how the office works, then calls for a company wide meeting. During the meeting she tells everyone she believes having a full office 8-5 is the most productive environment, and at the start of the next month, all wfh was canceled, and she wanted everyone in the office during those set hours. No showing up late or leaving early.A lively debate ensued, with discussions of there being very little warning, to pleas of flexibility, to concerns of making necessary childcare arrangements - especially given that in many cases (i.e. schools) we couldnt adjust those times. Plus, commuting into Boston sucks.After listening to all of these arguments, she finally responds with a long speech of appreciating the sacrifices everyone has to make to better the company, everyone doing their part, blah blah blah. She ends it by saying, I understand where youre all coming from! Years ago when my kids were little, my husband and I had to hire three nannies to cover all of the times we had to work!I remember we all looked around at each other, speechless. It was also the moment I realized I would have to start looking for another job. When the millionaire CEO thinks hiring 3 nannies is a relatable example to her middle class employees, its pretty clear shes not going to change her mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My SIL legit believes she’s a strong, independent businesswoman who owns three major businesses. She does three MLM gigs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A friend posted on his story that he’s tired of seeing everyone posting bad haircuts on social media. Saying that since he has “financial stability”(Forex pyramid scheme.) that if they don’t have $30 for a haircut, they need to “re-evaluate their lives.” He had no clue these people were posting at home haircuts during a global pandemic...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Had a friend who insisted she was in a relationship with a C-list celebrity whom she met once during a comic convention.All the celebrity’s Instagram and twitter posts were for her and everything had a meaning behind it.When the celebrity got married, she said that it was just for the media so she and celebrity could live a quiet life.When he didn’t do anything for her birthday, she had a breakdown. She went to therapy not long after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I was a stable hand of a very upper tier barn in a wealthy part of the country. The staff have to sign non-disclosure agreements to protect clients.On one particularly scorching July day, I overheard a client venting to another about how she was incredibly stressed and going to have a mental breakdown because her first choice catering company was all booked up for the weekend of her last minute yacht party.Im paycheck to paycheck and had probably a total of 3 days off since christmas. I would love for a yacht party to be my basis for a mental breakdown. Needless to say, the staff had a healthy chuckle on that one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I had a customer come into my office to rent a car. Said she had a reservation for a car, she didn’t. Told her our deposit structure and she SLAMS a $20 bill on the counter and exclaims that’s enough for a deposit. I politely tell her it doesn’t cover her minimum rate. She then proceeds to ask what rank in the military I am. Completely confused, I tell her I am the manager and that has nothing to do with our policy. Then she says she out-ranks me and I was disobeying a superior’s orders. I kicked her out and she threatened to deport me...a completely white Chicagoan male adult. I couldn’t even be mad at her lunacy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I went to a private international school in London as a teenager, most kids there had parents working good jobs but in-between them were some filthy rich kids with parents in the oil industry or something similar.In 8th grade we were talking about our easter break and my friend from Belgium was talking about how his family had decided last minute to go there over the break, but had decided to drive there because there were no flights available.Then this Russian billionaire classmate of mine asked him why don´t you take a private jet?. She was so clueless when we started laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Im fairly convinced that my current shift supervisor thinks anyone who works an overtime shift is doing it out of loyalty to the company, and not because of the 1.5x pay rate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. My MIL told me that Pepsi has aborted fetuses in it and that drinking it will make you gay. As I was drinking a Pepsi.Other highlights from her: she doesn’t trust doctors and says they’re all paid off by the government to hide some ominous truth from everyone else.She believes covid-19 is a hoax and also believes it comes from 5g- how she believes both of them simultaneously is beyond me.She thinks anxiety and depression are myths and that church is the only answer.She thinks the only reason people don’t like Donald Trump is because he’s against abortion and if it weren’t for that 100% of the populace would adore him.I could go on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. There is a girl at my work that always b**ches about not making enough bc she makes 200-300 a paycheck. Then is always the first to leave early and always shows up late and has other ppl take her shifts. She asked me how I make 600-800 a paycheck. I said bc I work more. I’m currently at work taking over HER shift. She doesn’t realize if you don’t work more you’ll be paid less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. My old boss at the time was a girl of 26 who got 4 million dollars from her mom a year to play with. Her mom is very wealthy in china. Her daughter is here trying to be a CEO of a company for funzies.I accidentally got a job at that company.One days she told us we were all going on a group outting for bonding. She took us to an outlet mall four hours away. Told the rest of us 7 people that she was going to go shop and shed see us later. That was code for dont follow me, f*****s. Every 2 hours shed let us know she was going to go unload her bags to the giant van they rented and would group text us telling us we can meet her there to unload as well. We all get paid under 50k. We have nothing to unload.By lunch she had proceeded to fill up the van with s**t. She then asks me where all my new stuff is and I said Im budgeting right now. She goes take out a credit card and go shop! Thats the American way! Seriously. Ok.By 9 pm her bags were taking up peoples seats and they had to sit with her stuff. She spent 30k. The rest of us spent about 70$. We were tired and bored and cold.To this day I still believe she thinks she did something nice for us, and doesnt understand how polarizing and not at all team bonding that was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. My bosss wife 28, she grew up in a wealthy family and married to a man who was 3rd generation owning the company he was in, they were a regional power, etc.She was talking to a staff that in general - made 36K a year, mumbling about a staffer who was on his Honeymoon.Tennessee?! HA! Tennessee?! She looked around the room for everyone to join in. My GOD! How did she agree to that? We did Hawaii and that was *least* I told him was acceptable.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Working in a pharmacy>Hello. Can I get the yellow ones please?* Sorry, could I get your name first?>It doesnt matter, I just need the yellow round ones.* Did you have a prescription.>No. I always get them here - little yellow round ones.It went on like this for literally 20 something minutes.Heres what I found out in that time:By little yellow round ones, he meant red/orange circular Xarelto tablets. He had been on a lower dose a couple of years ago, he had not filled the yellow ones in over 18 months.There was one dispense tech who knew his name and knew his doctor, by sheer coincidence, shed greeted him every time he came in for the last 2-3 years.He physically had no idea how a pharmacy works. Hed only even been to this one, only ever picked up one medication and only through one tech who knew the doctor sent his scripts through everu few months.It was surreal, explaining reality to somebody who by pure fortune had never experienced it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. My mother and father were given $20,000 by my grandparents in 1965. My parents were able to buy a house with the money.Fast forward 50 years, my mother gave me and my sisters $10,000 each. She was unable to understand that we could not buy houses for half the price 50 years later and accused us of not being good with money because she was able to do it. At the time she was sitting on a s**t ton of money in the bank and was 100% aware that to buy a house in her neighborhood would cost around $1,000,000 so, 100 times the amount of money she gave us and 50 times as much money as her parents gave her 50 years earlier.God, if only I could be so good with money as she wss.Not saying the $10k wasnt nice. Just saying she expected us to become her neighbors with no understanding of inflation, while thinking half the amount she was given 50 years earlier should be enough while knowing full well the value of her house.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. My step-fathers grandpa suffered from psychosis in a strange way. He wasn’t able to distinguish mirror reflections from real life. He would often be found talking to the mirrors (his reflection) for hours. Later on, he wasn’t allowed to have any mirrors because he would believe that “that man” was there to kill him and often would turn violent. Turn violent as in he would start punching and clawing against the mirrors.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Often you can see young people supporting socialism / communism, while being either ignorant or in denial of the horrors it caused in the soviet union and Maos China.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164176.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">42 Memes That May Be Hard To Argue With.</a><br>
+## <a href="#linky15" id="linky14">42 Memes That May Be Hard To Argue With.</a><br>
 
 <span style="font-size:4em">1. I mean I guess if youre writing and starring in the movie, why wouldnt you set yourself up with a hottie for a wife?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163527.jpg" style="width:100%"><br>
 
@@ -909,7 +955,41 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163528.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">25 Trashiest Wedding Stories Ever Told</a><br>
+## <a href="#linky16" id="linky15">New James Webb Telescope Images Make Space Look Brand New</a><br>
+
+<span style="font-size:4em">1. A comparison of the same constellation of stars captured by the Spitzer Space Telescope launched in 2003 and the James Webb Telescope, showcasing a night-and-day difference.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105821/87164997/James-Webb-Photos-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Higher resolution cameras allow us to observe a much higher image density than ever before. As opposed to the Hubble telescope, the James Webb Telescope images capture a lower range of light frequency -- hence the stark difference in the types of colors and light waves shown.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113607/87165043/james-webb-photos-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The pointed star look of the James Webb telescope images comes from the arrangement of near-perfect mirrors that are used to compose each snapshot of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105833/87164998/james-webb-photos-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Nasas gallery of mirror-alignment test images, showing that in all aspects of calibration the James Webb Telescope is ahead-of or right-on schedule. We couldnt have asked for a more perfect launch and deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105852/87165001/james-webb-photos-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The thruster jets of the James Webb Telescope launch on Christmas, last year.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105855/87165002/james-webb-photos-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The James Webb Telescope was launched from the European spaceport that is -- perhaps a little ironically -- in South America at the Guiana Space Centre. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105906/87165004/james-webb-photos-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The final image of our boy leaving Earth. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105903/87165003/james-webb-photos-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. A selfie taken by the James Webb Telescope early in its deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105844/87164999/james-webb-photos-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. An artist rendering, showing what the James Webb Telescope will look like in space. notice that the gold-coated mirror array is set to function as a perfect mirror, while sections of the device will be essentially invisible in the hard light of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105913/87165005/james-webb-photos-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. An infographic showing how the James Webb Telescope was launched and deployed. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105919/87165006/james-webb-photos-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The worlds most badass telescope sittin in the lab. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113628/87165045/james-webb-photos-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A scientist goofing around one of the mirror arrays. Notice the reflectivity is crystal clear -- if a little perspective-warped. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113637/87165046/james-webb-photos-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The fully-coated mirror arrays in all their splendor. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113640/87165047/james-webb-photos-15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The James Webb Telescope being assembled. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113648/87165048/james-webb-photos-16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The absolutely jaw-dropping Golden Spider of the James Webb Telescope. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113723/87165049/james-webb-photos-17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. What hell look like, floating through the void. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113618/87165044/james-webb-photos-11.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">25 Trashiest Wedding Stories Ever Told</a><br>
 
 <span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
 
@@ -976,84 +1056,4 @@ Now the bride got angry and there was much back and forth with various family me
 
 <span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">New James Webb Telescope Images Make Space Look Brand New</a><br>
-
-<span style="font-size:4em">1. A comparison of the same constellation of stars captured by the Spitzer Space Telescope launched in 2003 and the James Webb Telescope, showcasing a night-and-day difference.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105821/87164997/James-Webb-Photos-01.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Higher resolution cameras allow us to observe a much higher image density than ever before. As opposed to the Hubble telescope, the James Webb Telescope images capture a lower range of light frequency -- hence the stark difference in the types of colors and light waves shown.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113607/87165043/james-webb-photos-12.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The pointed star look of the James Webb telescope images comes from the arrangement of near-perfect mirrors that are used to compose each snapshot of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105833/87164998/james-webb-photos-03.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Nasas gallery of mirror-alignment test images, showing that in all aspects of calibration the James Webb Telescope is ahead-of or right-on schedule. We couldnt have asked for a more perfect launch and deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105852/87165001/james-webb-photos-02.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The thruster jets of the James Webb Telescope launch on Christmas, last year.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105855/87165002/james-webb-photos-05.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The James Webb Telescope was launched from the European spaceport that is -- perhaps a little ironically -- in South America at the Guiana Space Centre. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105906/87165004/james-webb-photos-06.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The final image of our boy leaving Earth. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105903/87165003/james-webb-photos-07.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A selfie taken by the James Webb Telescope early in its deployment. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105844/87164999/james-webb-photos-04.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. An artist rendering, showing what the James Webb Telescope will look like in space. notice that the gold-coated mirror array is set to function as a perfect mirror, while sections of the device will be essentially invisible in the hard light of space. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105913/87165005/james-webb-photos-08.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. An infographic showing how the James Webb Telescope was launched and deployed. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/105919/87165006/james-webb-photos-10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The worlds most badass telescope sittin in the lab. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113628/87165045/james-webb-photos-14.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A scientist goofing around one of the mirror arrays. Notice the reflectivity is crystal clear -- if a little perspective-warped. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113637/87165046/james-webb-photos-13.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. The fully-coated mirror arrays in all their splendor. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113640/87165047/james-webb-photos-15.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The James Webb Telescope being assembled. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113648/87165048/james-webb-photos-16.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The absolutely jaw-dropping Golden Spider of the James Webb Telescope. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113723/87165049/james-webb-photos-17.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. What hell look like, floating through the void. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/113618/87165044/james-webb-photos-11.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">12 Life Tips Everyone Should Know</a><br>
-
-<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
-The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
-Unlock Developer Options:
-
-Settings > About Phone > 7x tap on Build Number
-
-Decrease animation time:
-
-Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Your parents took decades to furnish their house.
-If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
-
-It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
-I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
-Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
-Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
-The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
-16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
-
-14,606 – Starbucks stores in the U.S. in 2018
-
-13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
 
