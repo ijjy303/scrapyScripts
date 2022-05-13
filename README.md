@@ -1,29 +1,95 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/13/2022-10:11:31
+Last updated: 05/13/2022-11:11:31
 <br>
-## <a href="#linky2" id="linky1">Madonna Needs Some Serious Help</a><br>
+## <a href="#linky2" id="linky1">20 Savage Clapbacks That Went Scorched Earth</a><br>
 
-<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033451/87166064/attack.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033502/87166065/condom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033514/87166066/gary.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033522/87166067/christian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033525/87166068/dog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033533/87166069/job.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033608/87166075/peta.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033536/87166070/math.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033544/87166071/news.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033547/87166072/gaslight.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">28 WTF Moments in History We Don't Talk About</a><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033556/87166073/pay.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033559/87166074/pepsi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033611/87166076/religion.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033619/87166077/sarah.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033622/87166078/salty.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033630/87166079/teens.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033633/87166080/tacobell.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033641/87166081/terminate.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033644/87166082/words.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033651/87166083/trevor.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">12 Life Tips Everyone Should Know</a><br>
+
+<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
+The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
+Unlock Developer Options:
+
+Settings > About Phone > 7x tap on Build Number
+
+Decrease animation time:
+
+Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Your parents took decades to furnish their house.
+If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
+
+It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
+I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
+Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
+Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
+The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
+16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
+
+14,606 – Starbucks stores in the U.S. in 2018
+
+13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">28 WTF Moments in History We Don't Talk About</a><br>
 
 <span style="font-size:4em">1. In the 1970s, a film team was filming an episode of The Six Million Dollar Man at an amusement park fun house. A stage hand was moving a fake wax figure on a rope when one arm fell off, revealing human flesh and bone underneath. Following an autopsy, it was discovered to be the body of a 60-year-old outlaw who had been taxidermied to some extent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164860.jpg" style="width:100%"><br>
 
@@ -79,89 +145,75 @@ Last updated: 05/13/2022-10:11:31
 
 <span style="font-size:4em">EDIT: After the executioner was done, he picked up her head by the hair, not knowing it was a wig, and the head fell out and rolled onto the floor (thanks Plug_5 and moiochi for reminding me)After Mary was properly [unalived], her body was left for public viewing, but the audience was surprised to see her red dress start to rustle before allowing Marys small terrier dog to climb out from underneath. Tragically, the dog refused to leave the body and eventually passed away after staying at the same spot for a lengthy amount of time.History buffs, please feel free to make any corrections as I heard this story a while ago and probably made a few errors in my recalling! :)TL;DR: Mary, Queen of Scots avoided crazy memorabilia-savers at her execution with a very intelligent move, got shanked in the head during a failed attempt, the executioner dropped her head onto the floor, and had her dog in her dress with her the entire time</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164876.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Zuckerberg Posts a Selfie and Gets Trolled to Hell and Back </a><br>
+## <a href="#linky5" id="linky4">25 Trashiest Wedding Stories Ever Told</a><br>
 
-<span style="font-size:4em">1. Here is the original selfie which started the Zuck photoshop roasting. The picture shows the roboman with employees of Metas first store cheesing for their overlord. And in typical roast fashion the image was photoshopped.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120504/87165064/zuck-selfie-photoshops2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Lets show how human we can be guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120456/87165063/zuck-selfie-photoshops1.png" style="width:100%"><br>
+<span style="font-size:4em">2. Groom beat the sh*t out of the father-in-law. Father in law went to bathroom and died. Groom shot himself in the parking lot. This was 25 years ago in Chicago. Crazy wedding. -u/pohuja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163750.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. I see no difference. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120402/87165053/zuck-selfie-photoshops6.png" style="width:100%"><br>
+<span style="font-size:4em">3. The bride and her sisters did a strip tease/lap dance on the groom immediately following dinner. In front of his grandmother. -u/JohnaldL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. OH YEAH! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120445/87165061/zuck-selfie-photoshops3.png" style="width:100%"><br>
+<span style="font-size:4em">4. Surely that video of the bride walking down the backyard aisle while dirty dancing to her own sh*tty recorded cover of Crazy Bitch has got to be up around here somewhere.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120351/87165051/zuck-selfie-photoshops7.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Some how the beard makes him look even less like a human. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120454/87165062/zuck-selfie-photoshops11.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+https://youtu.be/fSkHMSKgIWs
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. And once the photoshops made their way to Twitter, the jokes started coming in. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120359/87165052/zuck-selfie-photoshops8.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Its not going well. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120413/87165055/zuck-selfie-photoshops4.png" style="width:100%"><br>
+<span style="font-size:4em">
+-u/Crash4654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Too many Marks. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120421/87165056/zuck-selfie-photoshops10.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My own. In a Mississippi judges office with a bag of Cheetos on her desk. She wiped her hands on a napkin, grabbed a bible, and did her thing with orange crumbs on her lips. Her work heels were not on because she was in her office. It was extremely rushed. I understand that she was on her break but we didnt mind waiting. -u/Zezima-RS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120443/87165060/zuck-selfie-photoshops9.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Probably my dads 2nd marriage. Along the banks of a river with trailer homes in the background. Hes wearing a tuxedo T-shirt and rainbow mirror sunglasses. The ceremony took place at noon: hed been drinking since 5am. I had to walk one of the bridesmaids down a flight of steps as she was legally blind, and someone asked me if I was going to bang her. Sighs. -u/shibbster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120410/87165054/zuck-selfie-photoshops12.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Camo print wedding dress that was borderline see-through. Walked down the aisle to the Scooby-Doo theme. No, nobody knows why they chose that song, including the couple themselves. They divorced a few months later after they both stopped cleaning the house in an act of defiance against one another. -u/Much_Difference</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Stuble, but effective. How long did it take you to spot the fangs? Wait, what fangs? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120432/87165058/zuck-selfie-photoshops14.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. A wedding on the beach behind Hooters. The officiant stood next to a trash bin. As if it was planned, the trash collector pulled up during the vows. Did he wait to change the bag? Absolutely not. Children at the wedding swarmed the couple like flies around the trash can just after the kiss, stepping all over her dress. She bent over to adjust her sandal and a pack of Marlboro reds fell out of the bust along with her right breast. It felt like we were rubbernecking instead of witnessing a marriage. -u/Svetlana_of_Athens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Look into my eyes and come with me aboard my ship. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120423/87165057/zuck-selfie-photoshops5.png" style="width:100%"><br>
+<span style="font-size:4em">9. I don’t even know where to begin...Ceremony was comprised of immediate family then followed by a reception with all guests in a relatively nice hotel banquet hall. An hour in at 7pm the open bar was completely closed down because MULTIPLE guests were throwing up in the bathroom sinks causing flooding.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163761.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">20 Perfectly Fitting Items to Release That Serotonin</a><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Gotta love when the bacon strips fit ever so perfectly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055313/87165301/bacon.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The groom was so wasted even before the ceremony but was blackout by the time of the reception. During the first dance, he kept his hands in his cargo pant khakis the entire time and ate dinner sitting on the floor in a corner of the hall while the bride sat at the head table alone. About two hours in, the groom randomly left and slept at their house while the bride stayed in the newlywed suite by herself. They are now separated as you may have assumed by this point. -u/Rdab3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This is a pure *chefs kiss* if there ever was one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055325/87165302/basket.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Waitress at a bogan wedding. The night ended with the chef and I rounding up the kids and barricading us all in the kitchen and locking the doors to prevent the melee of fighting adults outside from A) accessing MORE weapons (Some of them BYO’d knives) and B) hurting the kids. They ranged in age from toddlers to preteens. It was just the chef and me, 2 women and a whole bunch of screaming and frightened kids until the police came and carted everyone off to jail.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. If my battery drawer looked like this I would be a king.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055337/87165303/batts.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Books fitting on a shelf is peak adulting.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055356/87165305/book.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Wedding photographer showed up the next morning for the scheduled photoshoot. I had to tell him he could find the wedding party at the local jail. The chef and I are still friends, but we both quit that place shortly after that epic wedding. -u/a_nonny_mooze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Life hack if you ever need to sneak diced tomatoes into a cheese convention.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055359/87165306/cheese.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I was actually the bartender but it was a hoot. The wedding was outside and it stormed violently. Groom was hammered pre-wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women on the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out. -u/SnooHobbies7109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. These covid tests stacked so neatly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055407/87165307/covid.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. The bride made a speech thanking her in-laws for financial assistance for the event. Her mother was not thanked and she was furious. There was a long head table for the bridal party and parents. It was made out of small tables pushed together covered by one long tablecloth. The mother pulled a small table out of the arrangement, catching the table cloth, and nearly destroying the head table set up.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This lawn mower fits just right to cut one lane of grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055421/87165310/mower.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. If there werent germs everywhere this would be the perfect can holder.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055410/87165308/coke.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Now the bride got angry and there was much back and forth with various family members attempting to make peace. The mother refused to push back her table and began to invite others to sit with her, all people who were not meant to be seated at the front. The mother of the bride continued to sit there and talk sh*t about her daughter, the bride, to anyone who would listen. -u/lilyspads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. A lid that fits into a table. Why? Why does this work out so well?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055419/87165309/lid.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Wedding was in a suburban driveway. The maid of honor stole the bouquet from someone’s garden and the best man proudly announced he had shoplifted the rings. The groom wore a button-down shirt that said ‘f*ck off’ in fancy lettering. The bride stopped in the middle of the vows to tell her mother to ‘get that f*cking kid out of here.’ It was her second kid by the previous bloke. -u/HopelessEmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I would clean this spot every single day if it were in my apartment.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055516/87165319/swiffer.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. There were no tables and chairs. Like none. They had an open bar but no f*cking chairs. Everyone had to put their drink on the ground and hold their plate to eat. It was f*cking crazy. Everyone just assumed that some sort of terrible thing happened where the tables and chair people didnt bring them but afterward I asked her (the bride) what happened and she just said: Oh we would have had to pay extra for that. -u/PM_MEE_PUSSY_PICS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Paper lined up in immaculate fashion inside of a drawer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055430/87165311/paper.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This pound coin fits right into this toy.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055432/87165312/pound.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Roombas are the future. This one cleans in tight spots, clearly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055442/87165313/robot.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I dont know why but this is so satisfying to me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055348/87165304/can.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. This all natural rock that fits amazingly beside another.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055444/87165314/rock.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. If all pizza boxes were microwave-sized, society would never collapse.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055453/87165315/pizza.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The perfect seasoning/cleaning products drawer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055456/87165316/season.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. When a sofa fits just right in between your walls.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055504/87165317/sofa.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The shadow that lines up with the sidewalk. Beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055507/87165318/shadow.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My bathroom would look so godd*mn clean every single day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055519/87165320/vaccum.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044653/87165221/hilary-duff-womens-health4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044943/87165224/duff5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044955/87165226/duff2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
+## <a href="#linky6" id="linky5">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
 
 <span style="font-size:4em">1. I’m flying… Jack! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164577.jpg" style="width:100%"><br>
 
@@ -281,7 +333,7 @@ Last updated: 05/13/2022-10:11:31
 
 <span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111454/87165817/87165637.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">36 Scariest Moments People Still Don't Understand</a><br>
+## <a href="#linky7" id="linky6">36 Scariest Moments People Still Don't Understand</a><br>
 
 <span style="font-size:4em">1. As an officer on a reservation, we kept getting reports of a “tall man” at different places in a town on our reservation. One night we was able to catch him on a thermal camera. There was about 8-10 officers there. It was on a hill overlooking the town that was right below.
 
@@ -514,7 +566,7 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">36. dont know if this counts but when ever im walking in the middle of the night in the dark towards my bedroom it always looks like theirs a figure in front of me and most of the time i attempt to punch that thing in front of me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165685.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">30 "Idiots" Who Were Right the Whole Time</a><br>
+## <a href="#linky8" id="linky7">30 "Idiots" Who Were Right the Whole Time</a><br>
 
 <span style="font-size:4em">1. Galileo - he believed the Earth and other planets orbited the Sun, contrary to popular belief that all stars and planets orbited Earth. The Catholic Church called it heresy, and ordered him to turn himself in to the Holy Office to begin a trial for his beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165582.jpg" style="width:100%"><br>
 
@@ -607,7 +659,7 @@ In many ways Wallaces story mirrors the story of every single progressive the de
 
 Truman and Wallace could not have been more different. If Wallace had stayed as running mate and vp at the time of FDRs death, its possible to imagine we would be living in a totally different world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165593.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">Stubborn Boss Ignores Employee's Suggestion and Lives to Regret it</a><br>
+## <a href="#linky9" id="linky8">Stubborn Boss Ignores Employee's Suggestion and Lives to Regret it</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166136.png" style="width:100%"><br>
 
@@ -627,7 +679,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166144.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Weird Things You Never Knew About Mussolini</a><br>
+## <a href="#linky10" id="linky9">25 Weird Things You Never Knew About Mussolini</a><br>
 
 <span style="font-size:4em">1. Mel Brooks initially titled The Producers as Springtime for Hitler, named after the fictitious musical that drove the plot. Universal expressed an interest, but wanted it to be changed to Springtime for Mussolini, as Mussolinis nicer.
  
@@ -731,7 +783,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
  
 -u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165795.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">26 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky11" id="linky10">26 Charts Filled With Random Knowledge</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165240.jpg" style="width:100%"><br>
 
@@ -783,69 +835,151 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165254.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky12" id="linky11">40 Fascinating Photos From History</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166433.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. In 1979, 16 Year Old Brenda Ann Spencer Was Arrested After Killing Two People In California. When Asked Why She Did It, Her Reply Was I Just Dont Like Mondays</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166005.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166434.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. In 1969, When Black Americans Were Prevented From Swimming Alongside Whites, Mr.rogers Invite Officer Clemmons To Join Him And Cool His Feet In A Pool, Breaking A Well-Known Color Barrier</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165966.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166435.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. Members Of The Polish Resistance During World War 2, Then To Now</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165967.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166436.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. In 1912, Jim Thorpe, A Native American, Had His Running Shoes Stolen On The Morning Of His Olympic Track And Field Events
+
+He found this mismatched pair of shoes in the garbage and ran in them to win two Olympic gold medals that day.
+
+He was also the first Native American to win a gold medal for the United States.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166437.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. Everyone You Meet Always Asks If You Have A Career, Are Married Or Own A House As If Life Was Some Kind Of Grocery List. But Nobody Ever Asks If You Are Happy - Heath Ledger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165969.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166438.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Holocaust Survivor And The Soldier Who Rescued Her In 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165970.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166439.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Women In Afghanistan During The 70s. Before Taliban</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165971.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166440.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. A Goodbye Between North- And South Korean Relatives After A Family Reunion, Who Were Separated For Over 57 Years</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165972.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166441.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. Patrick Swayze Once Said: “I’ve Now Ceased To Worry About Image, Because I Dont Care What People Think Of Me Anymore. Because Ive Had Such A Battle With What I Think Of Me And With Trying To Find A Way To Like Myself”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165973.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166442.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. That Time When Princess Diana Broke The Royal Rules For Her Son William By Taking Part In The Sports Day Running Race At Her Son’s School</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165974.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166443.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. The Man Behind The Iconic Photo
+
+Never thought about it before, but you know that famous picture of a bunch of construction workers sitting on a girder way up in the sky and having lunch? Well heres the photographer who took that picture: Charles C. Ebbets</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165975.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166444.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. 3 People Pose For A Photo Whilst Wearing Face Masks During The Second Wave Of The Spanish Flu In California; 1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165976.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166445.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Job Hunting In 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165977.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166446.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. Rms Queen Elizabeth Returning 15,000 Soldiers To New York At The End Of Ww2 1945. The Ship Was Not Overcrowded, Soldiers Simply Ran To The Deck As They Arrived</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165978.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166447.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. Economy Class On Pan Am 747 In The Late 60s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165979.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166448.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. “An Empty Stomach, An Empty Wallet And A Broken Heart Can Teach You The Best Lessons Of Life” - Robin Williams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165980.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166449.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. A Skateboarder Zipping Through Central Park In The 1960s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166450.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The Models Of The American Gothic Painting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166451.png" style="width:100%"><br>
+<span style="font-size:4em">19. George Lucas Surrounded By Star Wars Props</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166452.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. Father Faints When He Meets His Triplet Babies For The First Time In 1946. This Was Before Ultrasound Was Invented</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166453.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. Lady Norman On Her Scooter/Autoped, 1916</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166454.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Temple Of Kukulcán (El Castillo)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166455.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. A Woman Celebrating Birthday In Tehran, Iran In 1973</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165987.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166456.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. A Knocker-Upper Was Someone Whose Purpose Was To Wake People Up During A Time When Alarm Clocks Were Expensive And Not Very Reliable. They Earned About Six Pence A Week Using A Pea Shooter To Shoot Dried Peas At The Windows Of Sleeping Workers In East London, 1930s. She Would Not Leave A Window Until She Was Sure That The Workers Had Woken Up</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165988.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166457.jpeg" style="width:100%"><br>
+<span style="font-size:4em">25. Discovering The Mona Lisa, After Ww2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165989.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166458.jpeg" style="width:100%"><br>
+<span style="font-size:4em">26. A Man Browsing For Books In Cincinnatis Cavernous Old Main Library. The Library Was Demolished In 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165990.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166459.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. More Than 40 Years Later!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165991.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166460.jpeg" style="width:100%"><br>
+<span style="font-size:4em">28. Behind-The-Scenes Photos From Titanic, 1997
+
+“We were kind of the two goofy kids on the set,” Kate Winslet told Rolling Stone in 1998. “Y’know, working with Leonardo DiCaprio — he’s a bit gorgeous, and I was worried that I was going to be bowled over by him, or that he was going to find me all stuffy and Shakespearean and English. But the second we met, we just completely clicked.”
+
+Leonardo DiCaprio said, “She was my best friend for seven months. We’d unload the stresses of the shoot to each other, vent to each other, watch out for each other....We were partners.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165992.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166461.jpeg" style="width:100%"><br>
+<span style="font-size:4em">29. A Llama In Times Square, 1957</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165993.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166462.jpeg" style="width:100%"><br>
+<span style="font-size:4em">30. Jerry Stiller- Takes His Son Ben Stiller To A Play (1978)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165994.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Goodbye Kiss At Penn Station, NY, Between A Soldier And His Loved One, And No Assurance He Ever Comes Back. 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. New York In The Early 1900s. Colorized By Sanna Dullaway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Downtown Los Angeles Photographed In 1901, And Again In 2001, Exactly 100 Years Later</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Rome, Italy In The 60s Was A Vibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Beautiful Photo Of The Twin Towers In 1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. California Street, San Francisco. 1964</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. Old Photos Of The Cast Of Friends</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. The Simpsons Writing Room, 1992</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. Tobey Maguire And Leonardo Dicaprio Bowling, 1989</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. A Man Begs For His Wife’s Forgiveness Inside A Divorce Court, Chicago, 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166004.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">26 Twitter Memes That Show No Remorse</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164769.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164770.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164771.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164772.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164778.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164779.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164781.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164786.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164790.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164792.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164798.jpeg" style="width:100%"><br>
 
 ## <a href="#linky14" id="linky13">31 Dank Memes We Can All Abide By</a><br>
 
@@ -909,7 +1043,61 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87164712.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
+## <a href="#linky15" id="linky14">20 Perfectly Fitting Items to Release That Serotonin</a><br>
+
+<span style="font-size:4em">1. Gotta love when the bacon strips fit ever so perfectly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055313/87165301/bacon.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is a pure *chefs kiss* if there ever was one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055325/87165302/basket.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. If my battery drawer looked like this I would be a king.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055337/87165303/batts.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Books fitting on a shelf is peak adulting.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055356/87165305/book.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Life hack if you ever need to sneak diced tomatoes into a cheese convention.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055359/87165306/cheese.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. These covid tests stacked so neatly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055407/87165307/covid.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This lawn mower fits just right to cut one lane of grass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055421/87165310/mower.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. If there werent germs everywhere this would be the perfect can holder.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055410/87165308/coke.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A lid that fits into a table. Why? Why does this work out so well?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055419/87165309/lid.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I would clean this spot every single day if it were in my apartment.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055516/87165319/swiffer.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Paper lined up in immaculate fashion inside of a drawer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055430/87165311/paper.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This pound coin fits right into this toy.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055432/87165312/pound.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Roombas are the future. This one cleans in tight spots, clearly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055442/87165313/robot.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I dont know why but this is so satisfying to me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055348/87165304/can.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. This all natural rock that fits amazingly beside another.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055444/87165314/rock.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If all pizza boxes were microwave-sized, society would never collapse.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055453/87165315/pizza.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The perfect seasoning/cleaning products drawer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055456/87165316/season.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. When a sofa fits just right in between your walls.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055504/87165317/sofa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The shadow that lines up with the sidewalk. Beautiful.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055507/87165318/shadow.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My bathroom would look so godd*mn clean every single day.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/055519/87165320/vaccum.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">Duff in the Buff: Lizzy McGuire Like You've Never Seen Her Before</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044946/87165225/Duff4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044653/87165221/hilary-duff-womens-health4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044943/87165224/duff5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044955/87165226/duff2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/044958/87165227/duff1.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
 
@@ -951,205 +1139,33 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">25 Trashiest Wedding Stories Ever Told</a><br>
+## <a href="#linky18" id="linky17">Zuckerberg Posts a Selfie and Gets Trolled to Hell and Back </a><br>
 
-<span style="font-size:4em">1. At a park. Pick-up trucks with Igloo coolers opened on the tailgate were the bar. Everything was served in red solo cups BEFORE the wedding. Everyone got drunk. The bride walked down the aisle drinking from a red solo cup instead of holding a bouquet. It was essentially a tailgate party with a preacher invited. -u/Butterbean-queen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163749.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Here is the original selfie which started the Zuck photoshop roasting. The picture shows the roboman with employees of Metas first store cheesing for their overlord. And in typical roast fashion the image was photoshopped.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120504/87165064/zuck-selfie-photoshops2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Groom beat the sh*t out of the father-in-law. Father in law went to bathroom and died. Groom shot himself in the parking lot. This was 25 years ago in Chicago. Crazy wedding. -u/pohuja</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163750.png" style="width:100%"><br>
+<span style="font-size:4em">2. Lets show how human we can be guys.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120456/87165063/zuck-selfie-photoshops1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. The bride and her sisters did a strip tease/lap dance on the groom immediately following dinner. In front of his grandmother. -u/JohnaldL</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163751.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I see no difference. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120402/87165053/zuck-selfie-photoshops6.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Surely that video of the bride walking down the backyard aisle while dirty dancing to her own sh*tty recorded cover of Crazy Bitch has got to be up around here somewhere.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163752.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. OH YEAH! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120445/87165061/zuck-selfie-photoshops3.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163753.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120351/87165051/zuck-selfie-photoshops7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-https://youtu.be/fSkHMSKgIWs
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163754.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Some how the beard makes him look even less like a human. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120454/87165062/zuck-selfie-photoshops11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163755.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. And once the photoshops made their way to Twitter, the jokes started coming in. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120359/87165052/zuck-selfie-photoshops8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
--u/Crash4654</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163756.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Its not going well. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120413/87165055/zuck-selfie-photoshops4.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. My own. In a Mississippi judges office with a bag of Cheetos on her desk. She wiped her hands on a napkin, grabbed a bible, and did her thing with orange crumbs on her lips. Her work heels were not on because she was in her office. It was extremely rushed. I understand that she was on her break but we didnt mind waiting. -u/Zezima-RS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163757.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Too many Marks. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120421/87165056/zuck-selfie-photoshops10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Probably my dads 2nd marriage. Along the banks of a river with trailer homes in the background. Hes wearing a tuxedo T-shirt and rainbow mirror sunglasses. The ceremony took place at noon: hed been drinking since 5am. I had to walk one of the bridesmaids down a flight of steps as she was legally blind, and someone asked me if I was going to bang her. Sighs. -u/shibbster</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163758.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120443/87165060/zuck-selfie-photoshops9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Camo print wedding dress that was borderline see-through. Walked down the aisle to the Scooby-Doo theme. No, nobody knows why they chose that song, including the couple themselves. They divorced a few months later after they both stopped cleaning the house in an act of defiance against one another. -u/Much_Difference</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163759.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120410/87165054/zuck-selfie-photoshops12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. A wedding on the beach behind Hooters. The officiant stood next to a trash bin. As if it was planned, the trash collector pulled up during the vows. Did he wait to change the bag? Absolutely not. Children at the wedding swarmed the couple like flies around the trash can just after the kiss, stepping all over her dress. She bent over to adjust her sandal and a pack of Marlboro reds fell out of the bust along with her right breast. It felt like we were rubbernecking instead of witnessing a marriage. -u/Svetlana_of_Athens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163760.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Stuble, but effective. How long did it take you to spot the fangs? Wait, what fangs? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120432/87165058/zuck-selfie-photoshops14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I don’t even know where to begin...Ceremony was comprised of immediate family then followed by a reception with all guests in a relatively nice hotel banquet hall. An hour in at 7pm the open bar was completely closed down because MULTIPLE guests were throwing up in the bathroom sinks causing flooding.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-The groom was so wasted even before the ceremony but was blackout by the time of the reception. During the first dance, he kept his hands in his cargo pant khakis the entire time and ate dinner sitting on the floor in a corner of the hall while the bride sat at the head table alone. About two hours in, the groom randomly left and slept at their house while the bride stayed in the newlywed suite by herself. They are now separated as you may have assumed by this point. -u/Rdab3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Waitress at a bogan wedding. The night ended with the chef and I rounding up the kids and barricading us all in the kitchen and locking the doors to prevent the melee of fighting adults outside from A) accessing MORE weapons (Some of them BYO’d knives) and B) hurting the kids. They ranged in age from toddlers to preteens. It was just the chef and me, 2 women and a whole bunch of screaming and frightened kids until the police came and carted everyone off to jail.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Wedding photographer showed up the next morning for the scheduled photoshoot. I had to tell him he could find the wedding party at the local jail. The chef and I are still friends, but we both quit that place shortly after that epic wedding. -u/a_nonny_mooze</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I was actually the bartender but it was a hoot. The wedding was outside and it stormed violently. Groom was hammered pre-wedding. Hit on all the bartenders. Then the DJ got hammered, made lewd comments to women on the microphone. Then basically everyone was hammered, knocked over the wedding cake which also happened to be a table with many candles, so the place caught on fire. Good times. Often wonder how that marriage worked out. -u/SnooHobbies7109</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The bride made a speech thanking her in-laws for financial assistance for the event. Her mother was not thanked and she was furious. There was a long head table for the bridal party and parents. It was made out of small tables pushed together covered by one long tablecloth. The mother pulled a small table out of the arrangement, catching the table cloth, and nearly destroying the head table set up.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Now the bride got angry and there was much back and forth with various family members attempting to make peace. The mother refused to push back her table and began to invite others to sit with her, all people who were not meant to be seated at the front. The mother of the bride continued to sit there and talk sh*t about her daughter, the bride, to anyone who would listen. -u/lilyspads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Wedding was in a suburban driveway. The maid of honor stole the bouquet from someone’s garden and the best man proudly announced he had shoplifted the rings. The groom wore a button-down shirt that said ‘f*ck off’ in fancy lettering. The bride stopped in the middle of the vows to tell her mother to ‘get that f*cking kid out of here.’ It was her second kid by the previous bloke. -u/HopelessEmu</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. There were no tables and chairs. Like none. They had an open bar but no f*cking chairs. Everyone had to put their drink on the ground and hold their plate to eat. It was f*cking crazy. Everyone just assumed that some sort of terrible thing happened where the tables and chair people didnt bring them but afterward I asked her (the bride) what happened and she just said: Oh we would have had to pay extra for that. -u/PM_MEE_PUSSY_PICS</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I had one of my friends from high school get married in a trashy way. His fiancé at the time invited him to lunch at Buffalo Wild Wings. She had also invited the whole family (they were in on it), and once my friend showed up he found out it was a surprises wedding (just like you would do a surprise birthday party.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87163773.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">12 Life Tips Everyone Should Know</a><br>
-
-<span style="font-size:4em">1. In most cases, it will cost your employer far more to replace you than it would to give you a raise. So ask firmly.
-The cost of recruiting, onboarding/training, etc often exceeds the cost of paying an already established employee more. Just remember that next time you talk yourself out of asking for a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164630.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. If you have an Android phone, go to the developer options and set Animation Time to x0.5! Your phone will feel like it’s gotten a huge processor update.
-Unlock Developer Options:
-
-Settings > About Phone > 7x tap on Build Number
-
-Decrease animation time:
-
-Settings > System > Developer Options > Set all Options with Animation Scale to x0.5 or less</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164629.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Your parents took decades to furnish their house.
-If you’re just starting out, remember that it took your parents decades to collect all the furniture, decorations, appliances, etc you are used to having around. It’s easy to forget this because you started remembering things a long while after they started out together, so it feels like that’s how a house should always be.
-
-It’s impossible for most people starting out to get to that level of settled in without burying themselves in debt. So relax, take your time, and embrace the emptiness! You’ll enjoy the house much more if you’re not worried about how to pay for everything all the time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. You will get calls about your taxes, there is a 100% chance they are scams.
-I just received a voicemail today that said there was a “tax fraud pending against me” and that I should call back immediately before “I get arrested”. Please be cautious as these are scams. If you ever have questions regarding your taxes, go to the place you filed them and start there, then go to the IRS directly. The IRS never calls, you’ll get letters.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164632.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. If you ever forget your WiFi password or you want to get your school WiFi password etc. Just type this command into the command line of a computer already connected to that WiFi: netsh wlan show profile WiFi-name key=clear.
-Also when youre at a hotel that charges for wifi (or for faster wifi), get the password from the business center computer which is probably connected to the employee wifi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164633.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. If you think someone has forgotten your name, skip the awkwardness and mention it in third person.
-Last night someone I’ve volunteered with on-and-off for 2 years, I’m pretty sure forgot my name, so I worked into conversation said something like “I have a tendency to leave things till the last minute, and my roommate is like ‘Alybank! Why are you like this?” I could see the relief on the other persons face when I said it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164634.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Inflation is currently ~2% per year. If you are not getting more than that per year as a raise, you are getting a pay cut. Make sure to take inflation into account when you get a raise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164635.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Those viral posts asking things like “Your stripper name is your first pet and your mother’s maiden name” are amazingly effective ways to reveal answers to common security questions you may be using elsewhere.
-The next time you see a mass post or “share this on” message asking for information like this, remember you’re sharing important personal information which may be dangerous to share openly with others. There’s a good reason why so many of them rely on your funny answer being made up of your mother’s maiden name, first pet, favourite teacher or street you grew up on…Always be careful where you’re sharing information, consider whether it’s really necessary to share it, or consider using incorrect answers – either to the post, or to the security questions themselves (as long as you can remember what you set them to).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164628.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. If you’re someone that always listens to music in your car make it a habit at least once a month to turn it off and listen to your car for a couple minutes. There may be an issue you’re not aware of which could be caught before it turns into a major problem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Be skeptical of products that say “Clinically proven”. That is a marketing term and only says they’ve done their own private study that is designed to show the result the company wants. It is not the same as a “Scientifically proven” study which is published and open for peer review.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164637.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. if you need somewhere to work/relax with friendly staff, nice AC, plenty of seating, free WiFi, and available all across the US, you’re in luck! There are more public libraries in the US than there are Starbucks or McDonalds! And you’re under no obligation to buy anything to sit there.
-16,568 – Public Libraries in the US. There are over 116,000 if you include academic, school, military, government, corporate, etc
-
-14,606 – Starbucks stores in the U.S. in 2018
-
-13,905 – McDonald’s restaurants in the United States in 2018</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164638.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. If you have illegal drugs in your system and find yourself in the hospital PLEASE be honest and disclose exactly what you’ve taken or what you believe you’ve taken. Care providers are not the police; the quality of your outcome might depend on such information.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164639.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">42 Memes That May Be Hard To Argue With.</a><br>
-
-<span style="font-size:4em">1. I mean I guess if youre writing and starring in the movie, why wouldnt you set yourself up with a hottie for a wife?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. OMG Ref... how could you not see that?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Time to toss it in the garbage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. But did you die though, mom?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163528.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Look into my eyes and come with me aboard my ship. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/11/120423/87165057/zuck-selfie-photoshops5.png" style="width:100%"><br>
 
 ## <a href="#linky19" id="linky18">16 People Confess Incredibly Dark Family Secrets</a><br>
 
@@ -1184,4 +1200,26 @@ The next time you see a mass post or “share this on” message asking for info
 <span style="font-size:4em">15. My childhood home burnt down in 2009, when I was 8 years old, and my whole family knows the truth about what really happened that day... Lets say the fire was unaccidentaly accidental...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164263.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">16. The darkest secret our family has is a few streaks of alcoholism here and there and the fact that were so boring that we dont have dark secrets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164264.jpg" style="width:100%"><br>
+
+## <a href="#linky20" id="linky19">Madonna Needs Some Serious Help</a><br>
+
+<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
 
