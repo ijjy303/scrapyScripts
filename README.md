@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/14/2022-11:11:32
+Last updated: 05/14/2022-12:11:33
 <br>
 ## <a href="#linky2" id="linky1">27 Tattoos That Really Suck</a><br>
 
@@ -77,73 +77,47 @@ Last updated: 05/14/2022-11:11:32
 
 <span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166144.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">33 Savage Memes Not For the Faint of Heart</a><br>
+## <a href="#linky4" id="linky3">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166276.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166312.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166279.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166280.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166284.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166293.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166278.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166285.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166287.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166288.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166289.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166290.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166291.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166292.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166283.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166294.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166297.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166298.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166300.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166313.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">29 Things All Boys of the '80s Will Remember</a><br>
 
@@ -205,93 +179,163 @@ Last updated: 05/14/2022-11:11:32
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87165042.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">22 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky6" id="linky5">25 Weird Things You Never Knew About Mussolini</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165349.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Mel Brooks initially titled The Producers as Springtime for Hitler, named after the fictitious musical that drove the plot. Universal expressed an interest, but wanted it to be changed to Springtime for Mussolini, as Mussolinis nicer.
+ 
+-u/AbathaCrispy
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165350.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Mussolini did not participate in the March on Rome. Mussolini appointed leaders of the march and took pictures with them but went to Milan, only arriving in Rome a day later after the march had succeeded.
+ 
+-u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165351.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. One of Emperor Caligula’s floating/pleasure palaces was built and anchored on Lake Nemi. Sunk later in the first century, it was recovered in a feat of engineering sponsored by Benito Mussolini in the 1930s, but destroyed during a German retreat in 1944.
+ 
+-u/BronxLens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165352.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Milhouse from the Simpsons was named after U.S president Richard Milhous Nixon. The name was the most unfortunate name Matt Groening could think of for a child. Later in the series, it was also revealed that Milhouses middle name was Mussolini
+ 
+-u/jvst_joshin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165353.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. After the Italian government arrested Mussolini following the fall of Rome, Hitler sent a squadron of gliders to rescue him from a mountaintop castle. The operation was a success, without a shot being fired.
+ 
+-u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165354.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Raffaele Bendandi was an Italian clockmaker who could predict earthquakes, such as the 1915 Avezzano earthquake which killed 30,000, using a self taught method that wasnt backed by science. Mussolini made Bendandi a Knight but banned his public predictions in 1928 because it harmed tourism.
+ 
+-u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165355.png" style="width:100%"><br>
+<span style="font-size:4em">7. Mussolini ordered the execution of his son-in law
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165356.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Rachele Mussolini had five children with the Italian dicatator, some of them living to old age in the 1990s. After the war, Rachele Mussolini ran a restaurant in her native village of Predappio, where she served pasta dishes
+ 
+-u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165357.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. From 1917 to 1918 British Intelligence paid an Italian journalist the modern equivalent of £6,000 (US$ 8,290) per week to keep up the pro-war campaigning. The cash got him a start in politics, and was also allegedly lavished on his many mistresses. The journalist was 34-year-old Benito Mussolini
+ 
+-u/Brutal_Deluxe_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165358.png" style="width:100%"><br>
+<span style="font-size:4em">10. Italian fascist dictator Benito Mussolini had his first wife (married 1914) imprisoned and their son, Benito Albino Mussolini, forcibly interned in an asylum in Mombello, Province of Milan, where he was murdered on 26 August 1942 after repeated coma-inducing injections, at 26.
+ 
+-u/Looking_At_The_Past</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165359.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Mussolinis great-grandson is a soccer player who plays on the right wing at Lazio
+ 
+-u/elbenji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165781.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165360.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Mussolini’s granddaughter is a right-wing politician in Italy.
+ 
+-u/mr_oberts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165361.png" style="width:100%"><br>
+<span style="font-size:4em">13. Nobel Peace Prize nominees included Hitler, Stalin, and Mussolini
+ 
+-u/an_astrophysicist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165362.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. In 1932, Mussolini described antisemitism as a German vice and stated that There was no Jewish Question in Italy and could not be one in a country with a healthy system of government.
+ 
+-u/JoeFalchetto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165784.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165363.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Mussolini was so jealous of Germanys gains in Europe, he warned Belgium and the Netherlands about the oncoming German invasion
+ 
+-u/VLenin2291</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165364.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Maserati worked hard and failed to construct a V16 town car for Benito Mussolini before Ferry Porsche of Volkswagen built one for Adolf Hitler
+ 
+-u/rosesandtherest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165365.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Benito Mussolini was highly superstitious and anti-clerical. After he learned about the curse of the Pharaohs, he ordered the immediate removal of an Egyptian mummy from Palazzo Chigi in Rome which he had accepted as a gift. He also shocked audiences several times by daring to be struck dead.
+ 
+-u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165787.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165366.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. After the Nazi assassination of Austrian Chancellor Engelbert Dollfuss, Fascist Italian dictator Mussolini mobilized the Italian army on the Austrian border and threatened Hitler with open war if German troops crossed into Austria.
+ 
+-u/verostein</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165367.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The corpses of Mussolini and his mistress were beaten and urinated upon and finally left to hang upside down, for public display, from a rusty beam outside a petrol station
+ 
+-u/Wagamaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165368.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Mussolini believed pasta was the reason for many problems in the Italian society and pushed for rice-based food like risotto. He had support from artists of Italian Futurism, who claimed that pasta made people weak and lazy.
+ 
+-u/Altairve</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165790.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165369.png" style="width:100%"><br>
+<span style="font-size:4em">21. That Mussolinis Fascist Revolutionary Party tried to out-socialist the socialists in Italys 1919 elections & the socialists received 40 times as many votes. Mussolini lost so badly that he received zero votes in his home town & the socialists held a mock funeral procession for his career.
+ 
+-u/Dhididnfbndk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165791.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165370.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Hitler, Mussolini, and Himmler once all flew on Hitlers plane, and during that flight, Mussolini sat in the cockpit and briefly took the controls for about an hour. After the flight, Mussolini directed his staff to tell people that he had flown Hitler home from the front.
+ 
+-u/roraima_is_very_tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165792.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
+<span style="font-size:4em">23. Benito Mussolini wrote a romance novel: The Cardinals Mistress
+ 
+-u/Awesomeuser90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165793.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Benito Mussolini had a pet lion
+ 
+-u/TheTravelier</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165794.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Benito Mussolini signed Vatican City into existence. The 1929 Lateran Treaty ended the dispute between the Italian government & the Catholic Church, which allowed the Vatican to exist as its own sovereign state and compensated the church $92 million (> $1 billion today) for the Papal states.
+ 
+-u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165795.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">26 Twitter Memes That Show No Remorse</a><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164769.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164770.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164771.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164772.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164778.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164779.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164781.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164784.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164786.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164790.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164792.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164798.jpeg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">30 Things Only People Over 30 Will Understand</a><br>
 
@@ -462,61 +506,121 @@ Last updated: 05/14/2022-11:11:32
 -u/nick_name_was_taken
 </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/025237/87166009/article-2184777-146BDEE9000005DC-822_468x503.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">26 Twitter Memes That Show No Remorse</a><br>
+## <a href="#linky10" id="linky9">22 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164768.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164769.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164770.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164771.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164772.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164774.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164775.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165355.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164777.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164778.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165357.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164779.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165358.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164780.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165359.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164781.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165360.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164782.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165361.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164783.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165362.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164784.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165363.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164786.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165364.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164787.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165365.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164788.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165366.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164790.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165367.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164791.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165368.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164792.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165369.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164793.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165370.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164794.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">33 Savage Memes Not For the Faint of Heart</a><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164795.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164797.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166312.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164798.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166279.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">30 Terrible Coworkers No One Wants To Work With</a><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166284.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166278.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166285.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166288.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166289.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166283.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166277.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166313.png" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">30 Terrible Coworkers No One Wants To Work With</a><br>
 
 <span style="font-size:4em">1. My Colleagues Desktop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165550.jpg" style="width:100%"><br>
 
@@ -578,110 +682,6 @@ Last updated: 05/14/2022-11:11:32
 
 <span style="font-size:4em">30. This Is How My Coworker Avoids Taking Out His Garbage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165559.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Weird Things You Never Knew About Mussolini</a><br>
-
-<span style="font-size:4em">1. Mel Brooks initially titled The Producers as Springtime for Hitler, named after the fictitious musical that drove the plot. Universal expressed an interest, but wanted it to be changed to Springtime for Mussolini, as Mussolinis nicer.
- 
--u/AbathaCrispy
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Mussolini did not participate in the March on Rome. Mussolini appointed leaders of the march and took pictures with them but went to Milan, only arriving in Rome a day later after the march had succeeded.
- 
--u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. One of Emperor Caligula’s floating/pleasure palaces was built and anchored on Lake Nemi. Sunk later in the first century, it was recovered in a feat of engineering sponsored by Benito Mussolini in the 1930s, but destroyed during a German retreat in 1944.
- 
--u/BronxLens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Milhouse from the Simpsons was named after U.S president Richard Milhous Nixon. The name was the most unfortunate name Matt Groening could think of for a child. Later in the series, it was also revealed that Milhouses middle name was Mussolini
- 
--u/jvst_joshin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. After the Italian government arrested Mussolini following the fall of Rome, Hitler sent a squadron of gliders to rescue him from a mountaintop castle. The operation was a success, without a shot being fired.
- 
--u/mike_pants</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Raffaele Bendandi was an Italian clockmaker who could predict earthquakes, such as the 1915 Avezzano earthquake which killed 30,000, using a self taught method that wasnt backed by science. Mussolini made Bendandi a Knight but banned his public predictions in 1928 because it harmed tourism.
- 
--u/TheTriviaPage</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Mussolini ordered the execution of his son-in law
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Rachele Mussolini had five children with the Italian dicatator, some of them living to old age in the 1990s. After the war, Rachele Mussolini ran a restaurant in her native village of Predappio, where she served pasta dishes
- 
--u/van_datascience</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. From 1917 to 1918 British Intelligence paid an Italian journalist the modern equivalent of £6,000 (US$ 8,290) per week to keep up the pro-war campaigning. The cash got him a start in politics, and was also allegedly lavished on his many mistresses. The journalist was 34-year-old Benito Mussolini
- 
--u/Brutal_Deluxe_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Italian fascist dictator Benito Mussolini had his first wife (married 1914) imprisoned and their son, Benito Albino Mussolini, forcibly interned in an asylum in Mombello, Province of Milan, where he was murdered on 26 August 1942 after repeated coma-inducing injections, at 26.
- 
--u/Looking_At_The_Past</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mussolinis great-grandson is a soccer player who plays on the right wing at Lazio
- 
--u/elbenji</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mussolini’s granddaughter is a right-wing politician in Italy.
- 
--u/mr_oberts</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Nobel Peace Prize nominees included Hitler, Stalin, and Mussolini
- 
--u/an_astrophysicist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1932, Mussolini described antisemitism as a German vice and stated that There was no Jewish Question in Italy and could not be one in a country with a healthy system of government.
- 
--u/JoeFalchetto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165784.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Mussolini was so jealous of Germanys gains in Europe, he warned Belgium and the Netherlands about the oncoming German invasion
- 
--u/VLenin2291</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Maserati worked hard and failed to construct a V16 town car for Benito Mussolini before Ferry Porsche of Volkswagen built one for Adolf Hitler
- 
--u/rosesandtherest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Benito Mussolini was highly superstitious and anti-clerical. After he learned about the curse of the Pharaohs, he ordered the immediate removal of an Egyptian mummy from Palazzo Chigi in Rome which he had accepted as a gift. He also shocked audiences several times by daring to be struck dead.
- 
--u/KimCureAll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165787.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. After the Nazi assassination of Austrian Chancellor Engelbert Dollfuss, Fascist Italian dictator Mussolini mobilized the Italian army on the Austrian border and threatened Hitler with open war if German troops crossed into Austria.
- 
--u/verostein</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The corpses of Mussolini and his mistress were beaten and urinated upon and finally left to hang upside down, for public display, from a rusty beam outside a petrol station
- 
--u/Wagamaga</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Mussolini believed pasta was the reason for many problems in the Italian society and pushed for rice-based food like risotto. He had support from artists of Italian Futurism, who claimed that pasta made people weak and lazy.
- 
--u/Altairve</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. That Mussolinis Fascist Revolutionary Party tried to out-socialist the socialists in Italys 1919 elections & the socialists received 40 times as many votes. Mussolini lost so badly that he received zero votes in his home town & the socialists held a mock funeral procession for his career.
- 
--u/Dhididnfbndk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Hitler, Mussolini, and Himmler once all flew on Hitlers plane, and during that flight, Mussolini sat in the cockpit and briefly took the controls for about an hour. After the flight, Mussolini directed his staff to tell people that he had flown Hitler home from the front.
- 
--u/roraima_is_very_tall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Benito Mussolini wrote a romance novel: The Cardinals Mistress
- 
--u/Awesomeuser90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Benito Mussolini had a pet lion
- 
--u/TheTravelier</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Benito Mussolini signed Vatican City into existence. The 1929 Lateran Treaty ended the dispute between the Italian government & the Catholic Church, which allowed the Vatican to exist as its own sovereign state and compensated the church $92 million (> $1 billion today) for the Papal states.
- 
--u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165795.jpg" style="width:100%"><br>
-
 ## <a href="#linky13" id="linky12">26 Charts Filled With Random Knowledge</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165240.jpg" style="width:100%"><br>
@@ -734,7 +734,29 @@ Last updated: 05/14/2022-11:11:32
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165254.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Savage Clapbacks That Went Scorched Earth</a><br>
+## <a href="#linky14" id="linky13">Madonna Needs Some Serious Help</a><br>
+
+<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">20 Savage Clapbacks That Went Scorched Earth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033451/87166064/attack.jpg" style="width:100%"><br>
 
@@ -775,26 +797,4 @@ Last updated: 05/14/2022-11:11:32
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033644/87166082/words.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033651/87166083/trevor.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Madonna Needs Some Serious Help</a><br>
-
-<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
 
