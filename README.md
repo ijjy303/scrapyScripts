@@ -1,182 +1,234 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/14/2022-04:11:33
+Last updated: 05/14/2022-05:11:31
 <br>
-## <a href="#linky2" id="linky1">30 Things Only People Over 30 Will Understand</a><br>
+## <a href="#linky2" id="linky1">25 Facts That Completely Change How You View Winston Churchill</a><br>
 
-<span style="font-size:4em">1. Lets be real, we all just squished out the goo from inside, there was something so satisfying and it smelled so good. Nothing will ever come close to the way these sweet squishy things smelled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155783.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Winston Churchill demanded his coffin to be transported through the London Waterloo Station after his death, as he wanted future invitee, French President de Gaulle to walk bare-headed under the Waterloo’s archway that marked Britains victory over France in the Battle of Waterloo
+ 
+-u/axonable
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The fear was real. Rumors started flying as soon as the screening bus pulled up. Someone was going to find out they were deaf and it wasnt going to be you, nervousness took over and you raised your little hand at everything, even the rustle of your hair against the headphones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155782.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Fish & Chips was an aid in winning WWII. Sir Winston Churchill saw the comfort food as a good companion and was a dish that didnt get rationed to keep morale up. On the frontlines, troops calling fish and allies calling chips was an effective way to tell whether you were friend or foe.
+ 
+-u/ruelmoralesmusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. You saved your allowance, excitedly sent away (from the catalog) for your little seamonkey family and 6-8 weeks later, you got freeze dried shrimp that you stuck in water. Biggest let down ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155778.png" style="width:100%"><br>
+<span style="font-size:4em">3. Winston Churchill was almost killed in an auto accident in New York City on December 13, 1931, when he was crossing Fifth Avenue. Churchill did not look the other way because in the United States traffic keeps to the right whereas in the United Kingdom traffic keeps to the left.
+ 
+-u/LimeSugar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. And who would answer when you called?! The hot brother? The scary dad? The mom who talked on and on before calling your friend to the phone? Kids today wouldnt have survived.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155779.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Winston Churchill, a notorious drinker, circumvented prohibition while visiting the U.S. by obtaining a letter from his doctor prescribing alcohol for treatment following a vehicular accident.
+ 
+-u/SingLikeTinaTurner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Inevitably, the ruler would spin off and slam someone and you would get a demerit. Can they give those now or are we only giving positive reinforcements, like You didnt hurt anyone even though it spun off and nearly took out an eye, were so proud of you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155780.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. 22-year-old George Washington was the catalyst of the French and Indian War, which became the 7 Year War of 1756-1763 in Europe, and which Winston Churchill referred to as the real First World War as it encompassed much of the European world.
+ 
+-u/ClownfishSoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Best day of the week in computer lab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155784.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The plans for Winston Churchills state funeral had to be revised several times because Churchill outlived several intended pallbearers.
+ 
+-u/stupidusername69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Smell memory activitated. Bosses should start handing these out at the office, now. And giving erasers and rewards if you get to Friday without any behavior issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155785.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Winston Churchill is considered one of the Founding Fathers of the European Union. Churchill called for a United States of Europe, organized democratically, to prevent future wars. He was a driving force behind the creation of the Council of Europe.
+ 
+-u/coffeeinvenice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155786.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Winston Churchill’s Historic “Fight Them on the Beaches” Speech Wasn’t Heard by the Public Until After WWII
+ 
+-u/NineteenEighty9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. That was truly the only time these things existed. Kindergarten and bible school. No other humans could tap into the greatness of these two wonders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155787.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Winston Churchills mom was an American dollar princess from Brooklyn who had a snake tattoo on her wrist!
+ 
+-u/TakeMeToTheBakery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. And yet we survived and probably didnt do that again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155789.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. King Alexander of Greece died after being bitten by a monkey that had attacked his German shepherd. This significantly impacted Balkan history and Winston Churchill later wrote, it is perhaps no exaggeration to remark that a quarter of a million persons died of this monkeys bite.
+ 
+-u/hunterschuler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155790.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. When Winston Churchill sold Chartwell, the family home, to the National Trust, he required that there always be a marmalade cat named Jock in comfortable residence. The Trust honored that request. The current occupant is Jock VII, a six-month-old rescue kitten.
+ 
+-u/redaoife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155791.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. General Dwight D. Eisenhower threatened to quit just months before the D-Day landing due to disagreements with Winston Churchill on how to liberate France.
+ 
+-u/ser_antonii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Why though? Why did every teacher wear these with those weird wooden necklaces and country chic horrors? Not even old teachers, most were in their 30s. How could this ever be a lewk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155792.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Winston Churchill wanted to go to sea with the fleet and watch the D-Day landings from HMS Belfast. This idea was opposed by many and it took King George VI to stop him by insisting that if Churchill went then he would go as well. Eventually, Churchill backed down.
+ 
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The satisfaction of slamming this down on a telemarketer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155793.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Winston Churchill invented, designed, and named the Romper
+ 
+-u/socool111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Spelling, vocabulary, it was all fair game and you would be drilled for hours. In the car. While you ate, bathed, there was never. any. peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155795.png" style="width:100%"><br>
+<span style="font-size:4em">15. In a 2008 survey, 58% of British teenagers thought Sherlock Holmes was a real guy, while 23% thought Winston Churchill was not.
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165834.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. And you had to specify if you wanted them well done because if not, they were slightly pink in the middles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155796.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Winston Churchill wrote a scientific paper discussing the possibility of life on the moon but concluded that the existence of lunar life was unlikely
+ 
+-u/today_okay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. You were also quite aware that a wooden spoon wasnt just for stirrin the pot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155797.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. In April 1918, Winston Churchill nominated Theodore Roosevelt to be the Allies plenipotentiary to Moscow. The plan was for Roosevelt to make a deal where Lenin reentered the war and the Allies would safeguard the permanent fruits of the Revolution
+ 
+-u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Frozen cokey goodness that would inevitably explode all over your lunch room and the teachers would fuss but you did it every day anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155798.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Winston Churchill got Iran to change its name to Persia, to avoid confusion with Iraq during WW2
+ 
+-u/pmmeillicitbreadpics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165837.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155799.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Yousuf Karshs photo of Winston Churchill which is considered a symbol of Britains defiance against Nazism is actually about a cigar. Churchill refused to remove his cigar so Karsh stepped forward and removed the cigar himself, thus resulting in Churchills less-than-thrilled facial expression.
+ 
+-u/WhileFalseRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155800.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Queen Elizabeth II has seen 13 different UK Prime Ministers come into power, with the first one being Winston Churchill.
+ 
+-u/qmzwnxo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. And those who did died. And no one batted an eye, it was a way to clear out the gene pool. If youre too stupid to survive, better know right at the start.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155801.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. In 1941, when a General asked Winston Churchill for more men to man Antiaircraft guns, Churchill replied No, I can’t spare any men, you’ll have to use women. Mary Churchill (18), Winston Churchills youngest daughter was among the first to join and rose to the rank of Junior Commander in 1944.
+ 
+-u/sersleepsalot1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. We could make the pew-pew noises and point our finger guns at each other and no one thought we actually had a real gun and no one was offended or threatened. It was an incredible time to be alive. We could also play army, cowboys, and cops and robbers without offending anyone or getting expelled. Yup, kids, there were times like that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155802.png" style="width:100%"><br>
+<span style="font-size:4em">22. Following the Japanese attack on Pearl Harbor, the United Kingdom declared war on Japan nine hours before the United States, partially due to Winston Churchills promise to declare war within the hour of a Japanese attack on the United States.
+ 
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Really. Who didnt love the count? Muh-hahahhaha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155803.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Winston Churchill suffered a landslide defeat in the 1945 United Kingdom general election following the war
+ 
+-u/LiberalDomination</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155804.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Winston Churchill predicted lab-grown meat 89 years ago. We shall escape the absurdity of growing a whole chicken in order to eat the breast or wing, by growing these parts separately under a suitable medium.
+ 
+-u/electricmaster23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. You remember seeing your friends momma do this with the cigarettes you and your friend bought when you walked to the corner store for candy and chips when you were 7.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155805.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. Icees and popcorn.Mmmmm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155807.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. This is a rite of childhood, unless its a banned offense now. I have trouble keeping up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. But we didnt die, all of those and then I almost died gave us adventures, built us up, and taught us important lessons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Why though? Chicken, geese, the checkered print - it was everywhere and still haunts our dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. We all wanted to be on star search and no one really cared about the adults. We all just watched the kids and judged. Ohhh did we judge. And no one was offended. And everyone lived.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155811.jpg" style="width:100%"><br>
-
-## <a href="#linky3" id="linky2">30 "Idiots" Who Were Right the Whole Time</a><br>
-
-<span style="font-size:4em">1. Galileo - he believed the Earth and other planets orbited the Sun, contrary to popular belief that all stars and planets orbited Earth. The Catholic Church called it heresy, and ordered him to turn himself in to the Holy Office to begin a trial for his beliefs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Sinead O’Connor - she was vilified for ripping up a photo of the pope to protest child abuse within the Catholic Church. Spoiler alert - the Catholic Church was covering up child abuse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Stanislav Petrov. Though we dont see him as crazy, Im sure his crewmates thought he was. He directly disobeyed Soviet military protocols and prevented a nuclear war.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Rose McGowan was completely ostracized and blacklisted for talking about Weinstein too early.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. John Yudkin. The single scientist who didnt believe the sugar industrys research that demonized fats. Till his death hes adamant that fats werent the cause of obesity and heart attacks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. During the plague in Moscow there was a priest (or something) DIScouraging people kissing the statue of Maria, as to stop the spreading of the virus.
+<span style="font-size:4em">25. OMGs (Oh My God) First Use Was In A Letter To Winston Churchill In 1917.
 
-The poor man was burned alive for blasphemy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Tesla. Edison is still credited with the lightbulb. His last words put it into perspective All these years that I had spent in the service of mankind brought me nothing but insults and humiliation</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Hemingway talked about the FBI following him prior to his suicide. They thought he was paranoid. Decades later some papers get released, turns out the FBI was following him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Lisa Bonet. She was vilified for hating Cosby in the 80s. Who’s the villain now?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The inventor of dialysis, Dr. Willem Kolff. Although its hard to blame them, haha. He saw people dying of kidney disease and said Hey, what if we take all of the blood out of your body, clean it, and put it back in? (Cleaning your blood is the job of your kidneys, and a dialysis machine is basically an artificial kidney, on the *outside* of your body.) It was a wild idea and he started his work during WWII and had to work with basic materials like orange juice cans, sausage skins, and a washing machine. Many of the first patients died, but they were already going to die painfully. Eventually, he ironed the kinks out and started saving lives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Charles Darwin. The religious outcry against evolution was engineered by his academic rivals more than from religious resistance. But even now, after all that politics is centuries dead, there remain people who categorically resist demonstrable fact because of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Craig Ferguson having empathy for Britney Spears in his 2007 monologue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. There was a wacko looking guy on Oprah who stopped his vanilla presentation to tell the audience that plastic causes cancer, stop using it to store food and water.
+ 
 
-Oprah cut to commercial and whisked him off the show.
-
-Dude was right. BPAs were outed that day, but it took another decade for that info to become public knowledge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165575.jpg" style="width:100%"><br>
+-u/nick_name_was_taken
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/025237/87166009/article-2184777-146BDEE9000005DC-822_468x503.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Anyone who covered their webcam camera.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165576.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
 
-<span style="font-size:4em">15. Giordano Bruno was (probably) the first European who proposed the possibility that not only was the universe infinite, but stars were not just points of light in the sky; they could be suns with their own planets, and that some of those planets might even host life.
-
-The Catholic Church had him tried for Heresy and had him burned at the stake and his contemporaries though he was completely insane. He had some kooky ideas, but he was absolutely right about the size of the universe and stars being suns with their own planets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165577.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I’m flying… Jack! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164577.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Margaret Dunbar. Her four year old son went missing and one day the cops found him and brought him home. Except it wasn’t her son and everyone tried to gaslight her into believing it was. Well she was right and no one knows what happened to the real Bobby Dunbar to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165578.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I guess he didnt get the memo that costume day was canceled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I dont know that guys name but he basically from 1541-1542 travelled accross south america. The first european to do so. While he was on his journey he said he saw millions of people and large cities , with a lot of life in them , where today is the amazon rainforest.After he had finished his journey he had told the stories of those cities and about a hundred years later when explorers visited the place there was nothing , no cities , no people , just jungle. So they thought he had made all that up. But modern technology has shown that there might have accually been a lot of cities there , and that those people died out with smallpox and all cities were covered by the jungle within the course of 50 years. So basically people thought he was crazy and made everything up but in modern times its proven that he was right all along.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165579.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Dolly Parton the Spartan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164603.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Will Rogers a humorist when he invented the term trickle-down economics as a joke stating that this type of economy would just make the rich richer and the poor poorer.
-
-And then we actually implemented it and used the term trickle-down. And Will Rogers was right.
-
-The rent has gone though the roof and our salaries have stagnated and we cant afford The American Dream anymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165580.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. When you *really* love aviation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Martha Mitchell.. She was like part of the reason why it was discovered that Nixon was involved in Watergate. Her husband was part of the Nixon group so she got some inside details. When she wanted to tell the news about the whole scandal, her husband and Nixon men put her in a hotel and restrained her from having any contact with anyone. She was seen as an insane person her husband and Nixons men even managed to convince the psychiatrists that she was out of her mind.
-
-Actually theres a phenomenon in psychology which was named after her a.k.a the Martha Mitchell Effect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165581.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Whelp... that aint good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Heinrich Schliemann. He 100% believed that ancient Troy had really existed. So he armed himself with a copy of the Iliad, and actually managed to find and excavate the city. Hed told everyone and their sister that Troy was a real place for 40 years before he found it, and everyone thought he was cuckoo for Cocoa Puffs. Not so much, it turns out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165583.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Hes just a big kitty... until he gets hungry or a wild urge strikes him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164578.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Remember the government accountant in George W Bush’s presidency who said the war in Afghanistan would cost a billion dollars a month and he was fired? Well, he was right. It was 300 million dollars per day for 20 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165584.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. That poor turtle (statue) doesnt deserve this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Dr. Atkins.
-
-When his first book The New Diet Revolution came out, he was mocked and ridiculed for thinking that refined sugars, flour, and starch caused the glycemic index to skyrocket which led to your body storing fat. When he died people thought he died from his own diet.
-
-Keto-acidosis and how you can lose weight by reducing your glycemic index was largely his research.
-
-It was later stolen and copied and called The Zone Diet and The Caveman Diet and The Paleo Diet which were all based on his work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165585.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. All the people that said the NSA/CIA was spying on us for years.
-Thanks to edward Snowden we now know that was true and it was so much so that the NSA had built back doors in pretty much every single electronic device that exsists all the way down to the network switch level on cisco switches and the internet backbone through AT&T network hubs. The fact that there wasnt mass revolt after that information was released kinda blew my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165586.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. This looks like a baby photo of Al Capone or something.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Eisenhower. Re: The military–industrial complex.
-
-In the councils of government, we must guard against the acquisition of unwarranted influence, whether sought or unsought, by the military-industrial complex. The potential for the disastrous rise of misplaced power exists and will persist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165587.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Clair Patterson-he was made out to be crazy by giant oil companies bc he tested ice cores in the Arctic and figured out that the amount of lead in the atmosphere, the water, and our bodies was extremely high and caused by leaded gasoline. He petitioned Congress for years to make it illegal to add lead to gasoline, but the corporations kept getting him shut down because they used lead as an anti-knock agent for internal combustion engines. Ironically, lead was causing everyone else to go crazy because it is shaped like a neurotransmitter and blocks receptors causing insanity, similarly to what mercury does, and many employees of the oil companies had gone mad. After decades of battling the oil companies, he finally got his way and lead was removed from gasoline. Since then, the amount of lead in the atmosphere and I’m living things has decreased dramatically. Clair Patterson… a f**king hero.
-
-He also created the first truly “clean room.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165588.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Well there is something you dont see every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164587.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Boltzman spend his life trying to prove his formula but ended up commiting suicide because none of his collegues believed him. Now, his formula is basically the amen in thermodynamics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165589.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. What an adorable little fella.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. MrBeast infiltrated the YouTube market early. Mastered it. Making millions on millions a decade later at age 23. He bet on new media, looked crazy for a while but in the end won big.
-
-I understand to most he’s not a historical figure but as a marketing and digital media expert—he’s a pioneer in my book. He wrote the playbook. Plus there’s a typo in the question haha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165590.jpg" style="width:100%"><br>
+<span style="font-size:4em">13.  How does one even screw up this badly?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164576.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. Lord Kitchener (Horacio Herbert Kitchener) Secretary State of War for the British Army. At the onset of WW1, everyone thought the war would end very quickly, either going one way or the other. Kitchener was one of the few people to envision a long war, and to prepare accordingly, even though the British government actively hampered many of his efforts (even though he was a war hero)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165591.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Mitt Romney and his comment about Russia. I voted against him, but I’ll be damned if he wasn’t right about Russia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165592.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. Henry A Wallace was Roosevelts running mate and vice president in his 3rd term in office but was dropped from the ticket in the 4th in favor of Truman. Wallace was correct on a lot of issues manifesting in America that are still here today, race, education, and what happens to society unfer unregulated capitalism.
-
-In many ways Wallaces story mirrors the story of every single progressive the democratic party has tried to run in the 20th century. Rhetoric is fine but dont go after corporate greed.
-
-Truman and Wallace could not have been more different. If Wallace had stayed as running mate and vp at the time of FDRs death, its possible to imagine we would be living in a totally different world.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165593.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164593.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Stubborn Boss Ignores Employee's Suggestion and Lives to Regret it</a><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166136.png" style="width:100%"><br>
+<span style="font-size:4em">18. Are you trying to traumatize your kid for life or...?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166137.png" style="width:100%"><br>
+<span style="font-size:4em">19. This cat was voted salesman of the year 3 years running.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166138.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166139.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166140.png" style="width:100%"><br>
+<span style="font-size:4em">22. Unimpressed cat is unimpressed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164586.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166141.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166142.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164604.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166143.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164607.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166144.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164608.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">20 Savage Clapbacks That Went Scorched Earth</a><br>
+<span style="font-size:4em">27. It wasnt me, I swear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. RIP any vehicles left outside during that hail storm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. This poor guy is bummed out because of the haircut his mom made him get.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111246/87165796/87165256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111257/87165797/87165270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111309/87165798/87165264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111317/87165799/87165267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111320/87165800/87165282.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111328/87165801/87165287.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111332/87165802/87165294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165803/87165296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165804/87165280.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111343/87165805/87165298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111351/87165806/87165596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111355/87165807/87165598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111402/87165808/87165602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111407/87165809/87165609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111413/87165810/87165610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111418/87165811/87165613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111425/87165812/87165626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111429/87165813/87165627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111436/87165814/87165631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111442/87165815/87165636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111448/87165816/87165640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111454/87165817/87165637.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">20 Savage Clapbacks That Went Scorched Earth</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033451/87166064/attack.jpg" style="width:100%"><br>
 
@@ -218,7 +270,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/033651/87166083/trevor.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 Terrible Coworkers No One Wants To Work With</a><br>
+## <a href="#linky5" id="linky4">30 Terrible Coworkers No One Wants To Work With</a><br>
 
 <span style="font-size:4em">1. My Colleagues Desktop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165550.jpg" style="width:100%"><br>
 
@@ -280,7 +332,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">30. This Is How My Coworker Avoids Taking Out His Garbage.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165559.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">33 Savage Memes Not For the Faint of Heart</a><br>
+## <a href="#linky6" id="linky5">33 Savage Memes Not For the Faint of Heart</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166276.jpg" style="width:100%"><br>
 
@@ -348,7 +400,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166313.png" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">29 Things All Boys of the '80s Will Remember</a><br>
+## <a href="#linky7" id="linky6">29 Things All Boys of the '80s Will Remember</a><br>
 
 <span style="font-size:4em">1. Spending hours creating your inventions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87165014.jpg" style="width:100%"><br>
 
@@ -408,7 +460,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87165042.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">22 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky8" id="linky7">22 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165349.jpg" style="width:100%"><br>
 
@@ -454,7 +506,7 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87165370.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">26 Twitter Memes That Show No Remorse</a><br>
+## <a href="#linky9" id="linky8">26 Twitter Memes That Show No Remorse</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164768.jpg" style="width:100%"><br>
 
@@ -508,7 +560,89 @@ Truman and Wallace could not have been more different. If Wallace had stayed as 
 
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87164798.jpeg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">36 Scariest Moments People Still Don't Understand</a><br>
+## <a href="#linky10" id="linky9">30 Things Only People Over 30 Will Understand</a><br>
+
+<span style="font-size:4em">1. Lets be real, we all just squished out the goo from inside, there was something so satisfying and it smelled so good. Nothing will ever come close to the way these sweet squishy things smelled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The fear was real. Rumors started flying as soon as the screening bus pulled up. Someone was going to find out they were deaf and it wasnt going to be you, nervousness took over and you raised your little hand at everything, even the rustle of your hair against the headphones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. You saved your allowance, excitedly sent away (from the catalog) for your little seamonkey family and 6-8 weeks later, you got freeze dried shrimp that you stuck in water. Biggest let down ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155778.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. And who would answer when you called?! The hot brother? The scary dad? The mom who talked on and on before calling your friend to the phone? Kids today wouldnt have survived.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Inevitably, the ruler would spin off and slam someone and you would get a demerit. Can they give those now or are we only giving positive reinforcements, like You didnt hurt anyone even though it spun off and nearly took out an eye, were so proud of you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Best day of the week in computer lab.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Smell memory activitated. Bosses should start handing these out at the office, now. And giving erasers and rewards if you get to Friday without any behavior issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. That was truly the only time these things existed. Kindergarten and bible school. No other humans could tap into the greatness of these two wonders.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. And yet we survived and probably didnt do that again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Why though? Why did every teacher wear these with those weird wooden necklaces and country chic horrors? Not even old teachers, most were in their 30s. How could this ever be a lewk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The satisfaction of slamming this down on a telemarketer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Spelling, vocabulary, it was all fair game and you would be drilled for hours. In the car. While you ate, bathed, there was never. any. peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155795.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. And you had to specify if you wanted them well done because if not, they were slightly pink in the middles.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. You were also quite aware that a wooden spoon wasnt just for stirrin the pot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Frozen cokey goodness that would inevitably explode all over your lunch room and the teachers would fuss but you did it every day anyway.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. And those who did died. And no one batted an eye, it was a way to clear out the gene pool. If youre too stupid to survive, better know right at the start.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. We could make the pew-pew noises and point our finger guns at each other and no one thought we actually had a real gun and no one was offended or threatened. It was an incredible time to be alive. We could also play army, cowboys, and cops and robbers without offending anyone or getting expelled. Yup, kids, there were times like that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155802.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Really. Who didnt love the count? Muh-hahahhaha.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. You remember seeing your friends momma do this with the cigarettes you and your friend bought when you walked to the corner store for candy and chips when you were 7.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155805.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. Icees and popcorn.Mmmmm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155807.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. This is a rite of childhood, unless its a banned offense now. I have trouble keeping up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. But we didnt die, all of those and then I almost died gave us adventures, built us up, and taught us important lessons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Why though? Chicken, geese, the checkered print - it was everywhere and still haunts our dreams.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. We all wanted to be on star search and no one really cared about the adults. We all just watched the kids and judged. Ohhh did we judge. And no one was offended. And everyone lived.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87155811.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">Stubborn Boss Ignores Employee's Suggestion and Lives to Regret it</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166136.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166137.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166138.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166139.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166140.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166141.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166142.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166143.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1176861/87166144.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">36 Scariest Moments People Still Don't Understand</a><br>
 
 <span style="font-size:4em">1. As an officer on a reservation, we kept getting reports of a “tall man” at different places in a town on our reservation. One night we was able to catch him on a thermal camera. There was about 8-10 officers there. It was on a hill overlooking the town that was right below.
 
@@ -741,29 +875,101 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">36. dont know if this counts but when ever im walking in the middle of the night in the dark towards my bedroom it always looks like theirs a figure in front of me and most of the time i attempt to punch that thing in front of me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165685.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">Madonna Needs Some Serious Help</a><br>
+## <a href="#linky13" id="linky12">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
 
-<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Weird Things You Never Knew About Mussolini</a><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">26 Charts Filled With Random Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165239.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165241.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165229.gif" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165254.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">25 Weird Things You Never Knew About Mussolini</a><br>
 
 <span style="font-size:4em">1. Mel Brooks initially titled The Producers as Springtime for Hitler, named after the fictitious musical that drove the plot. Universal expressed an interest, but wanted it to be changed to Springtime for Mussolini, as Mussolinis nicer.
  
@@ -867,217 +1073,25 @@ No idea how to explain that one.</span><br><img src="https://cdn.ebaumsworld.com
  
 -u/lopezjessy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165795.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">26 Charts Filled With Random Knowledge</a><br>
+## <a href="#linky16" id="linky15">Madonna Needs Some Serious Help</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165240.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Scroll at your own risk, as what follows cannot be unseen.  We have warned you. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015721/87165959/madonna-nfts10.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165248.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. What kind of pedo sh*t is this? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015704/87165956/madonna-nfts1.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165236.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This woman is out fo control. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015751/87165964/madonna-nfts9.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165231.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Make it stop. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015739/87165962/madonna-nfts3.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165232.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Its like a poorly made Grimes video. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015715/87165958/madonna-nfts5.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165233.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015709/87165957/madonna-nfts6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165234.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I could have died happy without ever seeing or imagining this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015732/87165961/madonna-nfts7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165235.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015656/87165955/madonna-nfts4.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165237.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015726/87165960/madonna-nfts8.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165238.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165239.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165230.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165241.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165229.gif" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165254.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">59 Damn Fine Random Pics to Entertain and Amuse</a><br>
-
-<span style="font-size:4em">1. I’m flying… Jack! </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I guess he didnt get the memo that costume day was canceled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Dolly Parton the Spartan.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. When you *really* love aviation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Whelp... that aint good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Hes just a big kitty... until he gets hungry or a wild urge strikes him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. That poor turtle (statue) doesnt deserve this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This looks like a baby photo of Al Capone or something.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Well there is something you dont see every day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. What an adorable little fella.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13.  How does one even screw up this badly?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Are you trying to traumatize your kid for life or...?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This cat was voted salesman of the year 3 years running.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Unimpressed cat is unimpressed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164608.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. It wasnt me, I swear!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. RIP any vehicles left outside during that hail storm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164614.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164615.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164617.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. This poor guy is bummed out because of the haircut his mom made him get.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164619.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164620.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164621.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87164622.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111246/87165796/87165256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111257/87165797/87165270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111309/87165798/87165264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111317/87165799/87165267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111320/87165800/87165282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111328/87165801/87165287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111332/87165802/87165294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165803/87165296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111339/87165804/87165280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111343/87165805/87165298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111351/87165806/87165596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111355/87165807/87165598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111402/87165808/87165602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111407/87165809/87165609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111413/87165810/87165610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111418/87165811/87165613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111425/87165812/87165626.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111429/87165813/87165627.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111436/87165814/87165631.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111442/87165815/87165636.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111448/87165816/87165640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">59. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/111454/87165817/87165637.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">20 WTF Nightclub Pics That Are Pure Chaos</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125834/87165850/butt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125845/87165851/dog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125856/87165852/beam.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125904/87165853/arms.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125907/87165854/faced.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125915/87165855/ghost.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125919/87165856/hair.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125926/87165857/kiss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125927/87165858/eyes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125930/87165859/miss.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125937/87165860/neck.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125941/87165861/orange.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125948/87165862/shirt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/125952/87165863/spill.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010000/87165864/picture.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010003/87165865/tummy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010011/87165866/urinal.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010014/87165867/woof.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010022/87165868/wtf.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/010025/87165869/trash.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Your guess is as good as ours. Someone get this woman her adrenochrome. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/015744/87165963/madonna-nfts2.png" style="width:100%"><br>
 
