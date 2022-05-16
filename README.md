@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/16/2022-10:11:31
+Last updated: 05/16/2022-11:11:31
 <br>
 ## <a href="#linky2" id="linky1">21 Funny Memes to Activate Your Laughter Functions </a><br>
 
@@ -45,67 +45,43 @@ Last updated: 05/16/2022-10:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166394.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 People Who Clapped Back at Online Scammers</a><br>
+## <a href="#linky3" id="linky2">18 People Whose Age Will Defy You</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165517.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “Me, aged 17, first time letting my beard properly grow”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163641.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165500.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Everyone thinks I’m, like, 17, especially with this long hair. I turn 30 in 6 months.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163642.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165501.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “The greatest picture of me: 7 or 43, with a mortgage, an ex-husband, and five cats?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163643.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165503.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “Being 30 with baby face syndrome”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163644.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165504.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “That time when my mom got me glamour shots...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163645.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165505.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “I’ll be 30 this year, and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163646.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165506.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163647.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165507.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “23M, glasses or no glasses”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165508.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “How can I look older? I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165499.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Me (right), looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163649.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165509.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “13 going on 83. This is my sister with the Toni home perm in 1987. She told me to burn this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163640.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165502.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “I’m older than my friend behind me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165510.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “12-yr-old me flying with Jack”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165511.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “I’m my own grandma...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163652.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165512.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I get mistaken for being a teenager all the time. My friends convinced me to do a ’13 or 30′ themed birthday this year!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163653.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165513.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “13 or 30?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163654.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165514.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “That time in the early ’90s when I was 12 going on 54”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163655.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165528.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Started balding at 14. I’m actually only 23, surprisingly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163657.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">36 Funny Comments That Were Right On the Mark </a><br>
 
@@ -245,53 +221,73 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 “We had an incredible encounter…in the Ozark mountains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166209.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">23 Designs that Should Have Never Seen the Light of Day</a><br>
+## <a href="#linky6" id="linky5">33 Things People Do that Scream 'I'm Entitled'</a><br>
 
-<span style="font-size:4em">1. Green means GO AWAY!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167354.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. People who dont pick up after their dogs and throw cigarette butts on the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166602.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Every wire is just white, because why not mess with the installer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167335.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Treating service workers like crap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166580.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “This house was built about 4 feet below street level. Now they will have a very short, steep driveway down into the garage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167341.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/102535/87167580/cars.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167336.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. People who cut in line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “This official PlayStation brand shirt with the circle, x, and triangle colors wrong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167337.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Do you know who I am!?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166583.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Yes, that’s the sound that sheep make.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167338.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. when they do something to you and think it’s fine but when you do it in return and they freak out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166582.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167339.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I didn’t punch you, I hit you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166584.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167340.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Military spouses that expect to be saluted or have the same treatment as their Partners.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166585.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167343.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. People use the phrase Its just a child! to excuse their childs s***ty behavior. When the zoo says Dont tap the glass, it stresses the animal that means your f**kball child needs to knock it off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166586.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167344.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. People who purposely make messes at restaurants, movie theatres, etc. because someone else will clean it up or its their job to clean it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “This popcorn bag that says microwave for 2 minutes 30 seconds, but has a picture of a microwave with 3 minutes on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167345.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I will have you fired!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “This portable heater has started to melt its own handle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167346.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. People who dont use their turn signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166591.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167347.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Acting as if your religious rules and customs should apply to anybody else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166581.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167348.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When you say no to someone and then they act like a child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166592.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “They put braille on this mirror so blind people can use it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167349.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. People that talk over you after you waited your turn/the mood called for someone to add to the convo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166594.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167350.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Generally just leaving something for someone else to deal with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166595.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167351.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Impatience in situations where it should be just universally understood that you need patience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166596.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “How to get children to eat sand…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167352.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Incessant whining over shared inconveniences. For example, person goes to the DMV to find a 90 minute wait. Everyone else that arrived around the same time as them is also having to wait 90 minutes. But this person just. Won’t. Shut. Up about it. Like dude, we get it. It sucks. Literally no one is enjoying this experience. You’re not entitled to any faster service than anyone else, and bitching about it isn’t going to change that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166597.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167353.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Im a gas station worker and when people dont say please or thank you, when theyre on the phone(mostly when theyre VERY loud). When they walk in, dont even look at you, practically throw the money at you and say 20 on pump 5 and walk out.OH! And when theres only one person there, we have to close our store for lunch. We have a very polite worded sign on the door. Ill be walking with my food to the back and they try and bang on the door, put their arms up like what the f**k?? Youre not going to serve me??And theres literally another gas station kitty corner to us.Edit to clarify: where Im from(Sacramento, California) you pay at the pump with card and pump gas yourself. Im not stopping most people from getting gas by taking my lunch(ONLY thing that stops people from getting gas is if theyre paying with cash, but most people dont. Theres no discount at my store by paying with cash rather than card)The only thing they cant get is cigarettes, beer and snacks. But as I stated, there is another gas station right across the street.I am also entitled to a lunch, just as every other worker in America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167355.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Screaming at young people working at retail/fast food/starter positions at jobs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167342.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. People who dont return their shopping cart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. T Rex or Alien?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167356.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. All their problems are always someone else’s fault, never their own.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167357.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. People who are against abortion but then don’t give a s**t if the kid is taken care of.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I work as a ticket seller for a ski resort.My favorite entitled person is the guy who, upon finding out that the kids lesson was sold out, offered to pay extra if I would kick someone elses kid out so his kid could have a spot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. People who don’t clean up after themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Using or taking other peoples stuff without asking for their permission.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. People that think they’re the prize when dating but never consider what the other person wants from a relationship.I don’t care how many followers you have. How does that make you worth dating?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “Oh you can’t afford that, but it’s only like *high price*?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166609.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Hitting the back of someone’s car and then blaming it on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166610.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. People who make huge assumptions about the intent of others. They always think other people are thinking about them way more than they actually do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. I went to private school for all of high school. It was even further divided by wealth because it was an American school in a foreign country, so most of the kids from there were very wealthy, did coke on Tuesday nights, and would buy their way into Harvard. The rest of the kids were pretty much all from military families who had the price of education covered. I used to take the city bus home from school (it was out in the suburbs). One day this mom in her shiny convertible car and 200 dollar jeans parks her car where it is completely blocking the road and goes to pick up her kid. When the bus drives up, it can’t get by. Bus driver honks for a couple minutes, but the mom is no where in sight. When she finally comes out, she’s not even bothered by the fact that she’s been blocking traffic for 10 minutes. She just takes her sweet time getting in her car with her kid and finally drives off.Still makes me mad to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. When someone has to suffer a mild inconvenience and they throw a totally disproportionate tantrum about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. When Mitt Romney was debating Obama, he said: If a kid needs money to start a business they can always borrow it from their parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166614.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">32 Fun Pics to Make the Pain Go Away</a><br>
 
@@ -359,7 +355,49 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166571.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">24 Facepalms That Are The Epitome of Cringe</a><br>
+## <a href="#linky8" id="linky7">20 Thoughts for ‘Just Resting Your Eyes’ in the Shower</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166786.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">24 Facepalms That Are The Epitome of Cringe</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/13/012455/87166739/facepams3.png" style="width:100%"><br>
 
@@ -409,7 +447,7 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/13/012741/87166762/facepams23.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Monday Morning Randomness User Edition - Broseph_Mcbrah</a><br>
+## <a href="#linky10" id="linky9">Monday Morning Randomness User Edition - Broseph_Mcbrah</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/113850/87167597/87166895.jpg" style="width:100%"><br>
 
@@ -491,7 +529,7 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/114217/87167635/infinite_lego_creativity_640_23.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">34 Things Unique to Certain Countries</a><br>
+## <a href="#linky11" id="linky10">34 Things Unique to Certain Countries</a><br>
 
 <span style="font-size:4em">1. United Kingdom. I dont believe any other countries have the annual chasing cheese down a hill competitions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166492.jpg" style="width:100%"><br>
 
@@ -561,87 +599,337 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">34. USA. Full-size pickup trucks. Also, full-size lifted pickup trucks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166524.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 Thoughts for ‘Just Resting Your Eyes’ in the Shower</a><br>
+## <a href="#linky12" id="linky11">25 Celebrity Names That Are Better Fit For Porn Stars</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166768.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166769.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Rod Stewart. Pretty much anyone named Rod. -percygreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166770.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Alan Cumming. -ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166771.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Olivia Wilde. And thats actually an improvement on her original name, Olivia Cockburn. -GeckoV/-Rudy69 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166772.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Dick Van Dyke. -rudymaxa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166774.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. In a similar vein there used to be a driver in V8 Supercars called Dick Johnson. 14 year old me would always get a giggle out of that one. -gristc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166767.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Rod Fitzwell. I don’t know if it’s his real name or a stage name. Hes a radio station personality in Norfolk. -MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166773.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Hes not a very major celebrity, but Id argue that Dick Pound ranks up there. -CupcakeValkyrie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166776.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Magic Johnson. -Ron_Fuckin_Swanson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166777.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Lists pretty much every wrestler there is. Just a few off the top of my head: Rocky Johnson, Big E, Macho Man, Alexa Bliss, Kelly Kelly, Summer Rae, Dolph Ziggler, X-Pac. -FetchedOffTheWall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166778.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Vince Vaughn just sounds porny to me. -Alternative-Two-1457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166779.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Courtney Cox. -thebranimator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166781.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Don Glover. Or slightly miss-spaced…DonG lover. -dadlifeinterneting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166783.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Michael Moorcock. -paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166780.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. I turned on the TV one day a few years ago as I went into the kitchen to make breakfast and heard Im Hanna Storm and this is Sage Steele.... I thought is this a goddamn porno? I thought I put on ESPN. -Gonzostewie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166782.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Lucy Lawless. -DisgruntledMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166784.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Sydney Sweeney. No way thats not a porn star. -Slutyputty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166775.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. That stuntman, was he Kurt Russells stuntman? He has got the most outrageous name ever, Dick Warlord. -OldMork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166785.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. You cant say Randy Johnson in this context without also giving his nickname: The Big Unit. -humphrey_the_camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166786.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Dwayne The Rock Johnson wasted the worlds best porn name/nickname on a wrestling and acting career. -i_run_from_problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167850.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">18 People Whose Age Will Defy You</a><br>
+<span style="font-size:4em">21. Johnny Knoxville sounds like a porn name tbh. -RebTheMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. “Me, aged 17, first time letting my beard properly grow”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163641.png" style="width:100%"><br>
+<span style="font-size:4em">22. Nikki Sixx. -GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Everyone thinks I’m, like, 17, especially with this long hair. I turn 30 in 6 months.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163642.png" style="width:100%"><br>
+<span style="font-size:4em">23. Bella Thorne. -Responsible-Chard515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “The greatest picture of me: 7 or 43, with a mortgage, an ex-husband, and five cats?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163643.png" style="width:100%"><br>
+<span style="font-size:4em">24. January Jones. -BulkyOrder9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Being 30 with baby face syndrome”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163644.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “That time when my mom got me glamour shots...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163645.png" style="width:100%"><br>
+## <a href="#linky13" id="linky12">24 Disturbing Facts We Wish We Hadn’t Learned</a><br>
 
-<span style="font-size:4em">6. “I’ll be 30 this year, and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163646.png" style="width:100%"><br>
+<span style="font-size:4em">1. Flies dont have teeth. So, when they land on your sandwich and want to eat some, they barf up the contents of their stomach (often containing another animals shit) so the digestive enzymes can get on the food and then they eat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163647.png" style="width:100%"><br>
+<span style="font-size:4em">2. There are 32 missing nuclear weapons. And those are only the ones that we know of. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “23M, glasses or no glasses”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163648.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. There are guys with a fetish to cut off their penises. There’s even a subreddit dedicated to it. I found out about it a few months ago and it still haunts me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “How can I look older? I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163656.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. In my country some women rent babies to beg money with in the streets. They make them drink a pill that would make them sleep. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Me (right), looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163649.png" style="width:100%"><br>
+<span style="font-size:4em">5. Anything can happen to anyone at any moment. I had my first seizure at 18. No family member has had epilepsy before. Never take anything for granted. It can all change in an instant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “13 going on 83. This is my sister with the Toni home perm in 1987. She told me to burn this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163640.png" style="width:100%"><br>
+<span style="font-size:4em">6. Because of pregnant women, the average number of skeletons inside a human body is greater than one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I’m older than my friend behind me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163650.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Often, burnt bodies are found in the same stance, known as the “Boxer Pose” due to muscles contracting from heat. It’s an incredibly disturbing looking thing, I first heard about it from my Grandfather that fought in Burma. During the war he was present at a Burmese funeral in which the cadaver was burnt on a pyre. Just as the flames began to singe the corpse, it sat up straight. The Burmese, of course, got a good laugh out of the British soldiers collectively shitting themselves, as contractions due to heat during cremation is apparently rather common. Doesn’t make it any less creepy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167858.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. “12-yr-old me flying with Jack”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163651.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. most modern knowledge on what happens when you go through hypothermia is almost entirely down the Nazi and Japanese human experiments.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167859.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “I’m my own grandma...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163652.png" style="width:100%"><br>
+<span style="font-size:4em">9. Cyanide poisoning is an incredibly painful way to die. Cyanide was what Jonestown consumed for mass suicide. Parents were instructed to give it to their children and convinced the crying was just fear. Edit: For those asking about how cyanide works. If memory serves from when I first read this and listened to the audio recordings, it feels like a massive, massive heart attack. It may not have taken too much time, but any time greater than instantis too long to suffer before death. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167860.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I get mistaken for being a teenager all the time. My friends convinced me to do a ’13 or 30′ themed birthday this year!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163653.png" style="width:100%"><br>
+<span style="font-size:4em">10. During World War 2, Japan bombed China with fleas infected with the bubonic plague. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167861.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “13 or 30?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163654.png" style="width:100%"><br>
+<span style="font-size:4em">11. The horrendous practice of having a “dancing boy” AKA child sex slave in some regions of Afghanistan and Pakistan. When families are poor they will sell their child to be a “dancing boy”. The children are frequently killed if they resist. It’s a rough watch but the documentary The Dancing Boys of Afghanistan covers this awful practice pretty well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167862.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “That time in the early ’90s when I was 12 going on 54”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163655.png" style="width:100%"><br>
+<span style="font-size:4em">12. Pelicans are some of the most demonic birds in existence, if not some of the most demonic creatures. Pelicans will go into other birds nests, shove the parents out of the nest. They will then swallow babies whole, fly back to their own nests, and regurgitate the still half alive, partially digested babies, to their own babies for them to consume. Some pelicans are literally raised on the partially digested, living flesh of other baby birds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167863.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Started balding at 14. I’m actually only 23, surprisingly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163657.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Chris Farleys last words were dont leave me. He said it to the prostitute he was with who then stole his watch and took a picture of him dead/dying. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167864.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">40 Rare Pics Everybody Should See</a><br>
+<span style="font-size:4em">14. 1/3 of all people who break their hip die within the year.... So please tape pillows to your elderly relatives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. One of Mayhem’s band members committed suicide. When he was found by his bandmate, pictures were taken and it became the new album cover. The photographer was subsequently murdered by Varg Vikernes who masterminded church burnings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That it takes three generations for you to be completely forgotten. Think about how you viewed your great grandparents. Sure you probably loved them but for most people their great grandparents die and are forgotten as you live your life. One day that will be all of us. Disappearing into the void, none to remember who we were, what our life was like or what we believed in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. You can not prove that anyone else is real. The only thing you know for sure is you are conscious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I forget what its called but sometimes the artery that runs right next to your esophagus, over years of recurrent acid reflux can rupture. It fills your stomach with blood in seconds which causes you to vomit, which causes more damage. It fills you up with blood so fast that it eventually fills your lungs. This takes maybe a minute or two and is almost always fatal unless it happens to occur while youre in a hospitalYour last few minutes alive are spent vomiting pints of blood and then drowning in it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Anesthesia awareness is a thing. Given the effects of anesthetics preventing the formation of new memories, its possible it always happens and we just dont remember it afterwards. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. By the time you show the symptoms of rabies, its already too late. (It can also be dormant for a year before you show those symptoms.) </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Nutty Putty Cave accident. Google for full disturbing details / a map of the cave, but basically a guy got stuck caving in a very narrow unmapped tunnel, UPSIDE-DOWN. They could not get him out, but almost did, one of the rescuers made eye contact with him apparently but then their pulley system broke and he fell further down. Unfortunately he ended up dying of cardiac arrest from being upside-down for so long and they couldn’t get him out / never retrieved the body because it was too dangerous for rescuers. Truly so disturbing, I’ve thought about it probably once a week since I found out about it a few months ago. Edit: even more disturbing now that someone gave this a wholesome award. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. If an elephants mate dies then they can die from broken heart syndrome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hotels rarely clean their ice machines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">19 Pieces of Advice to Avoid Getting Robbed</a><br>
+
+<span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
+
+Is the house in a nice neighborhood? Is it well kept? If so I figured they had nice stuff.
+
+Next question: Is there an easy escape route? Woods in the backyard were excellent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A recent study showed that burglars come back to the same houses quite often. They do this because of a number of motives.
+
+1: They want to take things they, for some reason, couldn’t take the first time.
+
+2: They’re kinda familiar with the house.
+
+3: It’s guaranteed that the people they robbed replaced the stuff they stole the first time, often these replacements are of better quality than the original.
+
+So after you get raided take good security measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Don’t leave empty boxes from high-end electronics on the curb outside your house. People tend to do this right after the holidays. Put that shit in your car and throw it out somewhere else. Any burglar casing your neighborhood will see that shit and know without even coming near your house and looking suspicious that you just got a bunch of valuable stuff just ready to be taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Let me give you the low-down on dogs: they aren’t protection or security.
+
+A dog can be easily tamed usually. Act friendly, give it a few rubs, and they’ll happily follow you around. If that doesn’t work, after my first run-in with an annoying dog (a small, yappy dog), I started carrying rawhide sticks with me. That stopped them very fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’m not a burglar, but I worked for the largest security company in this country for half a decade.
+
+Burglar alarms do not deter burglars. They just alert you that you have been burglarized. Most of the time the police will take very little action in response due to the fact that 98% of burglar alarm activation constitutes false alarms.
+
+The sign that comes with the alarm though? That thing is worth more than the alarm as far as deterring burglars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Double pane windows. Bitch to smash with anything short of a sledgehammer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Those family car stickers certainly tell me how easy a home invasion will be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. You’d be surprised how often people get robbed by people they know or people connected to people they know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. When I was young and dumb I would boost rims off cars, cause you could make quick money and it was less than a felony. The number one deterrent hands down……lights. If a place is lit up like a Christmas tree on the outside of a house you stay clear cause it means anyone can see you and see you clearly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Even if your house is well-locked, if your shed isn’t, I likely have access to a plethora of tools I can use to gain access. Don’t help the burglar. Lock your shed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I use to do door-to-door sales for ADT… people would let me in the house and just tell me where all the important stuff was before even verifying I was legit….. don’t do that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I stuck with commercial burglary, residential burglary carried a risk of getting hit with a home invasion charge which increases your sentence if convicted. It helps to hit the places that hire felons (fast food joints, video stores, etc.) because the cops are gonna waste a lot of time looking into the staff members who have a criminal history. The closer they’re looking at them, the better off I am.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A good burglar will rob you when it’s raining. The rain masks sound when you’re breaking into a garage. I had my garage broken in during torrential rain, all tools stolen, didn’t hear a thing and neither did my dog that sleeps outside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Had my house burglarized by a so-called friend. He missed by far the most valuable thing. it’s just a safe sitting on the laundry room floor. He missed it because I’m a scumbag and had it covered with a mountain of dirty clothes and towels. So not being tidy saved me upwards of 35k.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Fake rocks are a dead giveaway. Sock drawers are cliché. If you have a small safe that’s not bolted down, we are taking that thing. We all have a ‘safe guy.’ Our goal is to get in and out pretty quickly. If you hide something in a random box all the way up in your attic, it’s probably safe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. For the college kids that might read this, don’t keep your textbooks in your car. On the day of my finals, I had about 6 textbooks I was gonna sell after my finals, I left the books in my car while I took my tests. Came back to find someone broke my window out to steal the textbooks. Cop told me that it’s very common and unlikely they will catch the guy, so I was out ~$700, which was huge as a college student.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I’ve seen people make false outlets for hiding valuables like cash and jewelry. Just an idea, a burglar would have to be at your home for a long time to start checking outlets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Don’t post anything on social media until you have gotten back home. I can’t tell you how many neighbors and family have gotten robbed because of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">30 People Who Clapped Back at Online Scammers</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165528.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166433.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166434.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166435.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166436.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166437.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166438.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166439.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166440.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166441.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166442.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166443.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166444.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166446.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166447.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166448.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166449.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166451.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166452.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166453.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166454.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166455.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166456.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166457.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166458.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166459.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166460.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166461.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166462.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">21 Collections That Are Way Too Cool</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052047/87166212/ballcard.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052050/87166213/bandanas.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052059/87166214/clovers.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052102/87166215/consoles.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052111/87166216/fisherprice.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052039/87166211/camera.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052228/87166227/uraniumglass.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166218/funkopops.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166219/jersey.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052135/87166220/lunchbox.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052146/87166221/pez.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052157/87166222/smokedetectors.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052113/87166217/fossils.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052206/87166223/pogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052208/87166224/spoons.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052217/87166225/starbucks.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052219/87166226/typewriter.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052230/87166228/vinyl.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052240/87166229/watercolors.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052242/87166230/xenomorphs.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052915/87166232/bobble.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">40 Rare Pics Everybody Should See</a><br>
 
 <span style="font-size:4em">1. In 1979, 16 Year Old Brenda Ann Spencer Was Arrested After Killing Two People In California. When Asked Why She Did It, Her Reply Was I Just Dont Like Mondays</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166005.jpg" style="width:100%"><br>
 
@@ -733,51 +1021,7 @@ Leonardo DiCaprio said, “She was my best friend for seven months. We’d unloa
 
 <span style="font-size:4em">40. A Man Begs For His Wife’s Forgiveness Inside A Divorce Court, Chicago, 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166004.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">21 Collections That Are Way Too Cool</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052047/87166212/ballcard.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052050/87166213/bandanas.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052059/87166214/clovers.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052102/87166215/consoles.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052111/87166216/fisherprice.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052039/87166211/camera.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052228/87166227/uraniumglass.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166218/funkopops.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166219/jersey.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052135/87166220/lunchbox.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052146/87166221/pez.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052157/87166222/smokedetectors.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052113/87166217/fossils.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052206/87166223/pogs.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052208/87166224/spoons.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052217/87166225/starbucks.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052219/87166226/typewriter.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052230/87166228/vinyl.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052240/87166229/watercolors.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052242/87166230/xenomorphs.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052915/87166232/bobble.png" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">28 Funny Pics Like a Punch to the Gut </a><br>
+## <a href="#linky19" id="linky18">28 Funny Pics Like a Punch to the Gut </a><br>
 
 <span style="font-size:4em">1. Aww poor guy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166237.jpg" style="width:100%"><br>
 
@@ -835,135 +1079,51 @@ Leonardo DiCaprio said, “She was my best friend for seven months. We’d unloa
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166271.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+## <a href="#linky20" id="linky19">23 Designs that Should Have Never Seen the Light of Day</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166433.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Green means GO AWAY!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167354.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166434.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. “Every wire is just white, because why not mess with the installer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167335.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166435.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. “This house was built about 4 feet below street level. Now they will have a very short, steep driveway down into the garage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167341.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166436.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167336.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166437.jpeg" style="width:100%"><br>
+<span style="font-size:4em">5. “This official PlayStation brand shirt with the circle, x, and triangle colors wrong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167337.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166438.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Yes, that’s the sound that sheep make.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167338.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166439.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167339.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166440.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167340.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166441.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167343.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166442.jpeg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167344.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166443.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. “This popcorn bag that says microwave for 2 minutes 30 seconds, but has a picture of a microwave with 3 minutes on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167345.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166444.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. “This portable heater has started to melt its own handle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167346.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166445.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167347.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166446.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167348.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166447.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. “They put braille on this mirror so blind people can use it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167349.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166448.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167350.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166449.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167351.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166450.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “How to get children to eat sand…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167352.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166451.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167353.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166452.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167355.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166453.jpeg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167342.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166454.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. T Rex or Alien?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167356.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166455.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166456.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166457.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166458.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166459.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166460.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166461.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166462.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">33 Things People Do that Scream 'I'm Entitled'</a><br>
-
-<span style="font-size:4em">1. People who dont pick up after their dogs and throw cigarette butts on the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Treating service workers like crap.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/102535/87167580/cars.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. People who cut in line.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Do you know who I am!?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166583.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. when they do something to you and think it’s fine but when you do it in return and they freak out.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166582.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I didn’t punch you, I hit you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Military spouses that expect to be saluted or have the same treatment as their Partners.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. People use the phrase Its just a child! to excuse their childs s***ty behavior. When the zoo says Dont tap the glass, it stresses the animal that means your f**kball child needs to knock it off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. People who purposely make messes at restaurants, movie theatres, etc. because someone else will clean it up or its their job to clean it up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I will have you fired!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. People who dont use their turn signals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Acting as if your religious rules and customs should apply to anybody else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166581.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When you say no to someone and then they act like a child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. People that talk over you after you waited your turn/the mood called for someone to add to the convo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Generally just leaving something for someone else to deal with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Impatience in situations where it should be just universally understood that you need patience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Incessant whining over shared inconveniences. For example, person goes to the DMV to find a 90 minute wait. Everyone else that arrived around the same time as them is also having to wait 90 minutes. But this person just. Won’t. Shut. Up about it. Like dude, we get it. It sucks. Literally no one is enjoying this experience. You’re not entitled to any faster service than anyone else, and bitching about it isn’t going to change that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Im a gas station worker and when people dont say please or thank you, when theyre on the phone(mostly when theyre VERY loud). When they walk in, dont even look at you, practically throw the money at you and say 20 on pump 5 and walk out.OH! And when theres only one person there, we have to close our store for lunch. We have a very polite worded sign on the door. Ill be walking with my food to the back and they try and bang on the door, put their arms up like what the f**k?? Youre not going to serve me??And theres literally another gas station kitty corner to us.Edit to clarify: where Im from(Sacramento, California) you pay at the pump with card and pump gas yourself. Im not stopping most people from getting gas by taking my lunch(ONLY thing that stops people from getting gas is if theyre paying with cash, but most people dont. Theres no discount at my store by paying with cash rather than card)The only thing they cant get is cigarettes, beer and snacks. But as I stated, there is another gas station right across the street.I am also entitled to a lunch, just as every other worker in America.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Screaming at young people working at retail/fast food/starter positions at jobs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. People who dont return their shopping cart.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. All their problems are always someone else’s fault, never their own.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. People who are against abortion but then don’t give a s**t if the kid is taken care of.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. I work as a ticket seller for a ski resort.My favorite entitled person is the guy who, upon finding out that the kids lesson was sold out, offered to pay extra if I would kick someone elses kid out so his kid could have a spot.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. People who don’t clean up after themselves.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Using or taking other peoples stuff without asking for their permission.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. People that think they’re the prize when dating but never consider what the other person wants from a relationship.I don’t care how many followers you have. How does that make you worth dating?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “Oh you can’t afford that, but it’s only like *high price*?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166609.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Hitting the back of someone’s car and then blaming it on them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166610.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. People who make huge assumptions about the intent of others. They always think other people are thinking about them way more than they actually do.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166611.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. I went to private school for all of high school. It was even further divided by wealth because it was an American school in a foreign country, so most of the kids from there were very wealthy, did coke on Tuesday nights, and would buy their way into Harvard. The rest of the kids were pretty much all from military families who had the price of education covered. I used to take the city bus home from school (it was out in the suburbs). One day this mom in her shiny convertible car and 200 dollar jeans parks her car where it is completely blocking the road and goes to pick up her kid. When the bus drives up, it can’t get by. Bus driver honks for a couple minutes, but the mom is no where in sight. When she finally comes out, she’s not even bothered by the fact that she’s been blocking traffic for 10 minutes. She just takes her sweet time getting in her car with her kid and finally drives off.Still makes me mad to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166612.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. When someone has to suffer a mild inconvenience and they throw a totally disproportionate tantrum about it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166613.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. When Mitt Romney was debating Obama, he said: If a kid needs money to start a business they can always borrow it from their parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166614.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167357.jpg" style="width:100%"><br>
 
