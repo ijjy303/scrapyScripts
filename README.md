@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/15/2022-22:11:31
+Last updated: 05/15/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">32 Fun Pics to Make the Pain Go Away</a><br>
 
@@ -225,7 +225,55 @@ Last updated: 05/15/2022-22:11:31
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87166271.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">21 Collections That Are Way Too Cool</a><br>
+## <a href="#linky6" id="linky5">23 Designs that Should Have Never Seen the Light of Day</a><br>
+
+<span style="font-size:4em">1. Green means GO AWAY!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Every wire is just white, because why not mess with the installer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “This house was built about 4 feet below street level. Now they will have a very short, steep driveway down into the garage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “This official PlayStation brand shirt with the circle, x, and triangle colors wrong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Yes, that’s the sound that sheep make.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “This popcorn bag that says microwave for 2 minutes 30 seconds, but has a picture of a microwave with 3 minutes on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167345.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “This portable heater has started to melt its own handle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167347.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167348.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “They put braille on this mirror so blind people can use it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167349.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167350.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “How to get children to eat sand…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. T Rex or Alien?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167356.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167357.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">21 Collections That Are Way Too Cool</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052047/87166212/ballcard.png" style="width:100%"><br>
 
@@ -269,143 +317,69 @@ Last updated: 05/15/2022-22:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052915/87166232/bobble.png" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">36 Funny Comments That Were Right On the Mark </a><br>
+## <a href="#linky8" id="linky7">18 WTF Celebrity Facts Almost Nobody Knows</a><br>
 
-<span style="font-size:4em">1. Wow bro, how scary. What are you going to do? Butter my bread? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151094.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Fran Drescher believes aliens abducted her and implanted a chip in her hand.
+
+Her ex-husband believes the same thing happened to him and that’s why they met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151078.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Matthew Perry lost part of his middle finger as a kid.
+
+It was slammed in a car door when he was 3 y/o.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Oh look here come Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151079.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Elvis Presley was actually a natural blonde.
+
+He started using black shoe polish to darken his hair to look more handsome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151080.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Bryan Cranston was once a suspect in a giant murder investigation.
+
+He worked at a restaurant where he hated the chef and made a joke about killing him. The chef ended up dead around the same time Cranston and his brother left town, leading the police to consider them suspects and follow them to the Carolinas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151111.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. When she was 22, Angelina Jolie tried to hire a hitman to kill her, but he convinced her to stay alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lmao, how stupid can you be? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151081.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Lucy Liu claims to have had sex with a ghost.
+
+“It was sheer bliss. I felt everything. I climaxed. And then he floated away. It was almost like what might have happened to Mary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151082.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Tim Allen was arrested for cocaine possession and served two years in jail.
+
+He only didn’t get a life sentence because he snitched on other dealers for a lighter sentence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151076.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Geena Davis almost made the US Olympic archery team in 1999, after taking up the sport in her 40s.
+
+She was ranked the 13th best female player in the US.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166199.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151084.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Eva Mendes always wanted to be a nun when she grew up.
+
+She changed her mind when she found out they didn’t make any money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151085.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Benedict Cumberbatch was abducted in South Africa in 2005.
+
+He and his friends were ambushed by men with guns and their wrists were bound with their own shoelaces. Obviously, he made it out alive but was forced to give the captors cards and money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Its true.  If you dont believe us go look it up for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151083.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Charlie Sheen accidentally shot his then-fiancé Kelly Preston.
+
+But there are conflicting reports on what actually happened…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151086.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Whitney Houston was a producer on The Princess Diaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151087.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Stephen Baldwin has a Hannah Montana tattoo.
+
+His daughter Hailey was a big fan and he was told if he got HM tattooed he could make a cameo. Unfortunately for him, it never happened but he still has the ink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151088.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. James Lipton worked as a pimp in Paris in the 1950s.
+
+“It was a great year of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151089.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Ashton Kutcher’s real first name is Christopher.
+
+Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151090.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Dennis Rodman has 28 siblings on his dad’s side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151077.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. This makes so much sense.  Those little butthole eyes of his follow me everywhere I go. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151113.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Yeah I have a DUI, driving under the influence of cuteness. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. This is both hilarious and sad. Even in the afterlife, this man is still doing what he loves. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151110.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166433.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166434.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166435.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166436.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166437.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166438.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166439.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166440.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166441.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166442.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166443.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166444.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166446.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166447.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166448.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166449.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166451.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166452.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166453.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166454.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166455.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166456.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166457.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166458.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166459.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166460.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166461.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166462.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Rob Lowe believes he met Bigfoot.
+
+“We had an incredible encounter…in the Ozark mountains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166209.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">33 Things People Do that Scream 'I'm Entitled'</a><br>
 
@@ -475,7 +449,133 @@ Last updated: 05/15/2022-22:11:31
 
 <span style="font-size:4em">33. When Mitt Romney was debating Obama, he said: If a kid needs money to start a business they can always borrow it from their parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166614.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Facts That Completely Change How You View Winston Churchill</a><br>
+## <a href="#linky10" id="linky9">30 People Who Clapped Back at Online Scammers</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165517.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165504.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165506.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165514.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165515.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165516.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165518.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165519.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165520.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165521.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165522.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165523.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165524.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165525.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165526.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165527.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165528.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166433.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166434.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166435.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166436.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166437.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166438.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166439.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166440.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166441.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166442.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166443.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166444.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166446.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166447.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166448.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166449.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166451.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166452.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166453.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166454.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166455.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166456.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166457.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166458.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166459.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166460.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166461.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166462.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Facts That Completely Change How You View Winston Churchill</a><br>
 
 <span style="font-size:4em">1. Winston Churchill demanded his coffin to be transported through the London Waterloo Station after his death, as he wanted future invitee, French President de Gaulle to walk bare-headed under the Waterloo’s archway that marked Britains victory over France in the Battle of Waterloo
  
@@ -582,173 +682,7 @@ Last updated: 05/15/2022-22:11:31
 -u/nick_name_was_taken
 </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/025237/87166009/article-2184777-146BDEE9000005DC-822_468x503.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">30 People Who Clapped Back at Online Scammers</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165517.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165504.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165506.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165514.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165516.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165518.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165519.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165520.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165521.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165522.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165523.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165524.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165525.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165526.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165528.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">23 Designs that Should Have Never Seen the Light of Day</a><br>
-
-<span style="font-size:4em">1. Green means GO AWAY!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Every wire is just white, because why not mess with the installer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “This house was built about 4 feet below street level. Now they will have a very short, steep driveway down into the garage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “This official PlayStation brand shirt with the circle, x, and triangle colors wrong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Yes, that’s the sound that sheep make.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “This popcorn bag that says microwave for 2 minutes 30 seconds, but has a picture of a microwave with 3 minutes on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167345.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “This portable heater has started to melt its own handle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167346.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167347.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167348.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “They put braille on this mirror so blind people can use it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167349.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167350.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “How to get children to eat sand…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167352.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167355.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. T Rex or Alien?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167356.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167357.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">27 Tattoos That Really Suck</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165493.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">40 Rare Pics Everybody Should See</a><br>
+## <a href="#linky13" id="linky12">40 Rare Pics Everybody Should See</a><br>
 
 <span style="font-size:4em">1. In 1979, 16 Year Old Brenda Ann Spencer Was Arrested After Killing Two People In California. When Asked Why She Did It, Her Reply Was I Just Dont Like Mondays</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166005.jpg" style="width:100%"><br>
 
@@ -840,67 +774,133 @@ Leonardo DiCaprio said, “She was my best friend for seven months. We’d unloa
 
 <span style="font-size:4em">40. A Man Begs For His Wife’s Forgiveness Inside A Divorce Court, Chicago, 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166004.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">18 WTF Celebrity Facts Almost Nobody Knows</a><br>
+## <a href="#linky14" id="linky13">27 Tattoos That Really Suck</a><br>
 
-<span style="font-size:4em">1. Fran Drescher believes aliens abducted her and implanted a chip in her hand.
-
-Her ex-husband believes the same thing happened to him and that’s why they met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166191.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Matthew Perry lost part of his middle finger as a kid.
-
-It was slammed in a car door when he was 3 y/o.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166190.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Elvis Presley was actually a natural blonde.
-
-He started using black shoe polish to darken his hair to look more handsome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166192.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bryan Cranston was once a suspect in a giant murder investigation.
-
-He worked at a restaurant where he hated the chef and made a joke about killing him. The chef ended up dead around the same time Cranston and his brother left town, leading the police to consider them suspects and follow them to the Carolinas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166194.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When she was 22, Angelina Jolie tried to hire a hitman to kill her, but he convinced her to stay alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166197.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lucy Liu claims to have had sex with a ghost.
-
-“It was sheer bliss. I felt everything. I climaxed. And then he floated away. It was almost like what might have happened to Mary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166195.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Tim Allen was arrested for cocaine possession and served two years in jail.
-
-He only didn’t get a life sentence because he snitched on other dealers for a lighter sentence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166198.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Geena Davis almost made the US Olympic archery team in 1999, after taking up the sport in her 40s.
-
-She was ranked the 13th best female player in the US.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166199.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Eva Mendes always wanted to be a nun when she grew up.
-
-She changed her mind when she found out they didn’t make any money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166200.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Benedict Cumberbatch was abducted in South Africa in 2005.
-
-He and his friends were ambushed by men with guns and their wrists were bound with their own shoelaces. Obviously, he made it out alive but was forced to give the captors cards and money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166201.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Charlie Sheen accidentally shot his then-fiancé Kelly Preston.
-
-But there are conflicting reports on what actually happened…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166202.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Whitney Houston was a producer on The Princess Diaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166203.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Stephen Baldwin has a Hannah Montana tattoo.
-
-His daughter Hailey was a big fan and he was told if he got HM tattooed he could make a cameo. Unfortunately for him, it never happened but he still has the ink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166204.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. James Lipton worked as a pimp in Paris in the 1950s.
-
-“It was a great year of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166205.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Ashton Kutcher’s real first name is Christopher.
-
-Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166206.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Dennis Rodman has 28 siblings on his dad’s side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166207.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Rob Lowe believes he met Bigfoot.
-
-“We had an incredible encounter…in the Ozark mountains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166209.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165493.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">36 Funny Comments That Were Right On the Mark </a><br>
+
+<span style="font-size:4em">1. Wow bro, how scary. What are you going to do? Butter my bread? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151078.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Oh look here come Karen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lmao, how stupid can you be? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151076.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Its true.  If you dont believe us go look it up for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151087.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151088.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151077.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. This makes so much sense.  Those little butthole eyes of his follow me everywhere I go. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151113.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Yeah I have a DUI, driving under the influence of cuteness. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. This is both hilarious and sad. Even in the afterlife, this man is still doing what he loves. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151110.jpg" style="width:100%"><br>
 
