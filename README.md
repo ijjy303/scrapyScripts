@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/16/2022-05:11:31
+Last updated: 05/16/2022-06:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 Thoughts for ‘Just Resting Your Eyes’ in the Shower</a><br>
 
@@ -43,112 +43,61 @@ Last updated: 05/16/2022-05:11:31
 
 <span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166786.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Facts That Completely Change How You View Winston Churchill</a><br>
+## <a href="#linky3" id="linky2">27 Tattoos That Really Suck</a><br>
 
-<span style="font-size:4em">1. Winston Churchill demanded his coffin to be transported through the London Waterloo Station after his death, as he wanted future invitee, French President de Gaulle to walk bare-headed under the Waterloo’s archway that marked Britains victory over France in the Battle of Waterloo
- 
--u/axonable
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165820.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Fish & Chips was an aid in winning WWII. Sir Winston Churchill saw the comfort food as a good companion and was a dish that didnt get rationed to keep morale up. On the frontlines, troops calling fish and allies calling chips was an effective way to tell whether you were friend or foe.
- 
--u/ruelmoralesmusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165821.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Winston Churchill was almost killed in an auto accident in New York City on December 13, 1931, when he was crossing Fifth Avenue. Churchill did not look the other way because in the United States traffic keeps to the right whereas in the United Kingdom traffic keeps to the left.
- 
--u/LimeSugar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165822.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Winston Churchill, a notorious drinker, circumvented prohibition while visiting the U.S. by obtaining a letter from his doctor prescribing alcohol for treatment following a vehicular accident.
- 
--u/SingLikeTinaTurner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165823.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. 22-year-old George Washington was the catalyst of the French and Indian War, which became the 7 Year War of 1756-1763 in Europe, and which Winston Churchill referred to as the real First World War as it encompassed much of the European world.
- 
--u/ClownfishSoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165824.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The plans for Winston Churchills state funeral had to be revised several times because Churchill outlived several intended pallbearers.
- 
--u/stupidusername69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165825.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Winston Churchill is considered one of the Founding Fathers of the European Union. Churchill called for a United States of Europe, organized democratically, to prevent future wars. He was a driving force behind the creation of the Council of Europe.
- 
--u/coffeeinvenice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165826.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Winston Churchill’s Historic “Fight Them on the Beaches” Speech Wasn’t Heard by the Public Until After WWII
- 
--u/NineteenEighty9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165827.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Winston Churchills mom was an American dollar princess from Brooklyn who had a snake tattoo on her wrist!
- 
--u/TakeMeToTheBakery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165828.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. King Alexander of Greece died after being bitten by a monkey that had attacked his German shepherd. This significantly impacted Balkan history and Winston Churchill later wrote, it is perhaps no exaggeration to remark that a quarter of a million persons died of this monkeys bite.
- 
--u/hunterschuler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165829.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. When Winston Churchill sold Chartwell, the family home, to the National Trust, he required that there always be a marmalade cat named Jock in comfortable residence. The Trust honored that request. The current occupant is Jock VII, a six-month-old rescue kitten.
- 
--u/redaoife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165830.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. General Dwight D. Eisenhower threatened to quit just months before the D-Day landing due to disagreements with Winston Churchill on how to liberate France.
- 
--u/ser_antonii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165831.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Winston Churchill wanted to go to sea with the fleet and watch the D-Day landings from HMS Belfast. This idea was opposed by many and it took King George VI to stop him by insisting that if Churchill went then he would go as well. Eventually, Churchill backed down.
- 
--u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165832.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Winston Churchill invented, designed, and named the Romper
- 
--u/socool111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165833.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In a 2008 survey, 58% of British teenagers thought Sherlock Holmes was a real guy, while 23% thought Winston Churchill was not.
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165834.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Winston Churchill wrote a scientific paper discussing the possibility of life on the moon but concluded that the existence of lunar life was unlikely
- 
--u/today_okay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165835.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In April 1918, Winston Churchill nominated Theodore Roosevelt to be the Allies plenipotentiary to Moscow. The plan was for Roosevelt to make a deal where Lenin reentered the war and the Allies would safeguard the permanent fruits of the Revolution
- 
--u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165836.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Winston Churchill got Iran to change its name to Persia, to avoid confusion with Iraq during WW2
- 
--u/pmmeillicitbreadpics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165837.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Yousuf Karshs photo of Winston Churchill which is considered a symbol of Britains defiance against Nazism is actually about a cigar. Churchill refused to remove his cigar so Karsh stepped forward and removed the cigar himself, thus resulting in Churchills less-than-thrilled facial expression.
- 
--u/WhileFalseRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165838.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Queen Elizabeth II has seen 13 different UK Prime Ministers come into power, with the first one being Winston Churchill.
- 
--u/qmzwnxo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165839.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. In 1941, when a General asked Winston Churchill for more men to man Antiaircraft guns, Churchill replied No, I can’t spare any men, you’ll have to use women. Mary Churchill (18), Winston Churchills youngest daughter was among the first to join and rose to the rank of Junior Commander in 1944.
- 
--u/sersleepsalot1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165840.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Following the Japanese attack on Pearl Harbor, the United Kingdom declared war on Japan nine hours before the United States, partially due to Winston Churchills promise to declare war within the hour of a Japanese attack on the United States.
- 
--u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165841.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Winston Churchill suffered a landslide defeat in the 1945 United Kingdom general election following the war
- 
--u/LiberalDomination</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165842.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Winston Churchill predicted lab-grown meat 89 years ago. We shall escape the absurdity of growing a whole chicken in order to eat the breast or wing, by growing these parts separately under a suitable medium.
- 
--u/electricmaster23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165843.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. OMGs (Oh My God) First Use Was In A Letter To Winston Churchill In 1917.
-
- 
-
--u/nick_name_was_taken
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/025237/87166009/article-2184777-146BDEE9000005DC-822_468x503.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165493.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">28 Funny Pics Like a Punch to the Gut </a><br>
 
@@ -528,49 +477,112 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166571.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">21 Collections That Are Way Too Cool</a><br>
+## <a href="#linky10" id="linky9">25 Facts That Completely Change How You View Winston Churchill</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052047/87166212/ballcard.png" style="width:100%"><br>
+<span style="font-size:4em">1. Winston Churchill demanded his coffin to be transported through the London Waterloo Station after his death, as he wanted future invitee, French President de Gaulle to walk bare-headed under the Waterloo’s archway that marked Britains victory over France in the Battle of Waterloo
+ 
+-u/axonable
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165820.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052050/87166213/bandanas.png" style="width:100%"><br>
+<span style="font-size:4em">2. Fish & Chips was an aid in winning WWII. Sir Winston Churchill saw the comfort food as a good companion and was a dish that didnt get rationed to keep morale up. On the frontlines, troops calling fish and allies calling chips was an effective way to tell whether you were friend or foe.
+ 
+-u/ruelmoralesmusic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165821.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052059/87166214/clovers.png" style="width:100%"><br>
+<span style="font-size:4em">3. Winston Churchill was almost killed in an auto accident in New York City on December 13, 1931, when he was crossing Fifth Avenue. Churchill did not look the other way because in the United States traffic keeps to the right whereas in the United Kingdom traffic keeps to the left.
+ 
+-u/LimeSugar</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165822.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052102/87166215/consoles.png" style="width:100%"><br>
+<span style="font-size:4em">4. Winston Churchill, a notorious drinker, circumvented prohibition while visiting the U.S. by obtaining a letter from his doctor prescribing alcohol for treatment following a vehicular accident.
+ 
+-u/SingLikeTinaTurner</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165823.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052111/87166216/fisherprice.png" style="width:100%"><br>
+<span style="font-size:4em">5. 22-year-old George Washington was the catalyst of the French and Indian War, which became the 7 Year War of 1756-1763 in Europe, and which Winston Churchill referred to as the real First World War as it encompassed much of the European world.
+ 
+-u/ClownfishSoup</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165824.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052039/87166211/camera.png" style="width:100%"><br>
+<span style="font-size:4em">6. The plans for Winston Churchills state funeral had to be revised several times because Churchill outlived several intended pallbearers.
+ 
+-u/stupidusername69</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165825.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052228/87166227/uraniumglass.png" style="width:100%"><br>
+<span style="font-size:4em">7. Winston Churchill is considered one of the Founding Fathers of the European Union. Churchill called for a United States of Europe, organized democratically, to prevent future wars. He was a driving force behind the creation of the Council of Europe.
+ 
+-u/coffeeinvenice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166218/funkopops.png" style="width:100%"><br>
+<span style="font-size:4em">8. Winston Churchill’s Historic “Fight Them on the Beaches” Speech Wasn’t Heard by the Public Until After WWII
+ 
+-u/NineteenEighty9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166219/jersey.png" style="width:100%"><br>
+<span style="font-size:4em">9. Winston Churchills mom was an American dollar princess from Brooklyn who had a snake tattoo on her wrist!
+ 
+-u/TakeMeToTheBakery</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052135/87166220/lunchbox.png" style="width:100%"><br>
+<span style="font-size:4em">10. King Alexander of Greece died after being bitten by a monkey that had attacked his German shepherd. This significantly impacted Balkan history and Winston Churchill later wrote, it is perhaps no exaggeration to remark that a quarter of a million persons died of this monkeys bite.
+ 
+-u/hunterschuler</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052146/87166221/pez.png" style="width:100%"><br>
+<span style="font-size:4em">11. When Winston Churchill sold Chartwell, the family home, to the National Trust, he required that there always be a marmalade cat named Jock in comfortable residence. The Trust honored that request. The current occupant is Jock VII, a six-month-old rescue kitten.
+ 
+-u/redaoife</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165830.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052157/87166222/smokedetectors.png" style="width:100%"><br>
+<span style="font-size:4em">12. General Dwight D. Eisenhower threatened to quit just months before the D-Day landing due to disagreements with Winston Churchill on how to liberate France.
+ 
+-u/ser_antonii</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165831.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052113/87166217/fossils.png" style="width:100%"><br>
+<span style="font-size:4em">13. Winston Churchill wanted to go to sea with the fleet and watch the D-Day landings from HMS Belfast. This idea was opposed by many and it took King George VI to stop him by insisting that if Churchill went then he would go as well. Eventually, Churchill backed down.
+ 
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165832.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052206/87166223/pogs.png" style="width:100%"><br>
+<span style="font-size:4em">14. Winston Churchill invented, designed, and named the Romper
+ 
+-u/socool111</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165833.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052208/87166224/spoons.png" style="width:100%"><br>
+<span style="font-size:4em">15. In a 2008 survey, 58% of British teenagers thought Sherlock Holmes was a real guy, while 23% thought Winston Churchill was not.
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165834.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052217/87166225/starbucks.png" style="width:100%"><br>
+<span style="font-size:4em">16. Winston Churchill wrote a scientific paper discussing the possibility of life on the moon but concluded that the existence of lunar life was unlikely
+ 
+-u/today_okay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052219/87166226/typewriter.png" style="width:100%"><br>
+<span style="font-size:4em">17. In April 1918, Winston Churchill nominated Theodore Roosevelt to be the Allies plenipotentiary to Moscow. The plan was for Roosevelt to make a deal where Lenin reentered the war and the Allies would safeguard the permanent fruits of the Revolution
+ 
+-u/jamescookenotthatone</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052230/87166228/vinyl.png" style="width:100%"><br>
+<span style="font-size:4em">18. Winston Churchill got Iran to change its name to Persia, to avoid confusion with Iraq during WW2
+ 
+-u/pmmeillicitbreadpics</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165837.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052240/87166229/watercolors.png" style="width:100%"><br>
+<span style="font-size:4em">19. Yousuf Karshs photo of Winston Churchill which is considered a symbol of Britains defiance against Nazism is actually about a cigar. Churchill refused to remove his cigar so Karsh stepped forward and removed the cigar himself, thus resulting in Churchills less-than-thrilled facial expression.
+ 
+-u/WhileFalseRepeat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052242/87166230/xenomorphs.png" style="width:100%"><br>
+<span style="font-size:4em">20. Queen Elizabeth II has seen 13 different UK Prime Ministers come into power, with the first one being Winston Churchill.
+ 
+-u/qmzwnxo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052915/87166232/bobble.png" style="width:100%"><br>
+<span style="font-size:4em">21. In 1941, when a General asked Winston Churchill for more men to man Antiaircraft guns, Churchill replied No, I can’t spare any men, you’ll have to use women. Mary Churchill (18), Winston Churchills youngest daughter was among the first to join and rose to the rank of Junior Commander in 1944.
+ 
+-u/sersleepsalot1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Following the Japanese attack on Pearl Harbor, the United Kingdom declared war on Japan nine hours before the United States, partially due to Winston Churchills promise to declare war within the hour of a Japanese attack on the United States.
+ 
+-u/sober_disposition</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Winston Churchill suffered a landslide defeat in the 1945 United Kingdom general election following the war
+ 
+-u/LiberalDomination</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Winston Churchill predicted lab-grown meat 89 years ago. We shall escape the absurdity of growing a whole chicken in order to eat the breast or wing, by growing these parts separately under a suitable medium.
+ 
+-u/electricmaster23</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87165843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. OMGs (Oh My God) First Use Was In A Letter To Winston Churchill In 1917.
+
+ 
+
+-u/nick_name_was_taken
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/025237/87166009/article-2184777-146BDEE9000005DC-822_468x503.jpg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
 
@@ -636,101 +648,7 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87166463.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">27 Tattoos That Really Suck</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165487.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165474.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165475.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165476.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165477.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165478.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165479.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165480.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165481.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165482.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165483.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165484.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165485.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165486.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165493.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">18 People Whose Age Will Defy You</a><br>
-
-<span style="font-size:4em">1. “Me, aged 17, first time letting my beard properly grow”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163641.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Everyone thinks I’m, like, 17, especially with this long hair. I turn 30 in 6 months.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163642.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. “The greatest picture of me: 7 or 43, with a mortgage, an ex-husband, and five cats?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163643.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Being 30 with baby face syndrome”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “That time when my mom got me glamour shots...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163645.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. “I’ll be 30 this year, and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163646.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163647.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. “23M, glasses or no glasses”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “How can I look older? I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Me (right), looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163649.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. “13 going on 83. This is my sister with the Toni home perm in 1987. She told me to burn this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163640.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I’m older than my friend behind me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “12-yr-old me flying with Jack”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “I’m my own grandma...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163652.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “I get mistaken for being a teenager all the time. My friends convinced me to do a ’13 or 30′ themed birthday this year!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163653.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. “13 or 30?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163654.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. “That time in the early ’90s when I was 12 going on 54”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163655.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Started balding at 14. I’m actually only 23, surprisingly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163657.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">40 Rare Pics Everybody Should See</a><br>
+## <a href="#linky12" id="linky11">40 Rare Pics Everybody Should See</a><br>
 
 <span style="font-size:4em">1. In 1979, 16 Year Old Brenda Ann Spencer Was Arrested After Killing Two People In California. When Asked Why She Did It, Her Reply Was I Just Dont Like Mondays</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166005.jpg" style="width:100%"><br>
 
@@ -822,7 +740,7 @@ Leonardo DiCaprio said, “She was my best friend for seven months. We’d unloa
 
 <span style="font-size:4em">40. A Man Begs For His Wife’s Forgiveness Inside A Divorce Court, Chicago, 1948</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166004.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 People Who Clapped Back at Online Scammers</a><br>
+## <a href="#linky13" id="linky12">30 People Who Clapped Back at Online Scammers</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165517.jpg" style="width:100%"><br>
 
@@ -883,4 +801,86 @@ Leonardo DiCaprio said, “She was my best friend for seven months. We’d unloa
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165527.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165528.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">21 Collections That Are Way Too Cool</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052047/87166212/ballcard.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052050/87166213/bandanas.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052059/87166214/clovers.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052102/87166215/consoles.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052111/87166216/fisherprice.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052039/87166211/camera.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052228/87166227/uraniumglass.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166218/funkopops.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052123/87166219/jersey.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052135/87166220/lunchbox.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052146/87166221/pez.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052157/87166222/smokedetectors.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052113/87166217/fossils.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052206/87166223/pogs.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052208/87166224/spoons.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052217/87166225/starbucks.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052219/87166226/typewriter.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052230/87166228/vinyl.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052240/87166229/watercolors.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052242/87166230/xenomorphs.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/12/052915/87166232/bobble.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">18 People Whose Age Will Defy You</a><br>
+
+<span style="font-size:4em">1. “Me, aged 17, first time letting my beard properly grow”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163641.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Everyone thinks I’m, like, 17, especially with this long hair. I turn 30 in 6 months.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163642.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. “The greatest picture of me: 7 or 43, with a mortgage, an ex-husband, and five cats?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163643.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Being 30 with baby face syndrome”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “That time when my mom got me glamour shots...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163645.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. “I’ll be 30 this year, and I’m excited!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163646.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Here, I look like a 30-year-old actor trying to pass as a teen in an early ’00s soap opera.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163647.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. “23M, glasses or no glasses”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “How can I look older? I’m 31.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Me (right), looking like an assistant manager at Applebee’s at my middle school dance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163649.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. “13 going on 83. This is my sister with the Toni home perm in 1987. She told me to burn this picture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163640.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I’m older than my friend behind me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “12-yr-old me flying with Jack”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “I’m my own grandma...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163652.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. “I get mistaken for being a teenager all the time. My friends convinced me to do a ’13 or 30′ themed birthday this year!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163653.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. “13 or 30?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163654.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. “That time in the early ’90s when I was 12 going on 54”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163655.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Started balding at 14. I’m actually only 23, surprisingly.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87163657.jpg" style="width:100%"><br>
 
