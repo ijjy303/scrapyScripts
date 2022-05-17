@@ -1,209 +1,82 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/17/2022-13:11:31
+Last updated: 05/17/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">21 People Having a Rough Day</a><br>
+## <a href="#linky2" id="linky1">America’s Greatest Living Old People</a><br>
 
-<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+<span style="font-size:4em">1. Dolly Parton better not f*cking die before I do. -u/TyCooper2010</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168663.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+<span style="font-size:4em">2. Dick Van Dyke. -u/Canucklehead_Esq</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+<span style="font-size:4em">3. Henry Winkler agreed on Twitter to be Americas grandpa, since we lost Grandma Betty. -u/thefuzzybunny1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+<span style="font-size:4em">4. The Murder She Wrote lady, Angela Lansbury. -u/Bituulzman
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+<span style="font-size:4em">5. Christopher Lloyd. -u/Some_Random_Android</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+<span style="font-size:4em">6. Willie Nelson. -u/GRAHAMPUBA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+<span style="font-size:4em">7. Mel Brooks fought in WWII defusing land mines in the Battle of the Bulge. -u/bigsz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+<span style="font-size:4em">8. Bob Barker. He’s 98 years old. Perfect! -u/aricberg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+<span style="font-size:4em">9. It seems like Morgan Freeman went from being a wise man to a wise old man when he played God in Bruce Almighty. And that came out 19 years ago. So Morgan Freeman has been Americas wise old man for almost two decades. -u/bigsz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+<span style="font-size:4em">10. Bob Newhart. -u/juliorama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+<span style="font-size:4em">11. Carol Burnett. -u/Ok_Bag_4135</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+<span style="font-size:4em">12. William Daniels, age 95. I could have sworn that I read his obituary a few years ago, but I must be thinking of someone else because hes still kicking. -u/Kraz_I</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+<span style="font-size:4em">13. I vote for Dr. Ruth Westheimer. Sex therapist, talk show host, author, professor, Holocaust survivor, and former sniper. Shes pretty bad*ss. -u/Kanuck88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168674.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+<span style="font-size:4em">14. President Carter. Just building houses and whatnot. -u/CasualCactus14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+<span style="font-size:4em">15. Lily Tomlin. -u/crobnuck</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+<span style="font-size:4em">16. Buzz Aldrin. -u/poopiepantsNo2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+<span style="font-size:4em">17. Steve Martins looked 70 since the 80s. -u/spongish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+<span style="font-size:4em">18. James Earl Jones. Who else could be our father? -u/Spirited_Warning8203</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+<span style="font-size:4em">19. Danny DeVito is a national treasure to be protected at all costs. -u/Otherwise_Ad233</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+<span style="font-size:4em">20. Sam Elliott. -u/CHIM_Jim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+<span style="font-size:4em">21. Larry David. That answer is pretty, pretty, pretty good! -u/moonboundshibe</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168682.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
+<span style="font-size:4em">22. James Hong! Hes a 93-year-old Chinese-American actor. Hes a character actor. And hes been acting since 1952. He co-founded East West Players, a theatre organization for Asian-American actors. -u/ExtinctFauna</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124814/87169281/old-person-using-pc-18-1455793035.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Gene Hackman. -u/MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">Dont believe everything you see on the internet my parents told me when I was a teenager in the late 90s... Now I have to tell my parents that.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013755/87169376/wers.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Clint Eastwood, I guess. That man ages like an oak. -u/unofficialShadeDueli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124936/87169282/kidsplayg.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
 
-<span style="font-size:4em">  Buddy, I’ve been working 60+ hours a week and prices keep going up and my pay is not and I actually cannot afford to change jobs, change my living situation, buy a more fuel efficient car, or go to college. There actually is no out. There is no work harder and I’ll make it. I’m literally in the poverty trap. I’m slowly making my way out of it but it’s going to be a long ass time unless some other opportunity magically appears. College isn’t the price of a McDouble anymore old man.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014452/87169380/ForSales.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If you havent seen the movie The Devil Wears Prada starring Anne Hathaway and Meryl Streep, we suggest you give it a watch. Its not a bad movie, and it does a pretty good job of painting Anna Wintour, the Editor-in-Cheif of Vogue as she really is, a huge b*tch. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013552/87168524/anna-wintour.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125056/87169283/colegedring.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. And thanks to this tweet by Australian morning show, The Today Show, now the whole world knows what Anna prefers to eat for lunch. For the small price of $77 you too can eat like the worlds biggest fashionista. The only problem, is were broke as sh*t. What seems like an innocent enough tweet, started a full-on pile on. But we have to ask, would you try this?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013347/87168522/anna-wintour-lunch1.png" style="width:100%"><br>
 
-<span style="font-size:4em">I do love the complaints about kids not playing outside anymore nowadays. Especially by people from the generation who did everything in their power to make just being outside aggressively terrible. Either through a large decrease in the number of places kids can play, an increase in the number of cars and just vehicles in general or by making laws against things like simply hanging out. Of course, were going to prefer being on the phone over that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012235/87169364/work.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The jokes were quick and honestly, I love rich people over paying for stuff that would cost them a fraction of the price from any grocery store. It really is the cherry on the cake for me. Say what you will, and dont pocket watch, but heck, let these rich pricks waste their millions on lunch, I have no problem with that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013255/87168514/anna-wintour-lunch10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011052/87169318/emo.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. However, the one gripe I have is you cant call that a Caprese salad. You just cant. Its illogical and wrong. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013325/87168518/anna-wintour-lunch3.png" style="width:100%"><br>
 
-<span style="font-size:4em">  Im bloody well trying Karen. Just cause you bought your house in the 60s for 40k and a blueberry, off your husbands salary, whilst you were a stay at home mom, then sold it for 600k this year to retire off of- Doesnt mean that its the same for this generation, right now. Far from it in fact. Just. Shut up.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014111/87169379/gaming3.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013306/87168515/anna-wintour-lunch8.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011322/87169324/phone.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013335/87168520/anna-wintour-lunch5.png" style="width:100%"><br>
 
-<span style="font-size:4em">The young people always just want to drink and go to parties  1. No 2. Dont pretend like you didnt do this too lol</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013529/87169374/sswww.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013339/87168521/anna-wintour-lunch2.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011554/87169361/wed.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013314/87168516/anna-wintour-lunch7.png" style="width:100%"><br>
 
-<span style="font-size:4em"> First of all no one ever wanted to work. Thats why its called, work, and not fun. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011804/87169362/home.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013317/87168517/anna-wintour-lunch4.png" style="width:100%"><br>
 
-<span style="font-size:4em"> Second of all, maybe its that no one wants to work at your job that lists itself as entry level but wants 5 years of experience and a masters degree along with being able to work 12 hour days at minimum wage. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012036/87169363/babes.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013243/87168513/anna-wintour-lunch9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012735/87169365/older.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013328/87168519/anna-wintour-lunch6.png" style="width:100%"><br>
 
-<span style="font-size:4em">Your generation is sensitive and werent taught hard work yall literally raised us, how is it our faults. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013234/87169368/LargeFamily.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Like when they complain about how kids got participation trophies. Dude, it was your idea, no kid thought up of it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125224/87169284/Cars.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014944/87169382/earth.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
-
-<span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
-
-Is the house in a nice neighborhood? Is it well kept? If so I figured they had nice stuff.
-
-Next question: Is there an easy escape route? Woods in the backyard were excellent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A recent study showed that burglars come back to the same houses quite often. They do this because of a number of motives.
-
-1: They want to take things they, for some reason, couldn’t take the first time.
-
-2: They’re kinda familiar with the house.
-
-3: It’s guaranteed that the people they robbed replaced the stuff they stole the first time, often these replacements are of better quality than the original.
-
-So after you get raided take good security measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Don’t leave empty boxes from high-end electronics on the curb outside your house. People tend to do this right after the holidays. Put that shit in your car and throw it out somewhere else. Any burglar casing your neighborhood will see that shit and know without even coming near your house and looking suspicious that you just got a bunch of valuable stuff just ready to be taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Let me give you the low-down on dogs: they aren’t protection or security.
-
-A dog can be easily tamed usually. Act friendly, give it a few rubs, and they’ll happily follow you around. If that doesn’t work, after my first run-in with an annoying dog (a small, yappy dog), I started carrying rawhide sticks with me. That stopped them very fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’m not a burglar, but I worked for the largest security company in this country for half a decade.
-
-Burglar alarms do not deter burglars. They just alert you that you have been burglarized. Most of the time the police will take very little action in response due to the fact that 98% of burglar alarm activation constitutes false alarms.
-
-The sign that comes with the alarm though? That thing is worth more than the alarm as far as deterring burglars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Double pane windows. Bitch to smash with anything short of a sledgehammer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Those family car stickers certainly tell me how easy a home invasion will be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. You’d be surprised how often people get robbed by people they know or people connected to people they know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. When I was young and dumb I would boost rims off cars, cause you could make quick money and it was less than a felony. The number one deterrent hands down……lights. If a place is lit up like a Christmas tree on the outside of a house you stay clear cause it means anyone can see you and see you clearly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Even if your house is well-locked, if your shed isn’t, I likely have access to a plethora of tools I can use to gain access. Don’t help the burglar. Lock your shed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I use to do door-to-door sales for ADT… people would let me in the house and just tell me where all the important stuff was before even verifying I was legit….. don’t do that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I stuck with commercial burglary, residential burglary carried a risk of getting hit with a home invasion charge which increases your sentence if convicted. It helps to hit the places that hire felons (fast food joints, video stores, etc.) because the cops are gonna waste a lot of time looking into the staff members who have a criminal history. The closer they’re looking at them, the better off I am.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A good burglar will rob you when it’s raining. The rain masks sound when you’re breaking into a garage. I had my garage broken in during torrential rain, all tools stolen, didn’t hear a thing and neither did my dog that sleeps outside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Had my house burglarized by a so-called friend. He missed by far the most valuable thing. it’s just a safe sitting on the laundry room floor. He missed it because I’m a scumbag and had it covered with a mountain of dirty clothes and towels. So not being tidy saved me upwards of 35k.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Fake rocks are a dead giveaway. Sock drawers are cliché. If you have a small safe that’s not bolted down, we are taking that thing. We all have a ‘safe guy.’ Our goal is to get in and out pretty quickly. If you hide something in a random box all the way up in your attic, it’s probably safe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. For the college kids that might read this, don’t keep your textbooks in your car. On the day of my finals, I had about 6 textbooks I was gonna sell after my finals, I left the books in my car while I took my tests. Came back to find someone broke my window out to steal the textbooks. Cop told me that it’s very common and unlikely they will catch the guy, so I was out ~$700, which was huge as a college student.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I’ve seen people make false outlets for hiding valuables like cash and jewelry. Just an idea, a burglar would have to be at your home for a long time to start checking outlets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Don’t post anything on social media until you have gotten back home. I can’t tell you how many neighbors and family have gotten robbed because of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">31 Dumb Jokes For People Who Get Humor</a><br>
-
-<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">25 Crazy Urban Legends That Turned Out to Be True</a><br>
+## <a href="#linky4" id="linky3">25 Crazy Urban Legends That Turned Out to Be True</a><br>
 
 <span style="font-size:4em">1. Serial murderer was picking off indigenous women from the crime ridden area of the city (Downtown Eastside Vancouver) and having their remains disposed of at a pig farm in another suburb - Robert William Willy Pickton - rayrayrayray
 
@@ -278,7 +151,7 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 
 <span style="font-size:4em">25. local, corrupt mob lawyers wife disappeared. rumors swirled that she either ran off with lover or he had her killed, possibly by the towns mob connected police chief but with no evidence to the rumors. a few years later, the wifes car is found in a canal with her body in the trunk with a crushed skull and shot. the chief and lawyer went to prison on conspiracy to murder charges. the story was later made into a tv movie called Deadly Matrimony - 20RegalGS15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167762.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">These German Burger King Items Are Freaking Americans Out </a><br>
+## <a href="#linky5" id="linky4">These German Burger King Items Are Freaking Americans Out </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
 
@@ -294,277 +167,7 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 
 <span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">27 Dank Memes We Stole From the Crypt Keeper </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167443.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167447.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167449.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167451.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167452.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">23 Restaurants That Failed at Presentation</a><br>
-
-<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">21 Funny Memes to Activate Your Laughter Functions </a><br>
-
-<span style="font-size:4em">1. You get it? Because the British museum if full of stolen artifacts? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This is every kids dream. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. What? You dont say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Its true ladies and gents. Calling a man bald is now considered sexual harassment in the UK. Now thats what we call equality.  </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166380.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Shut up dude were trying to sleep. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh isnt that funny. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hes going to win isnt he? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. It hasnt been a long life, but it has been a rough life. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. You know what to do. Time travel baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Good to see that in the Pokemon universe, taking care of yourself is the key to evil. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166388.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Shimona. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166389.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. I know what I have to do, I just dont want to do it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. This goes so hard. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166394.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">22 Fire Tweets From the Sick Minds of Twitter </a><br>
-
-<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
-
-<span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Rod Stewart. Pretty much anyone named Rod. -percygreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Alan Cumming. -ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Olivia Wilde. And thats actually an improvement on her original name, Olivia Cockburn. -GeckoV/-Rudy69 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dick Van Dyke. -rudymaxa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In a similar vein there used to be a driver in V8 Supercars called Dick Johnson. 14 year old me would always get a giggle out of that one. -gristc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hes not a very major celebrity, but Id argue that Dick Pound ranks up there. -CupcakeValkyrie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Rod Fitzwell. I don’t know if it’s his real name or a stage name. Hes a radio station personality in Norfolk. -MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Magic Johnson. -Ron_Fuckin_Swanson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Lists pretty much every wrestler there is. Just a few off the top of my head: Rocky Johnson, Big E, Macho Man, Alexa Bliss, Kelly Kelly, Summer Rae, Dolph Ziggler, X-Pac. -FetchedOffTheWall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Vince Vaughn just sounds porny to me. -Alternative-Two-1457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Courtney Cox. -thebranimator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Don Glover. Or slightly miss-spaced…DonG lover. -dadlifeinterneting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Michael Moorcock. -paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I turned on the TV one day a few years ago as I went into the kitchen to make breakfast and heard Im Hanna Storm and this is Sage Steele.... I thought is this a goddamn porno? I thought I put on ESPN. -Gonzostewie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Sydney Sweeney. No way thats not a porn star. -Slutyputty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lucy Lawless. -DisgruntledMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That stuntman, was he Kurt Russells stuntman? He has got the most outrageous name ever, Dick Warlock. -OldMork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You cant say Randy Johnson in this context without also giving his nickname: The Big Unit. -humphrey_the_camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Dwayne The Rock Johnson wasted the worlds best porn name/nickname on a wrestling and acting career. -i_run_from_problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Johnny Knoxville sounds like a porn name tbh. -RebTheMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Nikki Sixx. -GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Bella Thorne. -Responsible-Chard515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. January Jones. -BulkyOrder9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
-
-<span style="font-size:4em">1. If you havent seen the movie The Devil Wears Prada starring Anne Hathaway and Meryl Streep, we suggest you give it a watch. Its not a bad movie, and it does a pretty good job of painting Anna Wintour, the Editor-in-Cheif of Vogue as she really is, a huge b*tch. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013552/87168524/anna-wintour.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. And thanks to this tweet by Australian morning show, The Today Show, now the whole world knows what Anna prefers to eat for lunch. For the small price of $77 you too can eat like the worlds biggest fashionista. The only problem, is were broke as sh*t. What seems like an innocent enough tweet, started a full-on pile on. But we have to ask, would you try this?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013347/87168522/anna-wintour-lunch1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. The jokes were quick and honestly, I love rich people over paying for stuff that would cost them a fraction of the price from any grocery store. It really is the cherry on the cake for me. Say what you will, and dont pocket watch, but heck, let these rich pricks waste their millions on lunch, I have no problem with that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013255/87168514/anna-wintour-lunch10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. However, the one gripe I have is you cant call that a Caprese salad. You just cant. Its illogical and wrong. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013325/87168518/anna-wintour-lunch3.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013306/87168515/anna-wintour-lunch8.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013335/87168520/anna-wintour-lunch5.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013339/87168521/anna-wintour-lunch2.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013314/87168516/anna-wintour-lunch7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013317/87168517/anna-wintour-lunch4.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013243/87168513/anna-wintour-lunch9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013328/87168519/anna-wintour-lunch6.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">24 Disturbing Facts That Ruined Our Day</a><br>
+## <a href="#linky6" id="linky5">24 Disturbing Facts That Ruined Our Day</a><br>
 
 <span style="font-size:4em">1. Flies dont have teeth. So, when they land on your sandwich and want to eat some, they barf up the contents of their stomach (often containing another animals shit) so the digestive enzymes can get on the food and then they eat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167852.jpg" style="width:100%"><br>
 
@@ -614,7 +217,7 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 
 <span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">40 Fun Photos to Enjoy Irresponsibly</a><br>
+## <a href="#linky7" id="linky6">40 Fun Photos to Enjoy Irresponsibly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
 
@@ -693,4 +296,430 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168580.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">21 People Having a Rough Day</a><br>
+
+<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">Don’t Tell HR That You Came in Your Pants</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">20 Tips on Boob-Watching Etiquette From Women Themselves</a><br>
+
+<span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011152/87169319/etiquette-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> If they stare at my boobs while other people are talking—or worse, while I’m talking—that makes me uncomfortable. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011159/87169320/etiquette-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169372/etiquette-11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> Fortunately, I’ve experienced glancing a lot more frequently than staring. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013434/87169369/etiquette-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015156/87169383/etiquette-16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013453/87169370/etiquette-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When women wear graphic t shirts with writing on their chest I’m always hesitant to read it because I don’t want to look like a jackass. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169371/etiquette-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013505/87169373/etiquette-15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015207/87169384/etiquette-18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">I can tell when someone is reading my shirt versus just staring at my boobs. I don’t mind people stopping and taking a good look at the text, I know it’s hard to read, I’ll even turn and fully face them so they can read it properly. I don’t mind this at all, if I’m going to slap a message on my tits I’m doing it cause I want people to read the message. No biggie! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121114/87169272/etiquette-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015219/87169385/etiquette-19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> In fact asking a woman “what does your shirt say” is a really good way to break the ice. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015227/87169386/etiquette-17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011204/87169321/etiquette-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> I’ve seen multiple people mention feeling uncomfortable reading name tags. It’s always okay to read name tags! They’re literally there to be read. I’ve seen some women put their name tags on their upper sleeve if they felt uncomfortable with drawing attention to their left tit so in that instance you’ll know a woman doesn’t want you staring at her chest. If you’re really uncomfortable with reading a name tag that’s okay, just introduce yourself and then ask their name. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121201/87169276/etiquette-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011215/87169323/etiquette-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011211/87169322/etiquette-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. You glance, dont stare, its like looking into the sun </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121126/87169273/etiquette-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121148/87169275/etiquette-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
+
+<span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
+
+Is the house in a nice neighborhood? Is it well kept? If so I figured they had nice stuff.
+
+Next question: Is there an easy escape route? Woods in the backyard were excellent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A recent study showed that burglars come back to the same houses quite often. They do this because of a number of motives.
+
+1: They want to take things they, for some reason, couldn’t take the first time.
+
+2: They’re kinda familiar with the house.
+
+3: It’s guaranteed that the people they robbed replaced the stuff they stole the first time, often these replacements are of better quality than the original.
+
+So after you get raided take good security measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166949.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Don’t leave empty boxes from high-end electronics on the curb outside your house. People tend to do this right after the holidays. Put that shit in your car and throw it out somewhere else. Any burglar casing your neighborhood will see that shit and know without even coming near your house and looking suspicious that you just got a bunch of valuable stuff just ready to be taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166950.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Let me give you the low-down on dogs: they aren’t protection or security.
+
+A dog can be easily tamed usually. Act friendly, give it a few rubs, and they’ll happily follow you around. If that doesn’t work, after my first run-in with an annoying dog (a small, yappy dog), I started carrying rawhide sticks with me. That stopped them very fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166951.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I’m not a burglar, but I worked for the largest security company in this country for half a decade.
+
+Burglar alarms do not deter burglars. They just alert you that you have been burglarized. Most of the time the police will take very little action in response due to the fact that 98% of burglar alarm activation constitutes false alarms.
+
+The sign that comes with the alarm though? That thing is worth more than the alarm as far as deterring burglars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166947.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Double pane windows. Bitch to smash with anything short of a sledgehammer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166952.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Those family car stickers certainly tell me how easy a home invasion will be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. You’d be surprised how often people get robbed by people they know or people connected to people they know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166954.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. When I was young and dumb I would boost rims off cars, cause you could make quick money and it was less than a felony. The number one deterrent hands down……lights. If a place is lit up like a Christmas tree on the outside of a house you stay clear cause it means anyone can see you and see you clearly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166955.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Even if your house is well-locked, if your shed isn’t, I likely have access to a plethora of tools I can use to gain access. Don’t help the burglar. Lock your shed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166956.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I use to do door-to-door sales for ADT… people would let me in the house and just tell me where all the important stuff was before even verifying I was legit….. don’t do that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166957.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I stuck with commercial burglary, residential burglary carried a risk of getting hit with a home invasion charge which increases your sentence if convicted. It helps to hit the places that hire felons (fast food joints, video stores, etc.) because the cops are gonna waste a lot of time looking into the staff members who have a criminal history. The closer they’re looking at them, the better off I am.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166958.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A good burglar will rob you when it’s raining. The rain masks sound when you’re breaking into a garage. I had my garage broken in during torrential rain, all tools stolen, didn’t hear a thing and neither did my dog that sleeps outside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166959.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Had my house burglarized by a so-called friend. He missed by far the most valuable thing. it’s just a safe sitting on the laundry room floor. He missed it because I’m a scumbag and had it covered with a mountain of dirty clothes and towels. So not being tidy saved me upwards of 35k.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166960.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Fake rocks are a dead giveaway. Sock drawers are cliché. If you have a small safe that’s not bolted down, we are taking that thing. We all have a ‘safe guy.’ Our goal is to get in and out pretty quickly. If you hide something in a random box all the way up in your attic, it’s probably safe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166961.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. For the college kids that might read this, don’t keep your textbooks in your car. On the day of my finals, I had about 6 textbooks I was gonna sell after my finals, I left the books in my car while I took my tests. Came back to find someone broke my window out to steal the textbooks. Cop told me that it’s very common and unlikely they will catch the guy, so I was out ~$700, which was huge as a college student.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166962.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I’ve seen people make false outlets for hiding valuables like cash and jewelry. Just an idea, a burglar would have to be at your home for a long time to start checking outlets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166963.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Don’t post anything on social media until you have gotten back home. I can’t tell you how many neighbors and family have gotten robbed because of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166964.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">31 Dumb Jokes For People Who Get Humor</a><br>
+
+<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">23 Restaurants That Failed at Presentation</a><br>
+
+<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">27 Dank Memes We Stole From the Crypt Keeper </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167439.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167443.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167447.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167449.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167451.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167452.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">22 Fire Tweets From the Sick Minds of Twitter </a><br>
+
+<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
+
+<span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Rod Stewart. Pretty much anyone named Rod. -percygreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Alan Cumming. -ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Olivia Wilde. And thats actually an improvement on her original name, Olivia Cockburn. -GeckoV/-Rudy69 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Dick Van Dyke. -rudymaxa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. In a similar vein there used to be a driver in V8 Supercars called Dick Johnson. 14 year old me would always get a giggle out of that one. -gristc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hes not a very major celebrity, but Id argue that Dick Pound ranks up there. -CupcakeValkyrie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Rod Fitzwell. I don’t know if it’s his real name or a stage name. Hes a radio station personality in Norfolk. -MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Magic Johnson. -Ron_Fuckin_Swanson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Lists pretty much every wrestler there is. Just a few off the top of my head: Rocky Johnson, Big E, Macho Man, Alexa Bliss, Kelly Kelly, Summer Rae, Dolph Ziggler, X-Pac. -FetchedOffTheWall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Vince Vaughn just sounds porny to me. -Alternative-Two-1457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Courtney Cox. -thebranimator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Don Glover. Or slightly miss-spaced…DonG lover. -dadlifeinterneting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Michael Moorcock. -paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I turned on the TV one day a few years ago as I went into the kitchen to make breakfast and heard Im Hanna Storm and this is Sage Steele.... I thought is this a goddamn porno? I thought I put on ESPN. -Gonzostewie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Sydney Sweeney. No way thats not a porn star. -Slutyputty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lucy Lawless. -DisgruntledMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That stuntman, was he Kurt Russells stuntman? He has got the most outrageous name ever, Dick Warlock. -OldMork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You cant say Randy Johnson in this context without also giving his nickname: The Big Unit. -humphrey_the_camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Dwayne The Rock Johnson wasted the worlds best porn name/nickname on a wrestling and acting career. -i_run_from_problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Johnny Knoxville sounds like a porn name tbh. -RebTheMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Nikki Sixx. -GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Bella Thorne. -Responsible-Chard515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. January Jones. -BulkyOrder9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
 
