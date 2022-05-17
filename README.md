@@ -1,69 +1,80 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/16/2022-21:11:31
+Last updated: 05/16/2022-22:11:31
 <br>
-## <a href="#linky2" id="linky1">31 Dumb Jokes For People Who Get Humor</a><br>
+## <a href="#linky2" id="linky1">25 Crazy Urban Legends That Turned Out to Be True</a><br>
 
-<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Serial murderer was picking off indigenous women from the crime ridden area of the city (Downtown Eastside Vancouver) and having their remains disposed of at a pig farm in another suburb - Robert William Willy Pickton - rayrayrayray
+
+ https://www.reddit.com/r/AskReddit/comments/ugrb3n/serious_what_is_an_urban_legend_in_your_area_that/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167738.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Not totally true but there was a house in the neighborhood all the kids called the murder house. Usual mean old man stories. If you go on his lawn hell drag you to his basement and murder you. Turns out he was a sex offender with a pretty serious rap and the parents encouraged the story as it made kids stay away without talking about pedophilia. - Niznack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167739.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Catman of Greenock - Scottish town 30 mins from Glasgow where I grew up. Kids would all bullshit about a terrifying sounding cryptid - a bearded man with pitch black skin who prowled around at night catching rats and chasing kids who had ventured into some disused underground freight tunnels - part of a coming of age ritual loads of us went through. It was all bravado and made up stories and the only people who I ever heard claim to have seen him were kids that were ages with me and from a part of town I wasnt too local to so it seemed like a big in-joke between some class mates that had spread. In my late teens I met my now wife and eventually met her brother in law who was about 10 years older than us, so approaching 30. I couldnt believe it when he brought up the Catman and swore hed seen him one night when he himself was a teenager and was terrified. I still thought it was all a long con. Then came camera phones and what do you know - plenty of photographs of him taken by intrepid nighttime adventurers who coaxed him out with cartons of chips and cans of Irn Bru, most of which are taken at or around the exact bus depot the brother-in-law saw him all that time ago. (The alleged origin story of Catman as an AWOL Russian sailor are totally unconfirmed. Rumours are he died during lockdown) - Wrathalanche</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167740.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. I used to live in a very small town in West Virginia, and there was a local story going around about a giant turkey.
+Some hunter swore he saw a turkey that stood 5ft tall, and it had talons that could easily kill a man. So that was the local rumor for a while, theres a giant turkey out there somewhere. Some said he was crazy, others said they saw it too, all kinds of stories going around.
+ 
+Turns out it was an emu. Somebody else saw the thing, and they knew what an emu is.
+Some people who raise goats and chickens keep an emu with their herd, emus are territorial and protective of what they perceive to be their group. So they run off predators like foxes and coyotes, and people for that matter.
+Most likely it escaped, and nobody claimed it for some reason. - Catshit-Dogfart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167741.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. That theres a giant man called Purple Aki that approaches people and asks to squeeze their muscles. - DefinitelynotDanger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167742.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. It wasnt a specific urban legend about my hometown so much as a general urban legend. The legend is derived from late Medieval legends where people journeying through a forest and find a forgotten village the forest grew up around. The only surviving building is a stone church where the last of the villagers gathered before the Black Plague wiped them out 100 years earlier. The travelers find their skeletons still seated around the altar.
+In the case of my town, were surrounded by steep high hills. Hikers found a car that ran off the road with a womans skeleton in the drivers seat. She was reported missing in the 1970s but with her car gone and no internet or cell phones, authorities concluded she got simply drove away. Which she kind of did but she ran off the road, crashed in the deep underbrush, and nobody found her til years later.
+There are similar stories in other places but mostly cars that crashed into ponds and came out looking like a what a car submerged for 20+ years look like. Her car and her personal effects were mostly intact - basically a 1970s time capsule. - Eric_da_MAJ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167743.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The Green Man, Apparently he was a really sweet misunderstood man who was horribly disfigured when he was a kid. He was fond of taking nighttime walks. The pictures of him can give you an idea of why he could be frightening. - Extrasherman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167744.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. That one of my neighbors was a pedophile. So in my neighborhood the older kids always said the guy was creepy/liked kids. There were several days when he gave everyone ice cream (he drove a tractor trailer for a major ice cream company.) A few years later we got home from school and there were all sorts of FBI/police vehicles outside of his house. Turns out he had been busted in an FBI sting. - TreesOftheEast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167745.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. That my hometown had its own monk. People were apparently seeing a Buddhist monk around town which would be incredibly unusual where I’m from. It was true though, his name was Paul and he had converted and completely dedicated his life to Buddhism. Very nice man. - _megnn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167746.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. There was a leader of the local church youth group who also an amateur photographer. Some kid in my class didnt like him and started a rumor that he was a pedophile. It got so big that parents called for an investigation by the school and they found that he actually was sexually abusing his kids. - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167747.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Diaper man. Everyone in Elementary school said not to go into the woods because diaper man was back there. A kid even claimed he saw diaper man and we thought he was full of shit. Many years later upon a visit back home I met up with some old friends and we decided to go have a smoke in the woods. We first noticed there were adult diapers tossed into the woods about 5 to 10 feet off the trail. Lots of them. Then, we look up and in the distance. Yep. A full grown adult man in an adult diaper. Diaper man. As soon as he saw us he ran. This was about 20 years ago. I recently visited family again. Went for a jog in those woods. There were adult diapers. Everywhere. And, there again was diaper man. This time as a fit adult on a run, I chased after him. He is a mentally handicapped man who lives in a half way home in the adjacent neighborhood. I guess he has been going into the woods to get rid of his diapers for like 40+ years. - YaGottaBeaDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167748.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. There was this giant mansion at the top of a hill near our place that everyone claimed was where the freemasons sent their old, crazy people to die so that their secrets couldnt get out.
+Allegedly, there were wild animals all over the place and it was dangerous to try to go there.
+Place used to terrify me.
+Yeah...it was the masonic retirement home. It has a nature park inside of it. Its in union city, california. - FutureSoldier88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167749.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Im not Japanese but when they found out that North Korean submarines really had kidnapped kids off the beach, then taken them back North Korea to be raised as spies, it would have blown their minds even more than it did mine: https://www.bbc.com/news/world-asia-55651578 - shaggers_jr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167750.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. As the water dries up, dead bodies will be found in Lake Mead.
+[8NewsNow]
+(https://www.8newsnow.com/i-team/i-team-body-found-in-barrel-in-lake-mead-may-date-back-to-1980s-more-likely-to-appear-as-water-recedes-las-vegas-police-say/) - stepenyaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167751.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. When I was a kid there was a road that ended in a T. but at the intersection. if you drove straight, youd go down a steep gravel/dirt slope there was a small dirt landing and then watter. It was used by locals to launch canoes and small boats into a very large river. Later, The city put up a bended sheet metal railing barrier. One simple rail. It just always was closed except to kids.
+in like grade 6 I saw the barrier was blown through and we all talked and all the kids said there was a car in the water. Kidss didnt play there much as someone was dead in the water - everybody knew. Barrier was fixed, nothing came about it for years.
+When I was like 19 they were shocked to report that a car and remains were found there. But the big question the media had was how did the car crash into the water when the barrier was unaffected.
+Thought to myself...after all this time nobody asked us kids - Wayelder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Where I grew up there was a scary old house from either the 50s or 60s across from the church. It was burned, covered in ivy, and didn’t match the giant apartments surrounding it. To access one of the elementary schools and one of the middle schools in the area, you’d have to walk past this scary ass house and you’d see kids avoiding that side of the street simply because they were so scared of the house. Drug addicts wouldn’t even camp there, homeless people wouldn’t take shelter in it even during hurricanes. The rumor was that the house had an entire family get butchered by an insane asylum escapee and that the house has been abandoned since. This was supported by the fact the middle school I mentioned used to be a hospital many claimed was for mental health.
+Well, in 2012 that house was bought and eventually torn down to build luxury apartments but no work has ever been done. It’s now an eerie plot of land. So I decided to do some research and, turned out, the schoolyard stories were sort of true. The house was owned by a family who rented out some of the rooms while still living there. The teenaged daughter (Lillian Mojica) was raped and murdered in the basement by one of the tenants. - bzzibee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I was driving down a west Virginia back road in the middle of the night when I came around a curve to an injured dog standing in the middle of the road. I slammed on my brakes and missed him by a hair. I got out to find him because he was limping real bad and I was hoping hed have a collar. He vanished into thin air...
+Like six months later I was going down the YouTube rabbit hole and watched a video about the most haunted places in west Virginia and they talked about this road that is haunted by a ghost of a limping dog that lures people into the night... SAME. FUCKING. ROAD. They said the route name and I almost threw my laptop across the room.
+Im not superstitious... But now? ...Im a little stitious. - Conscious_Camel4830</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I guess less so an urban legend and more so a rumor: When I was in 6th grade some kids made a joke that the choir teacher (who taught at both middle and high school) beat his wife, and it spread like wildfire even though everyone knew it wasn’t true. I mean, it couldn’t have possibly been true. He was a scraggly man in his early thirties, with a daughter that is constantly sick due to her chemotherapy, since she was diagnosed with Leukemia when I was in 8th grade. He was always gone every once in awhile with trips to mayo and the cities for her treatments. He was a very nice man that couldn’t possibly hurt a fly.
+This all changed however, when just two years ago in my freshman year of high school he got arrested for reportedly assaulting his pregnant wife and seven year old daughter. He was arrested and at his trial he plead guilty, but his case was dropped “due to covid”. He was never fired, and still works as the choir director. To this day I find him a very creepy man, he still talks about his wife and daughter but it’s clear that everyone knows exactly who he is.
+At this point our entire high school choir is about five people big, for a school of 2,200 students just because people can’t stand being within 10 feet of him. - glowstick-of-destiny</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. For decades there were rumors about a “big cave” under a local high school where kids would go down and skip class and smoke pot. Well in 2011 they discovered water run off caverns under that same school so the kids weren’t lying. Nothing weird really bc my state is known for having a lot of caves but yeah kinda ruined everyone hangout spot lmao. - mellowpotions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. There were rumors of a inbred mutant enclave in the woods north of nyc in the Hudson valley that dare takers would take a drive up to. The mutant part isn’t real and the inbred part is questionable but Oniontown is very much real and documented. - Tinaszombie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. There used to be a massive urban legend about a panther living in the mountains near where I live even though no big cats are native to my country and always got attributed to blurry photos etc. Turns out a guy had an illegal collection of exotic animals and released them when he got wind that authorities were going to do an inspection of his property. - hopelesseelsfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. in my home town, there was an old bridge built in the 20s. It was smallish, just going over a small stream between where two small towns meet. There was a rumor that there was a treasure dropped into the cement when it was wet. There was also a rumor several builders fell into the cement and died during the construction. There was also a rumor that a dead body was thrown into it by the mob.
+They demolished the bridge a few years back, finding two skeletons and a briefcase of money (I think a few thousand dollars). If I remember correctly, the two skeletons were from workers of the bridge (something that was reported and archived in a newspaper back in the 1920s and anyone could have actually researched if they wanted to). I have no idea how the briefcase of money got in there, and I dont think anyone ever came up with an answer for it. - AquanautOrange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. My friend lived in central New Jersey and used to tell us about the ‘prison farm’ where inmates were used for hard labor and the cows had plexiglass windows bolted to their sides so you could see them digest their food.Turns out, it’s all true - Macronaut</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. The rumour was There was a local homless/ mentally unwell person, that was actually quite rich and owned a mansion. Turns out there was some truth to that. Once his issues became apparent his mother set out with a plan and largely worked herself to death to buy a house and set up a bunch of trusts and carers for him and basically train him to look after himself. Thing is his mother apparently never really considered what he would actually do all day never set him up with a role or job. He wore scruffy clothes because he liked those clothes, and was always hanging around the market Square because the library was there and the market traders were always friendly and chatty. We learned all this when one of my friends was hired on as a carer, she got him a role at the library and got him a small part time job at a charity shop both of which he seemed to deeply enjoy. - Lostboxoangst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. local, corrupt mob lawyers wife disappeared. rumors swirled that she either ran off with lover or he had her killed, possibly by the towns mob connected police chief but with no evidence to the rumors. a few years later, the wifes car is found in a canal with her body in the trunk with a crushed skull and shot. the chief and lawyer went to prison on conspiracy to murder charges. the story was later made into a tv movie called Deadly Matrimony - 20RegalGS15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167762.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">33 Things People Do that Scream 'I'm Entitled'</a><br>
 
@@ -133,53 +144,71 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">33. When Mitt Romney was debating Obama, he said: If a kid needs money to start a business they can always borrow it from their parents.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166614.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">23 Designs that Should Have Never Seen the Light of Day</a><br>
+## <a href="#linky4" id="linky3">32 Fun Pics to Make the Pain Go Away</a><br>
 
-<span style="font-size:4em">1. Green means GO AWAY!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167354.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166527.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Every wire is just white, because why not mess with the installer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167335.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “This house was built about 4 feet below street level. Now they will have a very short, steep driveway down into the garage.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167341.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166529.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167336.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166530.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “This official PlayStation brand shirt with the circle, x, and triangle colors wrong.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167337.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Yes, that’s the sound that sheep make.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167338.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166532.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167339.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166533.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167340.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166534.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167343.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166535.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167344.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166536.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “This popcorn bag that says microwave for 2 minutes 30 seconds, but has a picture of a microwave with 3 minutes on it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167345.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “This portable heater has started to melt its own handle.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167346.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166538.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167347.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166539.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167348.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166542.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. “They put braille on this mirror so blind people can use it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167349.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167350.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167351.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166549.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. “How to get children to eat sand…”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167352.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166550.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167353.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166551.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167355.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166553.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167342.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166555.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. T Rex or Alien?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167356.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166556.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167357.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166571.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">34 Things Unique to Certain Countries</a><br>
 
@@ -295,53 +324,7 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87166394.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">22 Fire Tweets From the Sick Minds of Twitter </a><br>
-
-<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
+## <a href="#linky7" id="linky6">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
 
 <span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
 
@@ -393,7 +376,7 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
+## <a href="#linky8" id="linky7">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
 
 <span style="font-size:4em">1. If you havent seen the movie The Devil Wears Prada starring Anne Hathaway and Meryl Streep, we suggest you give it a watch. Its not a bad movie, and it does a pretty good job of painting Anna Wintour, the Editor-in-Cheif of Vogue as she really is, a huge b*tch. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013552/87168524/anna-wintour.jpg" style="width:100%"><br>
 
@@ -417,7 +400,7 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013328/87168519/anna-wintour-lunch6.png" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">27 Dank Memes We Stole From the Crypt Keeper </a><br>
+## <a href="#linky9" id="linky8">27 Dank Memes We Stole From the Crypt Keeper </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167426.jpg" style="width:100%"><br>
 
@@ -473,7 +456,7 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167452.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">23 Restaurants That Failed at Presentation</a><br>
+## <a href="#linky10" id="linky9">23 Restaurants That Failed at Presentation</a><br>
 
 <span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
 
@@ -521,7 +504,7 @@ Last updated: 05/16/2022-21:11:31
 
 <span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
+## <a href="#linky11" id="linky10">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
 
 <span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
 
@@ -579,7 +562,159 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">Monday Morning Randomness User Edition - Broseph_Mcbrah</a><br>
+## <a href="#linky12" id="linky11">31 Dumb Jokes For People Who Get Humor</a><br>
+
+<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">22 Fire Tweets From the Sick Minds of Twitter </a><br>
+
+<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">20 Thoughts for ‘Just Resting Your Eyes’ in the Shower</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166786.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Monday Morning Randomness User Edition - Broseph_Mcbrah</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/113850/87167597/87166895.jpg" style="width:100%"><br>
 
@@ -661,71 +796,7 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/15/114217/87167635/infinite_lego_creativity_640_23.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">18 WTF Celebrity Facts Almost Nobody Knows</a><br>
-
-<span style="font-size:4em">1. Fran Drescher believes aliens abducted her and implanted a chip in her hand.
-
-Her ex-husband believes the same thing happened to him and that’s why they met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Matthew Perry lost part of his middle finger as a kid.
-
-It was slammed in a car door when he was 3 y/o.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Elvis Presley was actually a natural blonde.
-
-He started using black shoe polish to darken his hair to look more handsome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bryan Cranston was once a suspect in a giant murder investigation.
-
-He worked at a restaurant where he hated the chef and made a joke about killing him. The chef ended up dead around the same time Cranston and his brother left town, leading the police to consider them suspects and follow them to the Carolinas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. When she was 22, Angelina Jolie tried to hire a hitman to kill her, but he convinced her to stay alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lucy Liu claims to have had sex with a ghost.
-
-“It was sheer bliss. I felt everything. I climaxed. And then he floated away. It was almost like what might have happened to Mary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Tim Allen was arrested for cocaine possession and served two years in jail.
-
-He only didn’t get a life sentence because he snitched on other dealers for a lighter sentence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Geena Davis almost made the US Olympic archery team in 1999, after taking up the sport in her 40s.
-
-She was ranked the 13th best female player in the US.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166199.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Eva Mendes always wanted to be a nun when she grew up.
-
-She changed her mind when she found out they didn’t make any money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Benedict Cumberbatch was abducted in South Africa in 2005.
-
-He and his friends were ambushed by men with guns and their wrists were bound with their own shoelaces. Obviously, he made it out alive but was forced to give the captors cards and money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Charlie Sheen accidentally shot his then-fiancé Kelly Preston.
-
-But there are conflicting reports on what actually happened…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Whitney Houston was a producer on The Princess Diaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Stephen Baldwin has a Hannah Montana tattoo.
-
-His daughter Hailey was a big fan and he was told if he got HM tattooed he could make a cameo. Unfortunately for him, it never happened but he still has the ink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. James Lipton worked as a pimp in Paris in the 1950s.
-
-“It was a great year of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Ashton Kutcher’s real first name is Christopher.
-
-Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Dennis Rodman has 28 siblings on his dad’s side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Rob Lowe believes he met Bigfoot.
-
-“We had an incredible encounter…in the Ozark mountains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166209.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">36 Funny Comments That Were Right On the Mark </a><br>
+## <a href="#linky16" id="linky15">36 Funny Comments That Were Right On the Mark </a><br>
 
 <span style="font-size:4em">1. Wow bro, how scary. What are you going to do? Butter my bread? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151094.jpg" style="width:100%"><br>
 
@@ -799,7 +870,71 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 
 <span style="font-size:4em">36. This is both hilarious and sad. Even in the afterlife, this man is still doing what he loves. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87151110.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">24 Facepalms That Are The Epitome of Cringe</a><br>
+## <a href="#linky17" id="linky16">18 WTF Celebrity Facts Almost Nobody Knows</a><br>
+
+<span style="font-size:4em">1. Fran Drescher believes aliens abducted her and implanted a chip in her hand.
+
+Her ex-husband believes the same thing happened to him and that’s why they met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Matthew Perry lost part of his middle finger as a kid.
+
+It was slammed in a car door when he was 3 y/o.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Elvis Presley was actually a natural blonde.
+
+He started using black shoe polish to darken his hair to look more handsome.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bryan Cranston was once a suspect in a giant murder investigation.
+
+He worked at a restaurant where he hated the chef and made a joke about killing him. The chef ended up dead around the same time Cranston and his brother left town, leading the police to consider them suspects and follow them to the Carolinas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When she was 22, Angelina Jolie tried to hire a hitman to kill her, but he convinced her to stay alive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lucy Liu claims to have had sex with a ghost.
+
+“It was sheer bliss. I felt everything. I climaxed. And then he floated away. It was almost like what might have happened to Mary.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Tim Allen was arrested for cocaine possession and served two years in jail.
+
+He only didn’t get a life sentence because he snitched on other dealers for a lighter sentence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Geena Davis almost made the US Olympic archery team in 1999, after taking up the sport in her 40s.
+
+She was ranked the 13th best female player in the US.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Eva Mendes always wanted to be a nun when she grew up.
+
+She changed her mind when she found out they didn’t make any money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Benedict Cumberbatch was abducted in South Africa in 2005.
+
+He and his friends were ambushed by men with guns and their wrists were bound with their own shoelaces. Obviously, he made it out alive but was forced to give the captors cards and money.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Charlie Sheen accidentally shot his then-fiancé Kelly Preston.
+
+But there are conflicting reports on what actually happened…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Whitney Houston was a producer on The Princess Diaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Stephen Baldwin has a Hannah Montana tattoo.
+
+His daughter Hailey was a big fan and he was told if he got HM tattooed he could make a cameo. Unfortunately for him, it never happened but he still has the ink.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. James Lipton worked as a pimp in Paris in the 1950s.
+
+“It was a great year of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Ashton Kutcher’s real first name is Christopher.
+
+Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Dennis Rodman has 28 siblings on his dad’s side.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Rob Lowe believes he met Bigfoot.
+
+“We had an incredible encounter…in the Ozark mountains.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166209.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">24 Facepalms That Are The Epitome of Cringe</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/13/012455/87166739/facepams3.png" style="width:100%"><br>
 
@@ -848,112 +983,4 @@ Ashton is his middle name.</span><br><img src="https://cdn.ebaumsworld.com/media
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/13/012731/87166761/facepams24.png" style="width:100%"><br>
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/13/012741/87166762/facepams23.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">32 Fun Pics to Make the Pain Go Away</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166527.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166528.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166529.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166530.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166531.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166536.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166542.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166568.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87166571.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">20 Thoughts for ‘Just Resting Your Eyes’ in the Shower</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/1548104/87166786.jpg" style="width:100%"><br>
 
