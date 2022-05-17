@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/17/2022-14:11:31
+Last updated: 05/17/2022-15:11:31
 <br>
 ## <a href="#linky2" id="linky1">America’s Greatest Living Old People</a><br>
 
@@ -52,29 +52,57 @@ Last updated: 05/17/2022-14:11:31
 
 <span style="font-size:4em">24. Clint Eastwood, I guess. That man ages like an oak. -u/unofficialShadeDueli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168685.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
+## <a href="#linky3" id="linky2">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
 
-<span style="font-size:4em">1. If you havent seen the movie The Devil Wears Prada starring Anne Hathaway and Meryl Streep, we suggest you give it a watch. Its not a bad movie, and it does a pretty good job of painting Anna Wintour, the Editor-in-Cheif of Vogue as she really is, a huge b*tch. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013552/87168524/anna-wintour.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. And thanks to this tweet by Australian morning show, The Today Show, now the whole world knows what Anna prefers to eat for lunch. For the small price of $77 you too can eat like the worlds biggest fashionista. The only problem, is were broke as sh*t. What seems like an innocent enough tweet, started a full-on pile on. But we have to ask, would you try this?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013347/87168522/anna-wintour-lunch1.png" style="width:100%"><br>
+<span style="font-size:4em">2. Rod Stewart. Pretty much anyone named Rod. -percygreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The jokes were quick and honestly, I love rich people over paying for stuff that would cost them a fraction of the price from any grocery store. It really is the cherry on the cake for me. Say what you will, and dont pocket watch, but heck, let these rich pricks waste their millions on lunch, I have no problem with that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013255/87168514/anna-wintour-lunch10.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Alan Cumming. -ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167827.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. However, the one gripe I have is you cant call that a Caprese salad. You just cant. Its illogical and wrong. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013325/87168518/anna-wintour-lunch3.png" style="width:100%"><br>
+<span style="font-size:4em">4. Olivia Wilde. And thats actually an improvement on her original name, Olivia Cockburn. -GeckoV/-Rudy69 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013306/87168515/anna-wintour-lunch8.png" style="width:100%"><br>
+<span style="font-size:4em">5. Dick Van Dyke. -rudymaxa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167828.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013335/87168520/anna-wintour-lunch5.png" style="width:100%"><br>
+<span style="font-size:4em">6. In a similar vein there used to be a driver in V8 Supercars called Dick Johnson. 14 year old me would always get a giggle out of that one. -gristc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013339/87168521/anna-wintour-lunch2.png" style="width:100%"><br>
+<span style="font-size:4em">7. Hes not a very major celebrity, but Id argue that Dick Pound ranks up there. -CupcakeValkyrie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013314/87168516/anna-wintour-lunch7.png" style="width:100%"><br>
+<span style="font-size:4em">8. Rod Fitzwell. I don’t know if it’s his real name or a stage name. Hes a radio station personality in Norfolk. -MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013317/87168517/anna-wintour-lunch4.png" style="width:100%"><br>
+<span style="font-size:4em">9. Magic Johnson. -Ron_Fuckin_Swanson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167829.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013243/87168513/anna-wintour-lunch9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Lists pretty much every wrestler there is. Just a few off the top of my head: Rocky Johnson, Big E, Macho Man, Alexa Bliss, Kelly Kelly, Summer Rae, Dolph Ziggler, X-Pac. -FetchedOffTheWall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013328/87168519/anna-wintour-lunch6.png" style="width:100%"><br>
+<span style="font-size:4em">11. Vince Vaughn just sounds porny to me. -Alternative-Two-1457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Courtney Cox. -thebranimator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Don Glover. Or slightly miss-spaced…DonG lover. -dadlifeinterneting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Michael Moorcock. -paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. I turned on the TV one day a few years ago as I went into the kitchen to make breakfast and heard Im Hanna Storm and this is Sage Steele.... I thought is this a goddamn porno? I thought I put on ESPN. -Gonzostewie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Sydney Sweeney. No way thats not a porn star. -Slutyputty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lucy Lawless. -DisgruntledMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. That stuntman, was he Kurt Russells stuntman? He has got the most outrageous name ever, Dick Warlock. -OldMork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. You cant say Randy Johnson in this context without also giving his nickname: The Big Unit. -humphrey_the_camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Dwayne The Rock Johnson wasted the worlds best porn name/nickname on a wrestling and acting career. -i_run_from_problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Johnny Knoxville sounds like a porn name tbh. -RebTheMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Nikki Sixx. -GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Bella Thorne. -Responsible-Chard515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. January Jones. -BulkyOrder9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">25 Crazy Urban Legends That Turned Out to Be True</a><br>
 
@@ -341,65 +369,275 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 
 <span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Don’t Tell HR That You Came in Your Pants</a><br>
+## <a href="#linky9" id="linky8">43 Choice Randoms For Your Weekly Pleasure</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169438.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">20 Tips on Boob-Watching Etiquette From Women Themselves</a><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011152/87169319/etiquette-07.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> If they stare at my boobs while other people are talking—or worse, while I’m talking—that makes me uncomfortable. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011159/87169320/etiquette-06.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169372/etiquette-11.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> Fortunately, I’ve experienced glancing a lot more frequently than staring. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013434/87169369/etiquette-13.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015156/87169383/etiquette-16.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013453/87169370/etiquette-14.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When women wear graphic t shirts with writing on their chest I’m always hesitant to read it because I don’t want to look like a jackass. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169371/etiquette-12.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013505/87169373/etiquette-15.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015207/87169384/etiquette-18.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">I can tell when someone is reading my shirt versus just staring at my boobs. I don’t mind people stopping and taking a good look at the text, I know it’s hard to read, I’ll even turn and fully face them so they can read it properly. I don’t mind this at all, if I’m going to slap a message on my tits I’m doing it cause I want people to read the message. No biggie! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121114/87169272/etiquette-03.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015219/87169385/etiquette-19.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> In fact asking a woman “what does your shirt say” is a really good way to break the ice. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015227/87169386/etiquette-17.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011204/87169321/etiquette-08.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> I’ve seen multiple people mention feeling uncomfortable reading name tags. It’s always okay to read name tags! They’re literally there to be read. I’ve seen some women put their name tags on their upper sleeve if they felt uncomfortable with drawing attention to their left tit so in that instance you’ll know a woman doesn’t want you staring at her chest. If you’re really uncomfortable with reading a name tag that’s okay, just introduce yourself and then ask their name. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121201/87169276/etiquette-05.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011215/87169323/etiquette-10.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169455.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011211/87169322/etiquette-09.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. You glance, dont stare, its like looking into the sun </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121126/87169273/etiquette-01.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121148/87169275/etiquette-04.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169459.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169468.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169470.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169471.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169472.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169473.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169474.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">27 Pics You May Have to Look at Twice to Understand</a><br>
+
+<span style="font-size:4em">1. The shadows from the power lines make my van look like its been rear ended.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031658/87169424/87163267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Who doesnt own a floating pink shirt?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031637/87169422/87163262.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Well, just incase you needed another reason not to touch this prickly cactus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Not only does this cat do parkour, he is also immune to gravity.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031626/87169421/87163261.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Got a spooky surprise from the ice on my porch this morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This is not a room, its actually between two buildings (turn your head sideways).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031708/87169425/87163265.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. The fabled two headed doggo, much less fearsome than previously imagined.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031709/87169426/87163269.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. My friend posing with his catch looks like an amputee.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031647/87169423/87163264.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. This guy loved his dog so much he turned into one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031720/87169427/87163271.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Is it me or is the guy in the blue shirt in the back left floating?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031720/87169428/87168161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My grandmas bathroom feels like walking into a multiverse.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031731/87169429/87163274.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. This poor girl has flowers for legs, perhaps her friend who is blessed with two pairs of legs should donate them to her.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The devil can take on many forms...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A face appeared in this lotion.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When you wait too long to cook those eggs...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168734.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The light in my room looks like some sort of alien ship floating in the sky.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031615/87169420/87163263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. These flowers look like a tree full of monkeys.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My dog has a ghost on its chest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My dog disappears on me from time to time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A giant in the cloud.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My cat has a cat on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I thought there was a lonely dog sitting by the corner earlier.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. My front tire is so muddy in blends right in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My car showing its personality after some snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Run, Godzilla is coming!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168764.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
+
+<span style="font-size:4em">1. Midway games at carnivals or fairs purposely let people win early on in the day. This way people carry around the prizes and advertise them for the rest of the day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I was a deep sea diver for 10 years in the Gulf of Mexico. Huge oil spills happen and are covered up hundreds of times a year by every company. The entire industry is in on it. The bottom of the gulf is a disgusting garbage dump. Every boat dumps their trash into the gulf no one obeys the laws and the coast guard doesnt enforce s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I work in payroll. The number of payroll reports I see where people are conned out of their overtime is saddening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Record labels and producers sometimes use ghost vocalists for pop stars who really cant sing. Ghost vocalists are like singing impressionists who come into the studio and re-sing the song in the style of the popstar, but better. Often the popstars in question dont even know that their vocals have been replaced.
+
+Oh and, for the record (no pun), terrible singers cant be fixed with autotune, it is only used to polish slightly untidy vocals. This is why ghost vocalists are used.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Nearly every caller you hear on top 40 radio is either an intern or someone else close to the studio, everything is fake. Especially that war of the roses s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Not sure if this is an industry practise, but a very popular online retail company in my country has no in-house web designers or any other IT staff beyond your generic networking techs. Any time their website or backend systems need work they simply advertise a permanent position and give the job of sorting out whatever they need done as a trial for the candidate. Once completed, they then inform them that the position is no longer available and send them on their way. Theyve been doing this for years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I work in a shipping company. Im a merchant marine engineer working on mega container ships. Lot of unethical shipping companies. They dump a lot of garbage, oily sludge, waste, contaminated water, and oil out when sailing in international waters far away from the shore because its cheaper to do that than land the waste to correct shore reception facilities. There are only a few handful of players (I can count them on my fingertips) today who are actually executing business trades, while still keeping the carbon footprint and environment as one of their core policies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. How f**king often bodily fluids get on food, and I mean intentionally. Wash your damn produce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You use too much dawn dish soap. That stuff is ridiculously concentrated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Diamonds should be worth much less than people pay for them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Every programmer in the world occasionally writes a very bad code that sticks with the app/program forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Rocket science is like 90% plumbing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169121.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Customer service text chat can see what youre typing in the box before you hit send.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. A bottle of Windex is basically 95% water 4% ammonia, and 1% blue dye / fragrance. The most expensive part of the product is the bottle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Patient confidentiality just means your name isnt in the story, not that your story wont get told.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169124.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. The fresh chocolate chip cookie scent that can be smelled outside of the Magic Kingdom bakery is artificial. Its piped out there to draw you into the bakery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169125.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Customer service also have mute buttons, and they use it to laugh at you and/or call you names while youre busy complaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169126.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Your children tell us nearly everything about what goes on in your home.
+
+Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169127.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. When a movie trailer has shots that turn out to be missing from the actual movie, thats not because scenes were cut. Those shots never existed in the movie. The trailer didnt test as well as they wanted, so the studio inserted scenes specifically made for the trailer during additional photography.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. In sofa/couch commercials they use smaller actors/models to make the sofas/couches look bigger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169129.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. People die in hotel rooms all the time, and unless it’s public record, they’re going to clean and resell the room. That day, if possible. So better check the closet and under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Fast food workers dont wash their hands as often as they should and rarely call in sick even if they are sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Im a visa agent. I’ve seen people be refused because the manager didn’t like their face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169132.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">Vogue Editor Anna Wintour Roasted For Her Overpriced "Go-to Lunch"</a><br>
+
+<span style="font-size:4em">1. If you havent seen the movie The Devil Wears Prada starring Anne Hathaway and Meryl Streep, we suggest you give it a watch. Its not a bad movie, and it does a pretty good job of painting Anna Wintour, the Editor-in-Cheif of Vogue as she really is, a huge b*tch. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013552/87168524/anna-wintour.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. And thanks to this tweet by Australian morning show, The Today Show, now the whole world knows what Anna prefers to eat for lunch. For the small price of $77 you too can eat like the worlds biggest fashionista. The only problem, is were broke as sh*t. What seems like an innocent enough tweet, started a full-on pile on. But we have to ask, would you try this?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013347/87168522/anna-wintour-lunch1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. The jokes were quick and honestly, I love rich people over paying for stuff that would cost them a fraction of the price from any grocery store. It really is the cherry on the cake for me. Say what you will, and dont pocket watch, but heck, let these rich pricks waste their millions on lunch, I have no problem with that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013255/87168514/anna-wintour-lunch10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. However, the one gripe I have is you cant call that a Caprese salad. You just cant. Its illogical and wrong. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013325/87168518/anna-wintour-lunch3.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013306/87168515/anna-wintour-lunch8.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013335/87168520/anna-wintour-lunch5.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013339/87168521/anna-wintour-lunch2.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013314/87168516/anna-wintour-lunch7.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013317/87168517/anna-wintour-lunch4.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013243/87168513/anna-wintour-lunch9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/013328/87168519/anna-wintour-lunch6.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">23 Restaurants That Failed at Presentation</a><br>
+
+<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
 
 <span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
 
@@ -457,7 +695,7 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">31 Dumb Jokes For People Who Get Humor</a><br>
+## <a href="#linky15" id="linky14">31 Dumb Jokes For People Who Get Humor</a><br>
 
 <span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
 
@@ -521,55 +759,53 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">23 Restaurants That Failed at Presentation</a><br>
+## <a href="#linky16" id="linky15">22 Fire Tweets From the Sick Minds of Twitter </a><br>
 
-<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">27 Dank Memes We Stole From the Crypt Keeper </a><br>
+## <a href="#linky17" id="linky16">27 Dank Memes We Stole From the Crypt Keeper </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167426.jpg" style="width:100%"><br>
 
@@ -624,102 +860,4 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 <span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167451.png" style="width:100%"><br>
 
 <span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87167452.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">22 Fire Tweets From the Sick Minds of Twitter </a><br>
-
-<span style="font-size:4em">1. My lips they are in pain. Did you know chapstick is a conspiracy to make you buy more chapstick? It doesnt make your lips moist,  but in fact does the opposite. The more you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162127.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This image speaks to my soul. The forbidden cube of Chicken Chow Mein.  Weve heard tell of its legend, but weve never seen it up close before. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162126.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This dude is going through it right now. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162158.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Oh my god, who is excited? No one? Thats what we thought. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Okay. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I accept. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Lmao. She always looks like a deer in headlights. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Aww isnt that wholesome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Trust me, they wont notice a thing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Its true, this is what girl poop looks like. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162151.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">25 Celebrity Names That Are Better Fit for Porn Stars</a><br>
-
-<span style="font-size:4em">1. Hugh Jackman. Always thought it was weird people referred to him as a huge jacked man and not his name. -Shagwagbag</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Rod Stewart. Pretty much anyone named Rod. -percygreen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Alan Cumming. -ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Olivia Wilde. And thats actually an improvement on her original name, Olivia Cockburn. -GeckoV/-Rudy69 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Dick Van Dyke. -rudymaxa</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. In a similar vein there used to be a driver in V8 Supercars called Dick Johnson. 14 year old me would always get a giggle out of that one. -gristc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hes not a very major celebrity, but Id argue that Dick Pound ranks up there. -CupcakeValkyrie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Rod Fitzwell. I don’t know if it’s his real name or a stage name. Hes a radio station personality in Norfolk. -MySTfied</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Magic Johnson. -Ron_Fuckin_Swanson</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Lists pretty much every wrestler there is. Just a few off the top of my head: Rocky Johnson, Big E, Macho Man, Alexa Bliss, Kelly Kelly, Summer Rae, Dolph Ziggler, X-Pac. -FetchedOffTheWall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Vince Vaughn just sounds porny to me. -Alternative-Two-1457</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Courtney Cox. -thebranimator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Don Glover. Or slightly miss-spaced…DonG lover. -dadlifeinterneting</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Michael Moorcock. -paulfromatlanta</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I turned on the TV one day a few years ago as I went into the kitchen to make breakfast and heard Im Hanna Storm and this is Sage Steele.... I thought is this a goddamn porno? I thought I put on ESPN. -Gonzostewie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Sydney Sweeney. No way thats not a porn star. -Slutyputty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lucy Lawless. -DisgruntledMax</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. That stuntman, was he Kurt Russells stuntman? He has got the most outrageous name ever, Dick Warlock. -OldMork</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. You cant say Randy Johnson in this context without also giving his nickname: The Big Unit. -humphrey_the_camel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Dwayne The Rock Johnson wasted the worlds best porn name/nickname on a wrestling and acting career. -i_run_from_problems</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Johnny Knoxville sounds like a porn name tbh. -RebTheMan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Nikki Sixx. -GrumpyCatStevens</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Bella Thorne. -Responsible-Chard515</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. January Jones. -BulkyOrder9</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Peter Bonerz. -dsdsds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167849.jpg" style="width:100%"><br>
 
