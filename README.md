@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/18/2022-00:11:31
+Last updated: 05/18/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">22 "Dirty Pics" That Are Actually Pretty Innocent </a><br>
 
@@ -47,7 +47,98 @@ Last updated: 05/18/2022-00:11:31
 
 <span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">24 Disturbing Facts That Ruined Our Day</a><br>
+## <a href="#linky3" id="linky2">25 Crazy Urban Legends That Turned Out to Be True</a><br>
+
+<span style="font-size:4em">1. Serial murderer was picking off indigenous women from the crime ridden area of the city (Downtown Eastside Vancouver) and having their remains disposed of at a pig farm in another suburb - Robert William Willy Pickton - rayrayrayray
+
+ https://www.reddit.com/r/AskReddit/comments/ugrb3n/serious_what_is_an_urban_legend_in_your_area_that/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167738.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Not totally true but there was a house in the neighborhood all the kids called the murder house. Usual mean old man stories. If you go on his lawn hell drag you to his basement and murder you. Turns out he was a sex offender with a pretty serious rap and the parents encouraged the story as it made kids stay away without talking about pedophilia. - Niznack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Catman of Greenock - Scottish town 30 mins from Glasgow where I grew up. Kids would all bullshit about a terrifying sounding cryptid - a bearded man with pitch black skin who prowled around at night catching rats and chasing kids who had ventured into some disused underground freight tunnels - part of a coming of age ritual loads of us went through. It was all bravado and made up stories and the only people who I ever heard claim to have seen him were kids that were ages with me and from a part of town I wasnt too local to so it seemed like a big in-joke between some class mates that had spread. In my late teens I met my now wife and eventually met her brother in law who was about 10 years older than us, so approaching 30. I couldnt believe it when he brought up the Catman and swore hed seen him one night when he himself was a teenager and was terrified. I still thought it was all a long con. Then came camera phones and what do you know - plenty of photographs of him taken by intrepid nighttime adventurers who coaxed him out with cartons of chips and cans of Irn Bru, most of which are taken at or around the exact bus depot the brother-in-law saw him all that time ago. (The alleged origin story of Catman as an AWOL Russian sailor are totally unconfirmed. Rumours are he died during lockdown) - Wrathalanche</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I used to live in a very small town in West Virginia, and there was a local story going around about a giant turkey.
+Some hunter swore he saw a turkey that stood 5ft tall, and it had talons that could easily kill a man. So that was the local rumor for a while, theres a giant turkey out there somewhere. Some said he was crazy, others said they saw it too, all kinds of stories going around.
+ 
+Turns out it was an emu. Somebody else saw the thing, and they knew what an emu is.
+Some people who raise goats and chickens keep an emu with their herd, emus are territorial and protective of what they perceive to be their group. So they run off predators like foxes and coyotes, and people for that matter.
+Most likely it escaped, and nobody claimed it for some reason. - Catshit-Dogfart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. That theres a giant man called Purple Aki that approaches people and asks to squeeze their muscles. - DefinitelynotDanger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. It wasnt a specific urban legend about my hometown so much as a general urban legend. The legend is derived from late Medieval legends where people journeying through a forest and find a forgotten village the forest grew up around. The only surviving building is a stone church where the last of the villagers gathered before the Black Plague wiped them out 100 years earlier. The travelers find their skeletons still seated around the altar.
+In the case of my town, were surrounded by steep high hills. Hikers found a car that ran off the road with a womans skeleton in the drivers seat. She was reported missing in the 1970s but with her car gone and no internet or cell phones, authorities concluded she got simply drove away. Which she kind of did but she ran off the road, crashed in the deep underbrush, and nobody found her til years later.
+There are similar stories in other places but mostly cars that crashed into ponds and came out looking like a what a car submerged for 20+ years look like. Her car and her personal effects were mostly intact - basically a 1970s time capsule. - Eric_da_MAJ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Green Man, Apparently he was a really sweet misunderstood man who was horribly disfigured when he was a kid. He was fond of taking nighttime walks. The pictures of him can give you an idea of why he could be frightening. - Extrasherman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. That one of my neighbors was a pedophile. So in my neighborhood the older kids always said the guy was creepy/liked kids. There were several days when he gave everyone ice cream (he drove a tractor trailer for a major ice cream company.) A few years later we got home from school and there were all sorts of FBI/police vehicles outside of his house. Turns out he had been busted in an FBI sting. - TreesOftheEast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. That my hometown had its own monk. People were apparently seeing a Buddhist monk around town which would be incredibly unusual where I’m from. It was true though, his name was Paul and he had converted and completely dedicated his life to Buddhism. Very nice man. - _megnn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. There was a leader of the local church youth group who also an amateur photographer. Some kid in my class didnt like him and started a rumor that he was a pedophile. It got so big that parents called for an investigation by the school and they found that he actually was sexually abusing his kids. - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Diaper man. Everyone in Elementary school said not to go into the woods because diaper man was back there. A kid even claimed he saw diaper man and we thought he was full of shit. Many years later upon a visit back home I met up with some old friends and we decided to go have a smoke in the woods. We first noticed there were adult diapers tossed into the woods about 5 to 10 feet off the trail. Lots of them. Then, we look up and in the distance. Yep. A full grown adult man in an adult diaper. Diaper man. As soon as he saw us he ran. This was about 20 years ago. I recently visited family again. Went for a jog in those woods. There were adult diapers. Everywhere. And, there again was diaper man. This time as a fit adult on a run, I chased after him. He is a mentally handicapped man who lives in a half way home in the adjacent neighborhood. I guess he has been going into the woods to get rid of his diapers for like 40+ years. - YaGottaBeaDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. There was this giant mansion at the top of a hill near our place that everyone claimed was where the freemasons sent their old, crazy people to die so that their secrets couldnt get out.
+Allegedly, there were wild animals all over the place and it was dangerous to try to go there.
+Place used to terrify me.
+Yeah...it was the masonic retirement home. It has a nature park inside of it. Its in union city, california. - FutureSoldier88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Im not Japanese but when they found out that North Korean submarines really had kidnapped kids off the beach, then taken them back North Korea to be raised as spies, it would have blown their minds even more than it did mine: https://www.bbc.com/news/world-asia-55651578 - shaggers_jr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. As the water dries up, dead bodies will be found in Lake Mead.
+[8NewsNow]
+(https://www.8newsnow.com/i-team/i-team-body-found-in-barrel-in-lake-mead-may-date-back-to-1980s-more-likely-to-appear-as-water-recedes-las-vegas-police-say/) - stepenyaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. When I was a kid there was a road that ended in a T. but at the intersection. if you drove straight, youd go down a steep gravel/dirt slope there was a small dirt landing and then watter. It was used by locals to launch canoes and small boats into a very large river. Later, The city put up a bended sheet metal railing barrier. One simple rail. It just always was closed except to kids.
+in like grade 6 I saw the barrier was blown through and we all talked and all the kids said there was a car in the water. Kidss didnt play there much as someone was dead in the water - everybody knew. Barrier was fixed, nothing came about it for years.
+When I was like 19 they were shocked to report that a car and remains were found there. But the big question the media had was how did the car crash into the water when the barrier was unaffected.
+Thought to myself...after all this time nobody asked us kids - Wayelder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Where I grew up there was a scary old house from either the 50s or 60s across from the church. It was burned, covered in ivy, and didn’t match the giant apartments surrounding it. To access one of the elementary schools and one of the middle schools in the area, you’d have to walk past this scary ass house and you’d see kids avoiding that side of the street simply because they were so scared of the house. Drug addicts wouldn’t even camp there, homeless people wouldn’t take shelter in it even during hurricanes. The rumor was that the house had an entire family get butchered by an insane asylum escapee and that the house has been abandoned since. This was supported by the fact the middle school I mentioned used to be a hospital many claimed was for mental health.
+Well, in 2012 that house was bought and eventually torn down to build luxury apartments but no work has ever been done. It’s now an eerie plot of land. So I decided to do some research and, turned out, the schoolyard stories were sort of true. The house was owned by a family who rented out some of the rooms while still living there. The teenaged daughter (Lillian Mojica) was raped and murdered in the basement by one of the tenants. - bzzibee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I was driving down a west Virginia back road in the middle of the night when I came around a curve to an injured dog standing in the middle of the road. I slammed on my brakes and missed him by a hair. I got out to find him because he was limping real bad and I was hoping hed have a collar. He vanished into thin air...
+Like six months later I was going down the YouTube rabbit hole and watched a video about the most haunted places in west Virginia and they talked about this road that is haunted by a ghost of a limping dog that lures people into the night... SAME. FUCKING. ROAD. They said the route name and I almost threw my laptop across the room.
+Im not superstitious... But now? ...Im a little stitious. - Conscious_Camel4830</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I guess less so an urban legend and more so a rumor: When I was in 6th grade some kids made a joke that the choir teacher (who taught at both middle and high school) beat his wife, and it spread like wildfire even though everyone knew it wasn’t true. I mean, it couldn’t have possibly been true. He was a scraggly man in his early thirties, with a daughter that is constantly sick due to her chemotherapy, since she was diagnosed with Leukemia when I was in 8th grade. He was always gone every once in awhile with trips to mayo and the cities for her treatments. He was a very nice man that couldn’t possibly hurt a fly.
+This all changed however, when just two years ago in my freshman year of high school he got arrested for reportedly assaulting his pregnant wife and seven year old daughter. He was arrested and at his trial he plead guilty, but his case was dropped “due to covid”. He was never fired, and still works as the choir director. To this day I find him a very creepy man, he still talks about his wife and daughter but it’s clear that everyone knows exactly who he is.
+At this point our entire high school choir is about five people big, for a school of 2,200 students just because people can’t stand being within 10 feet of him. - glowstick-of-destiny</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. For decades there were rumors about a “big cave” under a local high school where kids would go down and skip class and smoke pot. Well in 2011 they discovered water run off caverns under that same school so the kids weren’t lying. Nothing weird really bc my state is known for having a lot of caves but yeah kinda ruined everyone hangout spot lmao. - mellowpotions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. There were rumors of a inbred mutant enclave in the woods north of nyc in the Hudson valley that dare takers would take a drive up to. The mutant part isn’t real and the inbred part is questionable but Oniontown is very much real and documented. - Tinaszombie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There used to be a massive urban legend about a panther living in the mountains near where I live even though no big cats are native to my country and always got attributed to blurry photos etc. Turns out a guy had an illegal collection of exotic animals and released them when he got wind that authorities were going to do an inspection of his property. - hopelesseelsfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. in my home town, there was an old bridge built in the 20s. It was smallish, just going over a small stream between where two small towns meet. There was a rumor that there was a treasure dropped into the cement when it was wet. There was also a rumor several builders fell into the cement and died during the construction. There was also a rumor that a dead body was thrown into it by the mob.
+They demolished the bridge a few years back, finding two skeletons and a briefcase of money (I think a few thousand dollars). If I remember correctly, the two skeletons were from workers of the bridge (something that was reported and archived in a newspaper back in the 1920s and anyone could have actually researched if they wanted to). I have no idea how the briefcase of money got in there, and I dont think anyone ever came up with an answer for it. - AquanautOrange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. My friend lived in central New Jersey and used to tell us about the ‘prison farm’ where inmates were used for hard labor and the cows had plexiglass windows bolted to their sides so you could see them digest their food.Turns out, it’s all true - Macronaut</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The rumour was There was a local homless/ mentally unwell person, that was actually quite rich and owned a mansion. Turns out there was some truth to that. Once his issues became apparent his mother set out with a plan and largely worked herself to death to buy a house and set up a bunch of trusts and carers for him and basically train him to look after himself. Thing is his mother apparently never really considered what he would actually do all day never set him up with a role or job. He wore scruffy clothes because he liked those clothes, and was always hanging around the market Square because the library was there and the market traders were always friendly and chatty. We learned all this when one of my friends was hired on as a carer, she got him a role at the library and got him a small part time job at a charity shop both of which he seemed to deeply enjoy. - Lostboxoangst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. local, corrupt mob lawyers wife disappeared. rumors swirled that she either ran off with lover or he had her killed, possibly by the towns mob connected police chief but with no evidence to the rumors. a few years later, the wifes car is found in a canal with her body in the trunk with a crushed skull and shot. the chief and lawyer went to prison on conspiracy to murder charges. the story was later made into a tv movie called Deadly Matrimony - 20RegalGS15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167762.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">These German Burger King Items Are Freaking Americans Out </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">24 Disturbing Facts That Ruined Our Day</a><br>
 
 <span style="font-size:4em">1. Flies dont have teeth. So, when they land on your sandwich and want to eat some, they barf up the contents of their stomach (often containing another animals shit) so the digestive enzymes can get on the food and then they eat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167852.jpg" style="width:100%"><br>
 
@@ -97,65 +188,7 @@ Last updated: 05/18/2022-00:11:31
 
 <span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
-
-<span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
-
-Is the house in a nice neighborhood? Is it well kept? If so I figured they had nice stuff.
-
-Next question: Is there an easy escape route? Woods in the backyard were excellent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A recent study showed that burglars come back to the same houses quite often. They do this because of a number of motives.
-
-1: They want to take things they, for some reason, couldn’t take the first time.
-
-2: They’re kinda familiar with the house.
-
-3: It’s guaranteed that the people they robbed replaced the stuff they stole the first time, often these replacements are of better quality than the original.
-
-So after you get raided take good security measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Don’t leave empty boxes from high-end electronics on the curb outside your house. People tend to do this right after the holidays. Put that shit in your car and throw it out somewhere else. Any burglar casing your neighborhood will see that shit and know without even coming near your house and looking suspicious that you just got a bunch of valuable stuff just ready to be taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Let me give you the low-down on dogs: they aren’t protection or security.
-
-A dog can be easily tamed usually. Act friendly, give it a few rubs, and they’ll happily follow you around. If that doesn’t work, after my first run-in with an annoying dog (a small, yappy dog), I started carrying rawhide sticks with me. That stopped them very fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I’m not a burglar, but I worked for the largest security company in this country for half a decade.
-
-Burglar alarms do not deter burglars. They just alert you that you have been burglarized. Most of the time the police will take very little action in response due to the fact that 98% of burglar alarm activation constitutes false alarms.
-
-The sign that comes with the alarm though? That thing is worth more than the alarm as far as deterring burglars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Double pane windows. Bitch to smash with anything short of a sledgehammer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Those family car stickers certainly tell me how easy a home invasion will be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. You’d be surprised how often people get robbed by people they know or people connected to people they know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. When I was young and dumb I would boost rims off cars, cause you could make quick money and it was less than a felony. The number one deterrent hands down……lights. If a place is lit up like a Christmas tree on the outside of a house you stay clear cause it means anyone can see you and see you clearly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Even if your house is well-locked, if your shed isn’t, I likely have access to a plethora of tools I can use to gain access. Don’t help the burglar. Lock your shed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I use to do door-to-door sales for ADT… people would let me in the house and just tell me where all the important stuff was before even verifying I was legit….. don’t do that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I stuck with commercial burglary, residential burglary carried a risk of getting hit with a home invasion charge which increases your sentence if convicted. It helps to hit the places that hire felons (fast food joints, video stores, etc.) because the cops are gonna waste a lot of time looking into the staff members who have a criminal history. The closer they’re looking at them, the better off I am.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A good burglar will rob you when it’s raining. The rain masks sound when you’re breaking into a garage. I had my garage broken in during torrential rain, all tools stolen, didn’t hear a thing and neither did my dog that sleeps outside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Had my house burglarized by a so-called friend. He missed by far the most valuable thing. it’s just a safe sitting on the laundry room floor. He missed it because I’m a scumbag and had it covered with a mountain of dirty clothes and towels. So not being tidy saved me upwards of 35k.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Fake rocks are a dead giveaway. Sock drawers are cliché. If you have a small safe that’s not bolted down, we are taking that thing. We all have a ‘safe guy.’ Our goal is to get in and out pretty quickly. If you hide something in a random box all the way up in your attic, it’s probably safe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. For the college kids that might read this, don’t keep your textbooks in your car. On the day of my finals, I had about 6 textbooks I was gonna sell after my finals, I left the books in my car while I took my tests. Came back to find someone broke my window out to steal the textbooks. Cop told me that it’s very common and unlikely they will catch the guy, so I was out ~$700, which was huge as a college student.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I’ve seen people make false outlets for hiding valuables like cash and jewelry. Just an idea, a burglar would have to be at your home for a long time to start checking outlets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Don’t post anything on social media until you have gotten back home. I can’t tell you how many neighbors and family have gotten robbed because of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">31 Dumb Jokes For People Who Get Humor</a><br>
+## <a href="#linky6" id="linky5">31 Dumb Jokes For People Who Get Humor</a><br>
 
 <span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
 
@@ -219,7 +252,55 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">40 Fun Photos to Enjoy Irresponsibly</a><br>
+## <a href="#linky7" id="linky6">23 Restaurants That Failed at Presentation</a><br>
+
+<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">40 Fun Photos to Enjoy Irresponsibly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
 
@@ -299,174 +380,7 @@ The sign that comes with the alarm though? That thing is worth more than the ala
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">23 Restaurants That Failed at Presentation</a><br>
-
-<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">25 Crazy Urban Legends That Turned Out to Be True</a><br>
-
-<span style="font-size:4em">1. Serial murderer was picking off indigenous women from the crime ridden area of the city (Downtown Eastside Vancouver) and having their remains disposed of at a pig farm in another suburb - Robert William Willy Pickton - rayrayrayray
-
- https://www.reddit.com/r/AskReddit/comments/ugrb3n/serious_what_is_an_urban_legend_in_your_area_that/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167738.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Not totally true but there was a house in the neighborhood all the kids called the murder house. Usual mean old man stories. If you go on his lawn hell drag you to his basement and murder you. Turns out he was a sex offender with a pretty serious rap and the parents encouraged the story as it made kids stay away without talking about pedophilia. - Niznack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Catman of Greenock - Scottish town 30 mins from Glasgow where I grew up. Kids would all bullshit about a terrifying sounding cryptid - a bearded man with pitch black skin who prowled around at night catching rats and chasing kids who had ventured into some disused underground freight tunnels - part of a coming of age ritual loads of us went through. It was all bravado and made up stories and the only people who I ever heard claim to have seen him were kids that were ages with me and from a part of town I wasnt too local to so it seemed like a big in-joke between some class mates that had spread. In my late teens I met my now wife and eventually met her brother in law who was about 10 years older than us, so approaching 30. I couldnt believe it when he brought up the Catman and swore hed seen him one night when he himself was a teenager and was terrified. I still thought it was all a long con. Then came camera phones and what do you know - plenty of photographs of him taken by intrepid nighttime adventurers who coaxed him out with cartons of chips and cans of Irn Bru, most of which are taken at or around the exact bus depot the brother-in-law saw him all that time ago. (The alleged origin story of Catman as an AWOL Russian sailor are totally unconfirmed. Rumours are he died during lockdown) - Wrathalanche</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I used to live in a very small town in West Virginia, and there was a local story going around about a giant turkey.
-Some hunter swore he saw a turkey that stood 5ft tall, and it had talons that could easily kill a man. So that was the local rumor for a while, theres a giant turkey out there somewhere. Some said he was crazy, others said they saw it too, all kinds of stories going around.
- 
-Turns out it was an emu. Somebody else saw the thing, and they knew what an emu is.
-Some people who raise goats and chickens keep an emu with their herd, emus are territorial and protective of what they perceive to be their group. So they run off predators like foxes and coyotes, and people for that matter.
-Most likely it escaped, and nobody claimed it for some reason. - Catshit-Dogfart</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. That theres a giant man called Purple Aki that approaches people and asks to squeeze their muscles. - DefinitelynotDanger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. It wasnt a specific urban legend about my hometown so much as a general urban legend. The legend is derived from late Medieval legends where people journeying through a forest and find a forgotten village the forest grew up around. The only surviving building is a stone church where the last of the villagers gathered before the Black Plague wiped them out 100 years earlier. The travelers find their skeletons still seated around the altar.
-In the case of my town, were surrounded by steep high hills. Hikers found a car that ran off the road with a womans skeleton in the drivers seat. She was reported missing in the 1970s but with her car gone and no internet or cell phones, authorities concluded she got simply drove away. Which she kind of did but she ran off the road, crashed in the deep underbrush, and nobody found her til years later.
-There are similar stories in other places but mostly cars that crashed into ponds and came out looking like a what a car submerged for 20+ years look like. Her car and her personal effects were mostly intact - basically a 1970s time capsule. - Eric_da_MAJ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The Green Man, Apparently he was a really sweet misunderstood man who was horribly disfigured when he was a kid. He was fond of taking nighttime walks. The pictures of him can give you an idea of why he could be frightening. - Extrasherman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. That one of my neighbors was a pedophile. So in my neighborhood the older kids always said the guy was creepy/liked kids. There were several days when he gave everyone ice cream (he drove a tractor trailer for a major ice cream company.) A few years later we got home from school and there were all sorts of FBI/police vehicles outside of his house. Turns out he had been busted in an FBI sting. - TreesOftheEast</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. That my hometown had its own monk. People were apparently seeing a Buddhist monk around town which would be incredibly unusual where I’m from. It was true though, his name was Paul and he had converted and completely dedicated his life to Buddhism. Very nice man. - _megnn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. There was a leader of the local church youth group who also an amateur photographer. Some kid in my class didnt like him and started a rumor that he was a pedophile. It got so big that parents called for an investigation by the school and they found that he actually was sexually abusing his kids. - irrelevant_usernam3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Diaper man. Everyone in Elementary school said not to go into the woods because diaper man was back there. A kid even claimed he saw diaper man and we thought he was full of shit. Many years later upon a visit back home I met up with some old friends and we decided to go have a smoke in the woods. We first noticed there were adult diapers tossed into the woods about 5 to 10 feet off the trail. Lots of them. Then, we look up and in the distance. Yep. A full grown adult man in an adult diaper. Diaper man. As soon as he saw us he ran. This was about 20 years ago. I recently visited family again. Went for a jog in those woods. There were adult diapers. Everywhere. And, there again was diaper man. This time as a fit adult on a run, I chased after him. He is a mentally handicapped man who lives in a half way home in the adjacent neighborhood. I guess he has been going into the woods to get rid of his diapers for like 40+ years. - YaGottaBeaDude</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. There was this giant mansion at the top of a hill near our place that everyone claimed was where the freemasons sent their old, crazy people to die so that their secrets couldnt get out.
-Allegedly, there were wild animals all over the place and it was dangerous to try to go there.
-Place used to terrify me.
-Yeah...it was the masonic retirement home. It has a nature park inside of it. Its in union city, california. - FutureSoldier88</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Im not Japanese but when they found out that North Korean submarines really had kidnapped kids off the beach, then taken them back North Korea to be raised as spies, it would have blown their minds even more than it did mine: https://www.bbc.com/news/world-asia-55651578 - shaggers_jr</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. As the water dries up, dead bodies will be found in Lake Mead.
-[8NewsNow]
-(https://www.8newsnow.com/i-team/i-team-body-found-in-barrel-in-lake-mead-may-date-back-to-1980s-more-likely-to-appear-as-water-recedes-las-vegas-police-say/) - stepenyaki</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. When I was a kid there was a road that ended in a T. but at the intersection. if you drove straight, youd go down a steep gravel/dirt slope there was a small dirt landing and then watter. It was used by locals to launch canoes and small boats into a very large river. Later, The city put up a bended sheet metal railing barrier. One simple rail. It just always was closed except to kids.
-in like grade 6 I saw the barrier was blown through and we all talked and all the kids said there was a car in the water. Kidss didnt play there much as someone was dead in the water - everybody knew. Barrier was fixed, nothing came about it for years.
-When I was like 19 they were shocked to report that a car and remains were found there. But the big question the media had was how did the car crash into the water when the barrier was unaffected.
-Thought to myself...after all this time nobody asked us kids - Wayelder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Where I grew up there was a scary old house from either the 50s or 60s across from the church. It was burned, covered in ivy, and didn’t match the giant apartments surrounding it. To access one of the elementary schools and one of the middle schools in the area, you’d have to walk past this scary ass house and you’d see kids avoiding that side of the street simply because they were so scared of the house. Drug addicts wouldn’t even camp there, homeless people wouldn’t take shelter in it even during hurricanes. The rumor was that the house had an entire family get butchered by an insane asylum escapee and that the house has been abandoned since. This was supported by the fact the middle school I mentioned used to be a hospital many claimed was for mental health.
-Well, in 2012 that house was bought and eventually torn down to build luxury apartments but no work has ever been done. It’s now an eerie plot of land. So I decided to do some research and, turned out, the schoolyard stories were sort of true. The house was owned by a family who rented out some of the rooms while still living there. The teenaged daughter (Lillian Mojica) was raped and murdered in the basement by one of the tenants. - bzzibee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I was driving down a west Virginia back road in the middle of the night when I came around a curve to an injured dog standing in the middle of the road. I slammed on my brakes and missed him by a hair. I got out to find him because he was limping real bad and I was hoping hed have a collar. He vanished into thin air...
-Like six months later I was going down the YouTube rabbit hole and watched a video about the most haunted places in west Virginia and they talked about this road that is haunted by a ghost of a limping dog that lures people into the night... SAME. FUCKING. ROAD. They said the route name and I almost threw my laptop across the room.
-Im not superstitious... But now? ...Im a little stitious. - Conscious_Camel4830</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I guess less so an urban legend and more so a rumor: When I was in 6th grade some kids made a joke that the choir teacher (who taught at both middle and high school) beat his wife, and it spread like wildfire even though everyone knew it wasn’t true. I mean, it couldn’t have possibly been true. He was a scraggly man in his early thirties, with a daughter that is constantly sick due to her chemotherapy, since she was diagnosed with Leukemia when I was in 8th grade. He was always gone every once in awhile with trips to mayo and the cities for her treatments. He was a very nice man that couldn’t possibly hurt a fly.
-This all changed however, when just two years ago in my freshman year of high school he got arrested for reportedly assaulting his pregnant wife and seven year old daughter. He was arrested and at his trial he plead guilty, but his case was dropped “due to covid”. He was never fired, and still works as the choir director. To this day I find him a very creepy man, he still talks about his wife and daughter but it’s clear that everyone knows exactly who he is.
-At this point our entire high school choir is about five people big, for a school of 2,200 students just because people can’t stand being within 10 feet of him. - glowstick-of-destiny</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. For decades there were rumors about a “big cave” under a local high school where kids would go down and skip class and smoke pot. Well in 2011 they discovered water run off caverns under that same school so the kids weren’t lying. Nothing weird really bc my state is known for having a lot of caves but yeah kinda ruined everyone hangout spot lmao. - mellowpotions</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. There were rumors of a inbred mutant enclave in the woods north of nyc in the Hudson valley that dare takers would take a drive up to. The mutant part isn’t real and the inbred part is questionable but Oniontown is very much real and documented. - Tinaszombie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There used to be a massive urban legend about a panther living in the mountains near where I live even though no big cats are native to my country and always got attributed to blurry photos etc. Turns out a guy had an illegal collection of exotic animals and released them when he got wind that authorities were going to do an inspection of his property. - hopelesseelsfan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. in my home town, there was an old bridge built in the 20s. It was smallish, just going over a small stream between where two small towns meet. There was a rumor that there was a treasure dropped into the cement when it was wet. There was also a rumor several builders fell into the cement and died during the construction. There was also a rumor that a dead body was thrown into it by the mob.
-They demolished the bridge a few years back, finding two skeletons and a briefcase of money (I think a few thousand dollars). If I remember correctly, the two skeletons were from workers of the bridge (something that was reported and archived in a newspaper back in the 1920s and anyone could have actually researched if they wanted to). I have no idea how the briefcase of money got in there, and I dont think anyone ever came up with an answer for it. - AquanautOrange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. My friend lived in central New Jersey and used to tell us about the ‘prison farm’ where inmates were used for hard labor and the cows had plexiglass windows bolted to their sides so you could see them digest their food.Turns out, it’s all true - Macronaut</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. The rumour was There was a local homless/ mentally unwell person, that was actually quite rich and owned a mansion. Turns out there was some truth to that. Once his issues became apparent his mother set out with a plan and largely worked herself to death to buy a house and set up a bunch of trusts and carers for him and basically train him to look after himself. Thing is his mother apparently never really considered what he would actually do all day never set him up with a role or job. He wore scruffy clothes because he liked those clothes, and was always hanging around the market Square because the library was there and the market traders were always friendly and chatty. We learned all this when one of my friends was hired on as a carer, she got him a role at the library and got him a small part time job at a charity shop both of which he seemed to deeply enjoy. - Lostboxoangst</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. local, corrupt mob lawyers wife disappeared. rumors swirled that she either ran off with lover or he had her killed, possibly by the towns mob connected police chief but with no evidence to the rumors. a few years later, the wifes car is found in a canal with her body in the trunk with a crushed skull and shot. the chief and lawyer went to prison on conspiracy to murder charges. the story was later made into a tv movie called Deadly Matrimony - 20RegalGS15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167762.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">21 People Having a Rough Day</a><br>
-
-<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+## <a href="#linky9" id="linky8">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
 
 <span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
 
@@ -522,65 +436,65 @@ As your heartbeat slows to maintain your body heat, your lungs breathe more slow
 <span style="font-size:4em">
 Its meant to redirect negative self admonishment into a drive to grow and learn. And apparently, its sinking in because she will say something like Ugh, I cant make it up this hill! while were out bike riding and then catch me looking at her, give a big eye roll and go ...yet! in the exact tone you think a teenage girl would use. Then she ends up sometimes just rage-succeeding to prove the point, its great. Shes going to be at least 3 times better than me, low as that bar may be. -u/Zambeeni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168634.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
+## <a href="#linky10" id="linky9">19 Ex-Thieves Teach You How to Avoid Getting Robbed</a><br>
 
-<span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I would check out a house several times over two days. If there was no sign of movement — no lights coming on or off, no curtains moved, newspapers left on the driveway — I was interested.
+
+Is the house in a nice neighborhood? Is it well kept? If so I figured they had nice stuff.
+
+Next question: Is there an easy escape route? Woods in the backyard were excellent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166948.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011152/87169319/etiquette-07.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A recent study showed that burglars come back to the same houses quite often. They do this because of a number of motives.
+
+1: They want to take things they, for some reason, couldn’t take the first time.
+
+2: They’re kinda familiar with the house.
+
+3: It’s guaranteed that the people they robbed replaced the stuff they stole the first time, often these replacements are of better quality than the original.
+
+So after you get raided take good security measures.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166949.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> If they stare at my boobs while other people are talking—or worse, while I’m talking—that makes me uncomfortable. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011159/87169320/etiquette-06.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Don’t leave empty boxes from high-end electronics on the curb outside your house. People tend to do this right after the holidays. Put that shit in your car and throw it out somewhere else. Any burglar casing your neighborhood will see that shit and know without even coming near your house and looking suspicious that you just got a bunch of valuable stuff just ready to be taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166950.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169372/etiquette-11.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Let me give you the low-down on dogs: they aren’t protection or security.
+
+A dog can be easily tamed usually. Act friendly, give it a few rubs, and they’ll happily follow you around. If that doesn’t work, after my first run-in with an annoying dog (a small, yappy dog), I started carrying rawhide sticks with me. That stopped them very fast.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166951.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> Fortunately, I’ve experienced glancing a lot more frequently than staring. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013434/87169369/etiquette-13.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I’m not a burglar, but I worked for the largest security company in this country for half a decade.
+
+Burglar alarms do not deter burglars. They just alert you that you have been burglarized. Most of the time the police will take very little action in response due to the fact that 98% of burglar alarm activation constitutes false alarms.
+
+The sign that comes with the alarm though? That thing is worth more than the alarm as far as deterring burglars.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166947.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015156/87169383/etiquette-16.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Double pane windows. Bitch to smash with anything short of a sledgehammer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166952.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013453/87169370/etiquette-14.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Those family car stickers certainly tell me how easy a home invasion will be.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166953.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. When women wear graphic t shirts with writing on their chest I’m always hesitant to read it because I don’t want to look like a jackass. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169371/etiquette-12.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. You’d be surprised how often people get robbed by people they know or people connected to people they know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166954.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013505/87169373/etiquette-15.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. When I was young and dumb I would boost rims off cars, cause you could make quick money and it was less than a felony. The number one deterrent hands down……lights. If a place is lit up like a Christmas tree on the outside of a house you stay clear cause it means anyone can see you and see you clearly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166955.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015207/87169384/etiquette-18.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Even if your house is well-locked, if your shed isn’t, I likely have access to a plethora of tools I can use to gain access. Don’t help the burglar. Lock your shed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166956.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">I can tell when someone is reading my shirt versus just staring at my boobs. I don’t mind people stopping and taking a good look at the text, I know it’s hard to read, I’ll even turn and fully face them so they can read it properly. I don’t mind this at all, if I’m going to slap a message on my tits I’m doing it cause I want people to read the message. No biggie! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121114/87169272/etiquette-03.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I use to do door-to-door sales for ADT… people would let me in the house and just tell me where all the important stuff was before even verifying I was legit….. don’t do that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166957.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015219/87169385/etiquette-19.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I stuck with commercial burglary, residential burglary carried a risk of getting hit with a home invasion charge which increases your sentence if convicted. It helps to hit the places that hire felons (fast food joints, video stores, etc.) because the cops are gonna waste a lot of time looking into the staff members who have a criminal history. The closer they’re looking at them, the better off I am.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166958.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> In fact asking a woman “what does your shirt say” is a really good way to break the ice. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015227/87169386/etiquette-17.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. A good burglar will rob you when it’s raining. The rain masks sound when you’re breaking into a garage. I had my garage broken in during torrential rain, all tools stolen, didn’t hear a thing and neither did my dog that sleeps outside.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166959.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011204/87169321/etiquette-08.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Had my house burglarized by a so-called friend. He missed by far the most valuable thing. it’s just a safe sitting on the laundry room floor. He missed it because I’m a scumbag and had it covered with a mountain of dirty clothes and towels. So not being tidy saved me upwards of 35k.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166960.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> I’ve seen multiple people mention feeling uncomfortable reading name tags. It’s always okay to read name tags! They’re literally there to be read. I’ve seen some women put their name tags on their upper sleeve if they felt uncomfortable with drawing attention to their left tit so in that instance you’ll know a woman doesn’t want you staring at her chest. If you’re really uncomfortable with reading a name tag that’s okay, just introduce yourself and then ask their name. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121201/87169276/etiquette-05.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Fake rocks are a dead giveaway. Sock drawers are cliché. If you have a small safe that’s not bolted down, we are taking that thing. We all have a ‘safe guy.’ Our goal is to get in and out pretty quickly. If you hide something in a random box all the way up in your attic, it’s probably safe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166961.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011215/87169323/etiquette-10.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. For the college kids that might read this, don’t keep your textbooks in your car. On the day of my finals, I had about 6 textbooks I was gonna sell after my finals, I left the books in my car while I took my tests. Came back to find someone broke my window out to steal the textbooks. Cop told me that it’s very common and unlikely they will catch the guy, so I was out ~$700, which was huge as a college student.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166962.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011211/87169322/etiquette-09.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I’ve seen people make false outlets for hiding valuables like cash and jewelry. Just an idea, a burglar would have to be at your home for a long time to start checking outlets.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166963.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. You glance, dont stare, its like looking into the sun </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121126/87169273/etiquette-01.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Don’t post anything on social media until you have gotten back home. I can’t tell you how many neighbors and family have gotten robbed because of this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166964.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121148/87169275/etiquette-04.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Consider putting 3-1/2″ screws into your door frame to make it stronger, and to make kicking it in that much harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87166965.jpg" style="width:100%"><br>
 
-<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">These German Burger King Items Are Freaking Americans Out </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">30 Youtube Comments That Are Better Than The Video</a><br>
+## <a href="#linky11" id="linky10">30 Youtube Comments That Are Better Than The Video</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169167.jpg" style="width:100%"><br>
 
@@ -641,6 +555,92 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169192.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169193.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">21 People Having a Rough Day</a><br>
+
+<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
+
+<span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011152/87169319/etiquette-07.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> If they stare at my boobs while other people are talking—or worse, while I’m talking—that makes me uncomfortable. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011159/87169320/etiquette-06.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169372/etiquette-11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> Fortunately, I’ve experienced glancing a lot more frequently than staring. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013434/87169369/etiquette-13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015156/87169383/etiquette-16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013453/87169370/etiquette-14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. When women wear graphic t shirts with writing on their chest I’m always hesitant to read it because I don’t want to look like a jackass. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013504/87169371/etiquette-12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013505/87169373/etiquette-15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015207/87169384/etiquette-18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">I can tell when someone is reading my shirt versus just staring at my boobs. I don’t mind people stopping and taking a good look at the text, I know it’s hard to read, I’ll even turn and fully face them so they can read it properly. I don’t mind this at all, if I’m going to slap a message on my tits I’m doing it cause I want people to read the message. No biggie! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121114/87169272/etiquette-03.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015219/87169385/etiquette-19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> In fact asking a woman “what does your shirt say” is a really good way to break the ice. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015227/87169386/etiquette-17.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011204/87169321/etiquette-08.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> I’ve seen multiple people mention feeling uncomfortable reading name tags. It’s always okay to read name tags! They’re literally there to be read. I’ve seen some women put their name tags on their upper sleeve if they felt uncomfortable with drawing attention to their left tit so in that instance you’ll know a woman doesn’t want you staring at her chest. If you’re really uncomfortable with reading a name tag that’s okay, just introduce yourself and then ask their name. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121201/87169276/etiquette-05.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011215/87169323/etiquette-10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011211/87169322/etiquette-09.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. You glance, dont stare, its like looking into the sun </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121126/87169273/etiquette-01.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121148/87169275/etiquette-04.jpg" style="width:100%"><br>
+
+<span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
 
 ## <a href="#linky14" id="linky13">America’s Greatest Living Old People</a><br>
 
