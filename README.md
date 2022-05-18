@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/18/2022-11:11:31
+Last updated: 05/18/2022-12:11:31
 <br>
 ## <a href="#linky2" id="linky1">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
 
@@ -115,35 +115,35 @@ Last updated: 05/18/2022-11:11:31
 
 <span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169168.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169188.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169170.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169170.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169171.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169171.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169165.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169172.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169172.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169166.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169188.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169173.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169169.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169164.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169175.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169176.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169177.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169178.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169179.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169169.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169180.jpg" style="width:100%"><br>
 
@@ -325,51 +325,7 @@ Last updated: 05/18/2022-11:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">21 Awful Celebs That Are Well Liked Since Their Deaths</a><br>
-
-<span style="font-size:4em">1. No one will say it because Americans have a hard time grappling with the military not being heroes, but Chris Kyle was a racist and a liar - MightyBellerophonhttps://www.reddit.com/r/AskReddit/comments/nj64sd/which_dead_celebrities_are_treated_like_saints/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Ray Charles. Made children all over the place and refused to acknowledge them. - JuanPancake</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Jerry Lewis. He treated his family like shit, cut his kids out of his will and was a real pos on set. Watch some clips on youtube of him and his behaviour. Terrible. Most likely stemming from when he and Dean Martin split from being Martin & Lewis, everyone thought Dean would disappear and Jerry would go on to be a massive star. As it turned out, it was the complete reverse. He was a bitter, bitter person - Acquilas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bing Crosby. Father of the Century. Physically and mentally abusive to all his kids, alcoholic, adulterer, slimy businessman. Check it out.... - Krg26944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Frank Lloyd Wright. He is seen as a visionary in architecture but he was a horrible person IRL. Raging narcissist, abandoned his wife and kids to run off with the wife of one of his clients, nailed down his selected furniture in a clients home because he didnt like what the client wanted, etc. - bengibbardstoothpain</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Its probably come up time and again, but John Lennon was not a nice man. His son grew to despise him enough to tell Paul McCartney that he wished Paul was his father. - deezelweasel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Coco Chanel revered fashion icon and also Nazi sympathiser - armored-dinnerjacket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I havent seen Michael Landons name come up yet... he did amazing on Little House on the Prairie, but apparently he was actually a raging alcoholic and even his own kids made a documentary about The Father I Knew - immamoose-_-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I feel like Cosby is as good as dead and wouldve been beatified if he had died before he got caught. - Sleep-system</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Jimmy Savile. Absolute monster. His celebrity as an English radio and tv personality gained him unrestricted access to hospitals with disabled children whom he abused. That’s putting his life very lightly. Beware if you go on to read more about him. - Ellipsis-U2026</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Johnny Carson. He cheated on his wives and was an all around prick when he wasnt on camera. The most widely know example was him telling Joan Rivers that shed never become the star of The Tonight Show (she was the permanent guest host at the time), then refusing to ever speak to her again after she got a job elsewhere. - DeathSpiral321</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. alfred hitchcock was really really terrible. - seanprefect</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Jimmy Saville... Until after he died and everything came out about the bad stuff he did. - MadJen1979</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Big PunHes kids and widow hated him, he pistol whipped his wife in front of his children and broke her face - Careful-Bread-3820</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. By some Stones fans, Brian Jones. He deserves to be honored for his role innthe band, and for his musical contributions, and its a shame how his life ended, but he also had a history of domestic violence. - grayhairedqueenbitch</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Picasso has been commonly characterized as a womanizer and a misogynist, being quoted as having said to one of his mistresses, Françoise Gilot, Women are machines for suffering. He later told her, For me there are only two kinds of women: goddesses and doormats. In her memoir, Picasso, My Grandfather, Marina Picasso writes of his treatment of women, He submitted them to his animal sexuality, tamed them, bewitched them, ingested them, and crushed them onto his canvas. After he had spent many nights extracting their essence, once they were bled dry, he would dispose of them.Of the several important women in his life, two, Marie-Thèrése Walter, a mistress, and Jacqueline Roque, his second wife, committed suicide. Others, notably his first wife Olga Khokhlova, and his mistress Dora Maar, succumbed to nervous breakdowns. His son, Paulo, developed a fatal alcoholism due to depression. His grandson, Pablito, also committed suicide when he was barred by Jacqueline Roque from attending the artists funeral. - Admirable-Suit5387</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Since no one mentioned them yet. Simone de Beauvoir and Jean-Paul Sartre. In her letters De Beauvoir mentions several romantic and sexual relationship with female students of hers, in one case she met a 17 year old student who she had a relationship, and later introduced her to Sartre who also began to have sex with her. There were a few others who basically made up Sartre’s personal harem, while de Beauvoir acted as the pimp; seducing teenage girls into threesomes with Sartre.Additionally both were signatories of a petition to remove the age of consent laws in France; the petition was written by a known pedo,Gabriel Matzneff, and signed by other French intellectuals including Foucault; who himself has been accused of sodomizing boys. - Rusty51</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Lou Reed, I love the Velvet Underground but many of the band members were awful - North_Port</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Frank Sinatra. My grandpas girlfriend and her husband used to work for him, and he was a right bastard. Didnt think that he had to pay people that worked for him, treated employees bad, all the usual human stuff. - originalsanitizer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. I’ve worked for Prince and it’s a not so hidden secret he was absolutely awful to work with. There used to be a saying “you’re nobody in this industry until you’ve been fired by prince” He’s a legend for sure but was awful to those who put the show on, and his ego was out of control. And when it came down to it, he died from an OD, so for someone who was so quick to fire anyone over a simple mistake and he so critical of weakness, it turns out he had some hidden weaknesses of his own. Also, from all accounts Jim Morrison was an awful awful person. - BottomShelfWhiskey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Salvador Dali was a fascist that beat women. Patton and MacArthur were pretty shit people too. - Jsimpson059</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170055.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">25 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky9" id="linky8">25 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169707.jpg" style="width:100%"><br>
 
@@ -421,69 +377,7 @@ Last updated: 05/18/2022-11:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">30 Interesting Facts People Just Learned</a><br>
-
-<span style="font-size:4em">1. that the new Rolls-Royce Ghost soundproofing was so overengineered that occupants in the car found the near-total silence disorienting, and some felt sick. Acoustic engineers had to go back and work on harmonizing various sounds in the car to add a continuous soft whisper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169944.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Theres 3,200-Year-Old Egyptian Tablet Records Excuses for Why People Missed Work</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169937.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. in 2000, an art exhibition in Denmark featured ten functional blenders containing live goldfish. Visitors were given the option of pressing the “on” button. At least one visitor did, killing two goldfish. This led to the museum director being charged with and, later, acquitted of animal cruelty</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169938.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. in 1908, the NYT reported a story on a dog that would push kids into the Seine in order to earn beefsteak treats for “rescuing” them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169939.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. when you see actors smoking cigarettes in movies, they’re often smoking “Herbal Cigarettes” which contain other plants like lettuce or tea leaves instead of tobacco</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169940.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Wright Brothers only flew together on the same flight one time, a six-minute flight on May 25th, 1910. They promised their father, Milton, they would never fly together to avoid the chance of a double tragedy and to ensure one brother would remain to continue their flight experiments</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169941.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. that 1996s movie Twister was rated PG-13 for intense depiction of very bad weather</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169942.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. in 2011, a 29-year-old Australian bartender found an ATM glitch that allowed him to withdraw way beyond his balance. In a bender that lasted four-and-half months, he managed to spend around $1.6 million of the bank’s money</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169943.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. that Old Book Smell is caused by lignin — a compound in wood-based paper — when it breaks down over time, it emits a faint vanilla scent</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169945.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A turkish mother that read lecture notes for four years to her blind daughter in law school, has been awarded an honorary degree with the daughter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169946.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Captain Robert Campbell whilst a prisoner of the Germans in WW1 asked the Kaiser to visit his dying mother in England. Surprisingly he was given permission, provided he returned to prison afterwards. He did</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169947.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. about Jean Boulet who in 1972 set the world record for the highest altitude reached in a helicopter, 40,280ft. During descent his engines failed, and he landed the helicopter without power, setting another record in the process for the highest unpowered helicopter landing</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169948.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. when one adventurer drove a Jeep Wrangler to the world record altitude of 6,646 m, he left a sign saying Jeep Parking Only: All others dont make it up here anyway.. The next record breakers, who had a Suzuki Samurai and climbed up to 6,688 m on the same volcano, removed that sign</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169949.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. about the Financial Modeling World Cup, which is essentially the World Cup for Competitive excel users. Participants solve real-life case studies by building financial models in Microsoft Excel. $25,000 prize fund</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169950.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. that Toyota is headquartered in the city of Toyota, Japan and was founded there, but is not named after the city. In fact, the city (originally called Koromo) renamed itself after the company in 1959, because Toyota had become so famous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169951.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. that Alice Munro, co-founder of a bookstore with her then-husband Jim, started writing after reading some of the stores stock and thinking I can write better books than this. In 2013, she won the Nobel Prize in Literature</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169952.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. about the Horse, Sergeant Reckless. A Horse who served with the marines in Korea. She was able to haul ammunition by herself without a handler, would seek a bunker or lay down when under fire and received two purple hearts as well as other medals for her service in the Korean war</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169953.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Coconut Monk was a pacifist mystic who founded the Coconut Religion in Vietnam. He lived on an island, meditated in a palm tree for hours every day, had a cat and mouse as his companions, made shards of bombs into a gong, and went to prison for his opposition to the Vietnam War</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169954.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. a father, John Crowley, was told his two infant children had an incurable genetic disorder that would kill them in less than a year. He refused to accept this, so he founded a biotech company (with no prior experience) which pioneered an experimental enzyme therapy that saved their lives</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169955.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. the first reality show was 1973’s An American Family documenting the life of a family, but ended up breaking it up – 10 million people watched as mom Pat complained about husband Bill’s cheating, moaned about their sex life and then, midway through filming, asked him for a divorce on camera</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169956.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Tarzan Character Was Temporarily Removed From Disney Parks Because People Kept Pinching His Butt Cheeks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169957.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. that one if the original ingredients for a Milkshake was Whiskey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169958.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. every year at 3 p.m. on Christmas Eve, the 1958 special Donald Duck and His Friends Wish You a Merry Christmas is screened on Swedens main channel. Swedes are so compelled by the cartoon that last year during the program, cell data usage fell 28% and calls to emergency services dropped 16%</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169959.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. that after 5 Tamil chiefs defeated the Sri Lankan king Valagamba, one of them became king but was eventually slain by another, who also became king before being slain by another, and so on until only one remained, then Valagamba returned, slew the last one and took back his throne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169960.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. that by letting a wolf population recover, traffic collisions caused by deer are reduced by nearly 25%; the reduction is not based as much on the decimation of the deer population but on the “landscape of fear” created by the wolves</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169961.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. about Jon Lech Johansen, a self-trained software engineer who created software that decoded DVD copy protection. Johansen defended himself against computer hacking charges, arguing he didnt access anyone elses information: he owned the DVDs. He was acquitted in 2003</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169962.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. that Hans Zimmer deliberately used a broken piano for the score of Guy Ritchies Sherlock Holmes to make it sound like something you would hear in a pub</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169963.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. that the 2014 Nobel Prize in physics was awarded to the three men who invented the blue LED. Until their discovery in the 90s, white LED lights couldnt be produced</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169964.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Mini pigs aka Teacup pigs are a hoax. They are just potbellied pigs that have been underfed to stunt their growth and will eventually grow to weigh 100-150 pounds</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169965.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. that January is the first month of the Gregorian calendar because it is named after the roman god of all beginnings, Janus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169966.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">30 Brilliant Comebacks People Weren't Ready For</a><br>
+## <a href="#linky10" id="linky9">30 Brilliant Comebacks People Weren't Ready For</a><br>
 
 <span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
 
@@ -545,7 +439,7 @@ Last updated: 05/18/2022-11:11:31
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">These German Burger King Items Are Freaking Americans Out </a><br>
+## <a href="#linky11" id="linky10">These German Burger King Items Are Freaking Americans Out </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
 
@@ -561,7 +455,7 @@ Last updated: 05/18/2022-11:11:31
 
 <span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+## <a href="#linky12" id="linky11">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
 
 <span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
 
@@ -617,7 +511,51 @@ As your heartbeat slows to maintain your body heat, your lungs breathe more slow
 <span style="font-size:4em">
 Its meant to redirect negative self admonishment into a drive to grow and learn. And apparently, its sinking in because she will say something like Ugh, I cant make it up this hill! while were out bike riding and then catch me looking at her, give a big eye roll and go ...yet! in the exact tone you think a teenage girl would use. Then she ends up sometimes just rage-succeeding to prove the point, its great. Shes going to be at least 3 times better than me, low as that bar may be. -u/Zambeeni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168634.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">40 Fun Photos to Enjoy Irresponsibly</a><br>
+## <a href="#linky13" id="linky12">21 People Having a Rough Day</a><br>
+
+<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">40 Fun Photos to Enjoy Irresponsibly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
 
@@ -697,7 +635,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">America’s Greatest Living Old People</a><br>
+## <a href="#linky15" id="linky14">America’s Greatest Living Old People</a><br>
 
 <span style="font-size:4em">1. Dolly Parton better not f*cking die before I do. -u/TyCooper2010</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168663.jpg" style="width:100%"><br>
 
@@ -748,51 +686,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">24. Clint Eastwood, I guess. That man ages like an oak. -u/unofficialShadeDueli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168685.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">21 People Having a Rough Day</a><br>
-
-<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">21 Pictures That Will Make Your Eyes Orgasm</a><br>
+## <a href="#linky16" id="linky15">21 Pictures That Will Make Your Eyes Orgasm</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
 
