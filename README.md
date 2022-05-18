@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/17/2022-20:11:31
+Last updated: 05/17/2022-21:11:31
 <br>
 ## <a href="#linky2" id="linky1">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
 
@@ -358,7 +358,185 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169193.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 Crazy Urban Legends That Turned Out to Be True</a><br>
+## <a href="#linky9" id="linky8">These German Burger King Items Are Freaking Americans Out </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">24 Disturbing Facts That Ruined Our Day</a><br>
+
+<span style="font-size:4em">1. Flies dont have teeth. So, when they land on your sandwich and want to eat some, they barf up the contents of their stomach (often containing another animals shit) so the digestive enzymes can get on the food and then they eat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There are 32 missing nuclear weapons. And those are only the ones that we know of. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. There are guys with a fetish to cut off their penises. There’s even a subreddit dedicated to it. I found out about it a few months ago and it still haunts me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In my country some women rent babies to beg money with in the streets. They make them drink a pill that would make them sleep. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Anything can happen to anyone at any moment. I had my first seizure at 18. No family member has had epilepsy before. Never take anything for granted. It can all change in an instant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Because of pregnant women, the average number of skeletons inside a human body is greater than one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Often, burnt bodies are found in the same stance, known as the “Boxer Pose” due to muscles contracting from heat. It’s an incredibly disturbing looking thing, I first heard about it from my Grandfather that fought in Burma. During the war he was present at a Burmese funeral in which the cadaver was burnt on a pyre. Just as the flames began to singe the corpse, it sat up straight. The Burmese, of course, got a good laugh out of the British soldiers collectively shitting themselves, as contractions due to heat during cremation is apparently rather common. Doesn’t make it any less creepy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167858.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. most modern knowledge on what happens when you go through hypothermia is almost entirely down the Nazi and Japanese human experiments.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Cyanide poisoning is an incredibly painful way to die. Cyanide was what Jonestown consumed for mass suicide. Parents were instructed to give it to their children and convinced the crying was just fear. Edit: For those asking about how cyanide works. If memory serves from when I first read this and listened to the audio recordings, it feels like a massive, massive heart attack. It may not have taken too much time, but any time greater than instantis too long to suffer before death. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. During World War 2, Japan bombed China with fleas infected with the bubonic plague. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The horrendous practice of having a “dancing boy” AKA child sex slave in some regions of Afghanistan and Pakistan. When families are poor they will sell their child to be a “dancing boy”. The children are frequently killed if they resist. It’s a rough watch but the documentary The Dancing Boys of Afghanistan covers this awful practice pretty well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Pelicans are some of the most demonic birds in existence, if not some of the most demonic creatures. Pelicans will go into other birds nests, shove the parents out of the nest. They will then swallow babies whole, fly back to their own nests, and regurgitate the still half alive, partially digested babies, to their own babies for them to consume. Some pelicans are literally raised on the partially digested, living flesh of other baby birds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Chris Farleys last words were dont leave me. He said it to the prostitute he was with who then stole his watch and took a picture of him dead/dying. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. 1/3 of all people who break their hip die within the year.... So please tape pillows to your elderly relatives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. One of Mayhem’s band members committed suicide. When he was found by his bandmate, pictures were taken and it became the new album cover. The photographer was subsequently murdered by Varg Vikernes who masterminded church burnings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. That it takes three generations for you to be completely forgotten. Think about how you viewed your great grandparents. Sure you probably loved them but for most people their great grandparents die and are forgotten as you live your life. One day that will be all of us. Disappearing into the void, none to remember who we were, what our life was like or what we believed in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. You can not prove that anyone else is real. The only thing you know for sure is you are conscious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I forget what its called but sometimes the artery that runs right next to your esophagus, over years of recurrent acid reflux can rupture. It fills your stomach with blood in seconds which causes you to vomit, which causes more damage. It fills you up with blood so fast that it eventually fills your lungs. This takes maybe a minute or two and is almost always fatal unless it happens to occur while youre in a hospitalYour last few minutes alive are spent vomiting pints of blood and then drowning in it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Anesthesia awareness is a thing. Given the effects of anesthetics preventing the formation of new memories, its possible it always happens and we just dont remember it afterwards. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. By the time you show the symptoms of rabies, its already too late. (It can also be dormant for a year before you show those symptoms.) </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The Nutty Putty Cave accident. Google for full disturbing details / a map of the cave, but basically a guy got stuck caving in a very narrow unmapped tunnel, UPSIDE-DOWN. They could not get him out, but almost did, one of the rescuers made eye contact with him apparently but then their pulley system broke and he fell further down. Unfortunately he ended up dying of cardiac arrest from being upside-down for so long and they couldn’t get him out / never retrieved the body because it was too dangerous for rescuers. Truly so disturbing, I’ve thought about it probably once a week since I found out about it a few months ago. Edit: even more disturbing now that someone gave this a wholesome award. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. If an elephants mate dies then they can die from broken heart syndrome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167874.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Hotels rarely clean their ice machines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167875.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">23 Restaurants That Failed at Presentation</a><br>
+
+<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">31 Dumb Jokes For People Who Get Humor</a><br>
+
+<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">25 Crazy Urban Legends That Turned Out to Be True</a><br>
 
 <span style="font-size:4em">1. Serial murderer was picking off indigenous women from the crime ridden area of the city (Downtown Eastside Vancouver) and having their remains disposed of at a pig farm in another suburb - Robert William Willy Pickton - rayrayrayray
 
@@ -433,7 +611,7 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 
 <span style="font-size:4em">25. local, corrupt mob lawyers wife disappeared. rumors swirled that she either ran off with lover or he had her killed, possibly by the towns mob connected police chief but with no evidence to the rumors. a few years later, the wifes car is found in a canal with her body in the trunk with a crushed skull and shot. the chief and lawyer went to prison on conspiracy to murder charges. the story was later made into a tv movie called Deadly Matrimony - 20RegalGS15</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167762.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">40 Fun Photos to Enjoy Irresponsibly</a><br>
+## <a href="#linky14" id="linky13">40 Fun Photos to Enjoy Irresponsibly</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
 
@@ -512,182 +690,4 @@ They demolished the bridge a few years back, finding two skeletons and a briefca
 <span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168580.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">23 Restaurants That Failed at Presentation</a><br>
-
-<span style="font-size:4em">1. This idea wasnt too sharp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. And you will still be the one footing the bill.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The person behind this might not be the brightest bulb. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Shoveled straight from the crap pile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Ill just bite my tongue on this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. The rice isnt even cooked. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162330.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. And in this mystery box... pasta. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162331.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Ah yes, the good ol test tube beer. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162335.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Because Ive always wanted my food to look like dirt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162336.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. They took wheel of cheese literally. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. That latte looks like sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Compensating for something?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. And the violin plate has what to do with the meal?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162343.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. This is an idea that should be stomped out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If my meat isnt hanging from a chandelier, I dont want it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87162345.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">These German Burger King Items Are Freaking Americans Out </a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">31 Dumb Jokes For People Who Get Humor</a><br>
-
-<span style="font-size:4em">1. Whats the difference between a wizard who raises the undead and a sexy vampire? One is a necromancer and the other is a neck romancer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167184.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. If you think your microwave and your TV spying on you is bad… Your vacuum cleaner has been gathering dirt on you for years...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167172.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. My roommate says I have schizophrenia. Jokes on him, I dont have a roommate.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167161.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I just failed a fire safety course when they asked what steps I would take in case of an explosion.... Apparently, “Really big ones” wasn’t an acceptable answer...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167162.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. An elderly gentleman had serious hearing problems for a number of years. He went to the doctor and the doctor was able to have him fitted for a set of hearing aids that allowed the gentleman to hear 100%.The elderly gentleman went back in a month to the doctor and the doctor said, Your hearing is perfect. Your family must be really pleased that you can hear again.The gentleman replied, Oh, I havent told my family yet. I just sit around and listen to the conversations. Ive changed my will three times!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167163.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A lumberjack went in to a magic forest to cut a tree. Upon arrival, he started to swing at the tree, when it shouted, “Wait! I’m a talking tree!The lumberjack grinned, “And you will dialogue!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167164.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was on the phone with my wife and said, Im almost home, honey, please put the coffee maker on. After a twenty second pause, I asked, You still there sweetheart? Yeah… she replied. But I dont think the coffee maker wants to talk right now…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167165.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My friend asked me if I wanted to hear a really good Batman impression, so I replied, Go for it! He shouted, “NO!! NOT THE KRYPTONITE!” Slightly puzzled, I said, “That’s Superman.“Thanks man!” he laughed. “I’ve been practicing it a lot.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167166.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. How do you tell a chemist from a communist? Ask them to pronounce “unionized.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167167.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I somehow managed to make it through high school math while only being able to remember even numbers!! What are the odds?!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167168.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I’m not bragging or anything, but I made six figures this year… So they named me the year’s worst employee at the toy factory...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167169.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Back in the day...” my grandpa started to say. “You could walk into a grocery store with $3 in your pocket and walk out with a loaf of bread, a dozen eggs and a bit of butter as well. But...Now however.. he continued, wherever you go there are those darn cameras.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167170.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. For the last eight years Ive been voted the  most secretive guy  in the office by my coworkers.Cant tell you how much this award means to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167171.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My Wife and I were blissfully happy for 25 magical years....and then we met.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167173.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Thank you student loans for getting me through college. I don’t think I’ll ever be able to repay you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167174.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My wife is turning 32 soon and I told her not to get her hopes up, “After all, the celebration is only going to last half a minute.” Confused, she asked, “What are you talking about?”I said, “It’s your thirty-second birthday.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167175.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My Grandfather survived Pepper spray and Mustard gas attacks in two wars......and came home to us a seasoned Veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167176.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. A boy scout says to his scout leader, Sir, is this snake poisonous? The scout leader says, No, that snakes not poisonous at all. So the boy picks up the snake, which bites him and the boy starts to spasm and foam at the mouth as the other kids look on in horror...The scout leader says, But that snake is venomous. Poison is ingested or absorbed, while venom is injected. Lets get it right next time, boys!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167177.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Can’t believe someone broke into my garage and stole my limbo stick. Seriously, how low can you go.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167178.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. People always ask me how I sneak chocolate into movie theatres. Well lets just say, I have a few Twix up my sleeve.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167179.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I went to the store last week to buy 6 cans of Sprite. It wasnt until I got home that I realized I had picked 7 up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167180.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A young man robbed a bank wearing a suit made of many mirrors but he turned himself in......after taking some time to reflect. Luckily, the judge was lenient as he saw a lot of himself in the man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167181.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Our doorbell rang and my son called to me, Dad, theres a salesman here with a mustache! I yelled back...Tell him Ive already got one!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167182.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Iron Man is technically a FEmale.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167160.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. While my wife was in labor I read her jokes to distract her from the pain, but she didn’t seem amused...It must have been the delivery...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167183.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. My wife thinks I don’t give her enough privacy... At least, that’s what she said in her diary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167185.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. As we were walking down the driveway with the cans, I asked my son, Did you know there’s no official training for garbage men? Rolling his eyes, he responded, No, no I didnt. I continued...Seriously, they just pick it up as they go along!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167186.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I was really embarrassed when my wife walked in on me playing with my son’s train set by myself, so in a moment of panic, I threw a bed sheet over it...I think I managed to cover my tracks...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167187.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I’ve just got a new job as senior director at Old MacDonald’s farm...I’m the CIEIO!!!!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167188.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I gave my daughter a watch for her birthday. She thought it was so cool and when she showed it to the next door neighbor, he asked, Thats a pretty watch youve got there! Does it tell you the time?She laughed and said, No, this is an old-fashioned watch! You have to look at it!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. The CDC has a recommendation for telling jokes during the pandemic...Inside jokes, only.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167190.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">24 Disturbing Facts That Ruined Our Day</a><br>
-
-<span style="font-size:4em">1. Flies dont have teeth. So, when they land on your sandwich and want to eat some, they barf up the contents of their stomach (often containing another animals shit) so the digestive enzymes can get on the food and then they eat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There are 32 missing nuclear weapons. And those are only the ones that we know of. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. There are guys with a fetish to cut off their penises. There’s even a subreddit dedicated to it. I found out about it a few months ago and it still haunts me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. In my country some women rent babies to beg money with in the streets. They make them drink a pill that would make them sleep. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Anything can happen to anyone at any moment. I had my first seizure at 18. No family member has had epilepsy before. Never take anything for granted. It can all change in an instant.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Because of pregnant women, the average number of skeletons inside a human body is greater than one.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Often, burnt bodies are found in the same stance, known as the “Boxer Pose” due to muscles contracting from heat. It’s an incredibly disturbing looking thing, I first heard about it from my Grandfather that fought in Burma. During the war he was present at a Burmese funeral in which the cadaver was burnt on a pyre. Just as the flames began to singe the corpse, it sat up straight. The Burmese, of course, got a good laugh out of the British soldiers collectively shitting themselves, as contractions due to heat during cremation is apparently rather common. Doesn’t make it any less creepy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167858.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. most modern knowledge on what happens when you go through hypothermia is almost entirely down the Nazi and Japanese human experiments.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Cyanide poisoning is an incredibly painful way to die. Cyanide was what Jonestown consumed for mass suicide. Parents were instructed to give it to their children and convinced the crying was just fear. Edit: For those asking about how cyanide works. If memory serves from when I first read this and listened to the audio recordings, it feels like a massive, massive heart attack. It may not have taken too much time, but any time greater than instantis too long to suffer before death. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. During World War 2, Japan bombed China with fleas infected with the bubonic plague. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The horrendous practice of having a “dancing boy” AKA child sex slave in some regions of Afghanistan and Pakistan. When families are poor they will sell their child to be a “dancing boy”. The children are frequently killed if they resist. It’s a rough watch but the documentary The Dancing Boys of Afghanistan covers this awful practice pretty well. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Pelicans are some of the most demonic birds in existence, if not some of the most demonic creatures. Pelicans will go into other birds nests, shove the parents out of the nest. They will then swallow babies whole, fly back to their own nests, and regurgitate the still half alive, partially digested babies, to their own babies for them to consume. Some pelicans are literally raised on the partially digested, living flesh of other baby birds. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Chris Farleys last words were dont leave me. He said it to the prostitute he was with who then stole his watch and took a picture of him dead/dying. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. 1/3 of all people who break their hip die within the year.... So please tape pillows to your elderly relatives.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. One of Mayhem’s band members committed suicide. When he was found by his bandmate, pictures were taken and it became the new album cover. The photographer was subsequently murdered by Varg Vikernes who masterminded church burnings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. That it takes three generations for you to be completely forgotten. Think about how you viewed your great grandparents. Sure you probably loved them but for most people their great grandparents die and are forgotten as you live your life. One day that will be all of us. Disappearing into the void, none to remember who we were, what our life was like or what we believed in. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. You can not prove that anyone else is real. The only thing you know for sure is you are conscious. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I forget what its called but sometimes the artery that runs right next to your esophagus, over years of recurrent acid reflux can rupture. It fills your stomach with blood in seconds which causes you to vomit, which causes more damage. It fills you up with blood so fast that it eventually fills your lungs. This takes maybe a minute or two and is almost always fatal unless it happens to occur while youre in a hospitalYour last few minutes alive are spent vomiting pints of blood and then drowning in it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Anesthesia awareness is a thing. Given the effects of anesthetics preventing the formation of new memories, its possible it always happens and we just dont remember it afterwards. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. By the time you show the symptoms of rabies, its already too late. (It can also be dormant for a year before you show those symptoms.) </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. The Nutty Putty Cave accident. Google for full disturbing details / a map of the cave, but basically a guy got stuck caving in a very narrow unmapped tunnel, UPSIDE-DOWN. They could not get him out, but almost did, one of the rescuers made eye contact with him apparently but then their pulley system broke and he fell further down. Unfortunately he ended up dying of cardiac arrest from being upside-down for so long and they couldn’t get him out / never retrieved the body because it was too dangerous for rescuers. Truly so disturbing, I’ve thought about it probably once a week since I found out about it a few months ago. Edit: even more disturbing now that someone gave this a wholesome award. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. If an elephants mate dies then they can die from broken heart syndrome. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Hotels rarely clean their ice machines.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
 
