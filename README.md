@@ -1,131 +1,103 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/18/2022-16:11:33
+Last updated: 05/18/2022-17:11:31
 <br>
-## <a href="#linky2" id="linky1">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
+## <a href="#linky2" id="linky1">25 Things We Were Hyped For That Completely Flopped</a><br>
 
-<span style="font-size:4em">1. Midway games at carnivals or fairs purposely let people win early on in the day. This way people carry around the prizes and advertise them for the rest of the day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169111.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Power Glove. It sucked and Ill never forget it. -u/Ekh0es</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170174.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I was a deep sea diver for 10 years in the Gulf of Mexico. Huge oil spills happen and are covered up hundreds of times a year by every company. The entire industry is in on it. The bottom of the gulf is a disgusting garbage dump. Every boat dumps their trash into the gulf no one obeys the laws and the coast guard doesnt enforce s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169110.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Google Plus. They made us wait for a very long time with the invite-only feature. People forgot about it when it was released. -u/introvertboyme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170175.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I work in payroll. The number of payroll reports I see where people are conned out of their overtime is saddening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169113.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Dark Tower movie with Idris Elba. -u/urchisilver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170176.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Record labels and producers sometimes use ghost vocalists for pop stars who really cant sing. Ghost vocalists are like singing impressionists who come into the studio and re-sing the song in the style of the popstar, but better. Often the popstars in question dont even know that their vocals have been replaced.
-
-Oh and, for the record (no pun), terrible singers cant be fixed with autotune, it is only used to polish slightly untidy vocals. This is why ghost vocalists are used.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169114.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Sim City 5. Good god what a horrid mess. First week or more of the release you were lucky to play because you could only play it online on their servers that were constantly full. Then once you hit like 50k people in your city the game was uncontrollable. You would literally run out of water and no matter what you did, traffic took the shortest path so constant traffic and thus emergency vehicles couldnt move so everything went to hell fast. -u/InsertBluescreenHere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170177.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Nearly every caller you hear on top 40 radio is either an intern or someone else close to the studio, everything is fake. Especially that war of the roses s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169115.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Google Glass: futuristic smart glasses. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170178.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Not sure if this is an industry practise, but a very popular online retail company in my country has no in-house web designers or any other IT staff beyond your generic networking techs. Any time their website or backend systems need work they simply advertise a permanent position and give the job of sorting out whatever they need done as a trial for the candidate. Once completed, they then inform them that the position is no longer available and send them on their way. Theyve been doing this for years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169116.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. M. Night Shyamalans Avatar movie. He broke my heart. -u/Suspicious-Elk-3631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170179.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I work in a shipping company. Im a merchant marine engineer working on mega container ships. Lot of unethical shipping companies. They dump a lot of garbage, oily sludge, waste, contaminated water, and oil out when sailing in international waters far away from the shore because its cheaper to do that than land the waste to correct shore reception facilities. There are only a few handful of players (I can count them on my fingertips) today who are actually executing business trades, while still keeping the carbon footprint and environment as one of their core policies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169117.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. The Zune. Larger capacity, color screen, could play movies, and cost less than an iPod. Personally, I think it was an awesome device, but ultimately it failed. :( -u/TSwizzlesNipples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. How f**king often bodily fluids get on food, and I mean intentionally. Wash your damn produce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169118.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Yandere simulator years ago. -u/grossjuice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170180.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You use too much dawn dish soap. That stuff is ridiculously concentrated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169119.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. When Geraldo Rivera opened Al Capones vault. -u/miurabucho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170181.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Diamonds should be worth much less than people pay for them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169112.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Being an adult. -u/marr318</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170182.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Every programmer in the world occasionally writes a very bad code that sticks with the app/program forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169120.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Anthem. I didnt even find the flying that great. It was kinda fun, but the gunplay was so insanely boring and the world-building was so poorly executed. And holy Christ was the writing trash. I played it with a friend and had low expectations, but it failed to meet even those. -u/NobilisUltima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170183.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Rocket science is like 90% plumbing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169121.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Second go around of Arrested Development. Deep inside I knew they’d never be able to capture that magic. Still, told myself they could. Narrator: They couldn’t. -u/AreaGuy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170184.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Customer service text chat can see what youre typing in the box before you hit send.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169122.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Every New Year’s Eve party ever. -u/PollyWentlightly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170185.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. A bottle of Windex is basically 95% water 4% ammonia, and 1% blue dye / fragrance. The most expensive part of the product is the bottle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169123.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The PS Vita. I wouldn’t say it was a total flop but it deserved so much more support and a better life than it had. -u/GhostRN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170188.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Patient confidentiality just means your name isnt in the story, not that your story wont get told.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169124.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. 3D TV. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170186.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. The fresh chocolate chip cookie scent that can be smelled outside of the Magic Kingdom bakery is artificial. Its piped out there to draw you into the bakery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169125.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Pacific Rim 2. What the f*ck was that? -u/Accurate_Western_346</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Customer service also have mute buttons, and they use it to laugh at you and/or call you names while youre busy complaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169126.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I remember being hyped for the Suicide Squad movie back then and left the cinema severely disappointed. -u/mj-gaia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170187.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Your children tell us nearly everything about what goes on in your home.
-
-Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169127.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Having a career. Our whole life built up to this….and its just mediocre, and NOBODY knows what they are really doing. -u/SnooPandas1674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. When a movie trailer has shots that turn out to be missing from the actual movie, thats not because scenes were cut. Those shots never existed in the movie. The trailer didnt test as well as they wanted, so the studio inserted scenes specifically made for the trailer during additional photography.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169128.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The Segway. Mind you, it was billed as something that would change mankind. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. In sofa/couch commercials they use smaller actors/models to make the sofas/couches look bigger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169129.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Last season of GOT. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. People die in hotel rooms all the time, and unless it’s public record, they’re going to clean and resell the room. That day, if possible. So better check the closet and under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169130.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Fallout 76. Was happy to finally have a Fallout with multiplayer, but was too buggy to have any fun at launch. -u/KrogtDK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Fast food workers dont wash their hands as often as they should and rarely call in sick even if they are sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169131.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Mobile gaming. -u/xx_DEADND_xx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Im a visa agent. I’ve seen people be refused because the manager didn’t like their face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169132.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The Hobbit movies. Im a huge LOTR fan and they are just meh. The magic was gone. They should have made one film closely following the book. -u/feta_morgana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170196.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+<span style="font-size:4em">24. The Fantastic Beasts films. -u/kukukele</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Make them tell you no. Its great when youre not sure if you should apply for a job, go for a promotion or a raise, or do something youre afraid of. Dont be so worried about getting told no or failing, youll surprise yourself. -u/Marnett05</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168612.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">21 Pictures That Will Make Your Eyes Orgasm</a><br>
 
-<span style="font-size:4em">3. “If you sit quietly while everyone else f*cks up, you’re going to win big!” -John Oliver. I’ve gotten multiple jobs and school opportunities by just doing my work and not being a loud moron. -u/Redqueenhypo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168613.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. From my 7-year-old daughter…I still laugh about it today. If you’re ever in an awkward situation with someone or need to just go away, you could always pretend to choke on something. I don’t know where this came from but it’s funny AND it works. You just run away to get a glass of water. -u/Typical-me-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168614.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. If you need to remember something, write it 3x or say it out loud 3x. Always weird when you repeat something verbally 3x, especially names. -u/RainingRetro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168615.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If looking for something in a low light environment, try to use your peripheral vision. I read about it in an old WWII manual about aerial combat at night. It has something to do with how eyes work. It has helped me many times over the years. For finding stuff in a darkened room, or outside in a field at night, not aerial combat. -u/BMLortz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168616.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. No one thinks about you as much as you do. Meaning we’re all worried about people thinking about the tiniest embarrassing things we do, when no one really cares. It gave me freedom to take on more challenges and not worry about failure. -u/derpitaway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168629.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Dont give excuses unless they ask for it. I.E. if you are late for work, just say that you are late. Not why you are late. -u/Gurkeprinsen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168617.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Time will pass either way—if you want to work to get better at something, accomplish a long-term goal, or change careers or credentials, don’t look at the 2-5 years and think you’ll be too old. If you’re 24 and want to go to college, you’ll be 28 in four years with or without a degree regardless of what you do in that time. -u/Mild-Intrigue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168618.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Anger and remorse are shadow companions, with remorse always a step behind. I took control over my temper issues by reminding myself of this one-liner. Hope this works for you, too! -u/Cogito747</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168619.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. It’s only embarrassing if you’re embarrassed. The older I get, the more I understand this one. -u/PB-JAM</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168620.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Fail quickly, as in: If your plan may not succeed, better to find out next week than next year. Helped me quit a suffocating job and dig into my own business 10/10. -u/NNakedLunchDate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168621.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. If you cant fight the fear, do it scared. Got me through a lot of anxiety. -u/ChasingAlnilam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168622.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. My mother always said Go back to basics whenever I was struggling mentally. I disregarded it for years but now I live by it. I only utilize this way of living during desperate survival times, but its amazing advice. -u/Staceystallion1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168623.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Don’t beat yourself up forever. Beat yourself up once then move on. Mr. Homer Simpson. -u/Amy-Paradise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168624.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. If you want to buy something, wait 24 hours and if you still want to buy it afterwards then buy it. This has really cut my impulse buying down and has made saving money extremely easy. -u/ThaMuffMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168625.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. People don’t always remember what you say but how you make them feel. -u/THGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168626.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. When writing an e-mail, leave the recipient field until last. -u/Ocsttiac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168627.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Stressed, upset, panic attack, ennui? Put an ice cube in your hand. Move it around your hand until it slowly melts. It takes about 5 minutes. Primary Effect: the cold on your skin grabs your brains attention. You stop thinking about what was stressing you out and feel present in the moment. Secondary Effect: the cold cools your blood, which goes into your heart and slows down the beating. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168628.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168630.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-As your heartbeat slows to maintain your body heat, your lungs breathe more slowly as well. It forces you to breathe, which calms you down. After 5 minutes of this, you will feel much calmer, if slightly drippy. -u/LeskoLesko</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168631.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. I tell my daughter to add the word yet after anything about lacking something. I dont know how to play this game. Becomes I dont know how to play this game yet. That sort of thing.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168632.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168633.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Its meant to redirect negative self admonishment into a drive to grow and learn. And apparently, its sinking in because she will say something like Ugh, I cant make it up this hill! while were out bike riding and then catch me looking at her, give a big eye roll and go ...yet! in the exact tone you think a teenage girl would use. Then she ends up sometimes just rage-succeeding to prove the point, its great. Shes going to be at least 3 times better than me, low as that bar may be. -u/Zambeeni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168634.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">Don’t Tell HR That You Came in Your Pants</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">25 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky4" id="linky3">25 Fresh Memes of the Dankest Kind</a><br>
 
 <span style="font-size:4em">1. Men live life on the edge because it helps us treasure what we have. Also, were kind stupid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168902.jpg" style="width:100%"><br>
 
@@ -177,7 +149,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 Brilliant Comebacks People Weren't Ready For</a><br>
+## <a href="#linky5" id="linky4">30 Brilliant Comebacks People Weren't Ready For</a><br>
 
 <span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
 
@@ -239,7 +211,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
+## <a href="#linky6" id="linky5">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
 
 <span style="font-size:4em">1. It will take only a rock with a width of 0.6 miles to threaten our entire species existence. Even smaller rocks of around 130ft across can cause our planet cataclysmic damage.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110931/87169216/disturbingfacts10.jpg" style="width:100%"><br>
 
@@ -295,7 +267,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">27. The Challenger crew compartment stayed intact after the initial explosion, and for three of them their emergency air systems had been manually activated. So not only did they survive the explosion, but its entirely possible the crew was alive and conscious during their entire descent back to Earth.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111048/87169234/disturbingfacts26.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">20 Jobs That We Have Zero Respect For</a><br>
+## <a href="#linky7" id="linky6">20 Jobs That We Have Zero Respect For</a><br>
 
 <span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
 
@@ -337,61 +309,103 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">26 Terrible Haircuts for Crazy People</a><br>
+## <a href="#linky8" id="linky7">47 Dank Memes Hand Selected For You</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168961.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050411/87170504/87149514.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168962.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050422/87170505/87149521.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168963.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050433/87170506/87149512.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168964.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050444/87170507/87149523.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168965.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050455/87170508/87149525.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168966.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050507/87170509/87149524.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168967.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050507/87170510/87149528.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168968.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050517/87170511/87149531.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168969.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050519/87170512/87151406.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168970.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050529/87170513/87151409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168971.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050530/87170514/87151421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168972.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050540/87170515/87151426.gif" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168973.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050542/87170516/87151427.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168974.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050551/87170517/87151430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168975.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050553/87170518/87151968.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168976.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050603/87170519/87151971.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168977.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050604/87170520/87151984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168978.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050614/87170522/87162254.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168979.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050617/87170523/87162256.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168980.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050627/87170524/87162259.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168981.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050628/87170525/87162262.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168982.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050638/87170526/87162264.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168983.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050640/87170527/87162268.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168984.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050648/87170528/87162272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168985.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050653/87170529/87167042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168986.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050700/87170530/87167044.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">27 Pics You May Have to Look at Twice to Understand</a><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050703/87170531/87167047.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050711/87170532/87167049.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050714/87170533/87167051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050722/87170534/87167052.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050725/87170536/87167055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050735/87170537/87167057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168199.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168206.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168207.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">27 Pics You May Have to Look at Twice to Understand</a><br>
 
 <span style="font-size:4em">1. The shadows from the power lines make my van look like its been rear ended.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031658/87169424/87163267.jpg" style="width:100%"><br>
 
@@ -447,7 +461,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">27. Run, Godzilla is coming!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168764.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 Awful Celebs That Are Well Liked Since Their Deaths</a><br>
+## <a href="#linky10" id="linky9">20 Awful Celebs That Are Well Liked Since Their Deaths</a><br>
 
 <span style="font-size:4em">1. Ray Charles. Made children all over the place and refused to acknowledge them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170032.jpg" style="width:100%"><br>
 
@@ -489,49 +503,113 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">20. Salvador Dali was a fascist that beat women. Patton and MacArthur were pretty shit people too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170055.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">21 People Having a Rough Day</a><br>
+## <a href="#linky11" id="linky10">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
 
-<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+<span style="font-size:4em">1. Midway games at carnivals or fairs purposely let people win early on in the day. This way people carry around the prizes and advertise them for the rest of the day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+<span style="font-size:4em">2. I was a deep sea diver for 10 years in the Gulf of Mexico. Huge oil spills happen and are covered up hundreds of times a year by every company. The entire industry is in on it. The bottom of the gulf is a disgusting garbage dump. Every boat dumps their trash into the gulf no one obeys the laws and the coast guard doesnt enforce s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+<span style="font-size:4em">3. I work in payroll. The number of payroll reports I see where people are conned out of their overtime is saddening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+<span style="font-size:4em">4. Record labels and producers sometimes use ghost vocalists for pop stars who really cant sing. Ghost vocalists are like singing impressionists who come into the studio and re-sing the song in the style of the popstar, but better. Often the popstars in question dont even know that their vocals have been replaced.
+
+Oh and, for the record (no pun), terrible singers cant be fixed with autotune, it is only used to polish slightly untidy vocals. This is why ghost vocalists are used.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+<span style="font-size:4em">5. Nearly every caller you hear on top 40 radio is either an intern or someone else close to the studio, everything is fake. Especially that war of the roses s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+<span style="font-size:4em">6. Not sure if this is an industry practise, but a very popular online retail company in my country has no in-house web designers or any other IT staff beyond your generic networking techs. Any time their website or backend systems need work they simply advertise a permanent position and give the job of sorting out whatever they need done as a trial for the candidate. Once completed, they then inform them that the position is no longer available and send them on their way. Theyve been doing this for years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+<span style="font-size:4em">7. I work in a shipping company. Im a merchant marine engineer working on mega container ships. Lot of unethical shipping companies. They dump a lot of garbage, oily sludge, waste, contaminated water, and oil out when sailing in international waters far away from the shore because its cheaper to do that than land the waste to correct shore reception facilities. There are only a few handful of players (I can count them on my fingertips) today who are actually executing business trades, while still keeping the carbon footprint and environment as one of their core policies.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+<span style="font-size:4em">8. How f**king often bodily fluids get on food, and I mean intentionally. Wash your damn produce.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+<span style="font-size:4em">9. You use too much dawn dish soap. That stuff is ridiculously concentrated.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+<span style="font-size:4em">10. Diamonds should be worth much less than people pay for them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+<span style="font-size:4em">11. Every programmer in the world occasionally writes a very bad code that sticks with the app/program forever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+<span style="font-size:4em">12. Rocket science is like 90% plumbing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169121.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+<span style="font-size:4em">13. Customer service text chat can see what youre typing in the box before you hit send.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169122.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+<span style="font-size:4em">14. A bottle of Windex is basically 95% water 4% ammonia, and 1% blue dye / fragrance. The most expensive part of the product is the bottle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169123.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+<span style="font-size:4em">15. Patient confidentiality just means your name isnt in the story, not that your story wont get told.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169124.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+<span style="font-size:4em">16. The fresh chocolate chip cookie scent that can be smelled outside of the Magic Kingdom bakery is artificial. Its piped out there to draw you into the bakery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169125.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+<span style="font-size:4em">17. Customer service also have mute buttons, and they use it to laugh at you and/or call you names while youre busy complaining.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169126.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+<span style="font-size:4em">18. Your children tell us nearly everything about what goes on in your home.
+
+Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169127.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+<span style="font-size:4em">19. When a movie trailer has shots that turn out to be missing from the actual movie, thats not because scenes were cut. Those shots never existed in the movie. The trailer didnt test as well as they wanted, so the studio inserted scenes specifically made for the trailer during additional photography.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169128.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+<span style="font-size:4em">20. In sofa/couch commercials they use smaller actors/models to make the sofas/couches look bigger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169129.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+<span style="font-size:4em">21. People die in hotel rooms all the time, and unless it’s public record, they’re going to clean and resell the room. That day, if possible. So better check the closet and under the bed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169130.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Fast food workers dont wash their hands as often as they should and rarely call in sick even if they are sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169131.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Im a visa agent. I’ve seen people be refused because the manager didn’t like their face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169132.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+
+<span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Make them tell you no. Its great when youre not sure if you should apply for a job, go for a promotion or a raise, or do something youre afraid of. Dont be so worried about getting told no or failing, youll surprise yourself. -u/Marnett05</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “If you sit quietly while everyone else f*cks up, you’re going to win big!” -John Oliver. I’ve gotten multiple jobs and school opportunities by just doing my work and not being a loud moron. -u/Redqueenhypo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. From my 7-year-old daughter…I still laugh about it today. If you’re ever in an awkward situation with someone or need to just go away, you could always pretend to choke on something. I don’t know where this came from but it’s funny AND it works. You just run away to get a glass of water. -u/Typical-me-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. If you need to remember something, write it 3x or say it out loud 3x. Always weird when you repeat something verbally 3x, especially names. -u/RainingRetro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168615.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If looking for something in a low light environment, try to use your peripheral vision. I read about it in an old WWII manual about aerial combat at night. It has something to do with how eyes work. It has helped me many times over the years. For finding stuff in a darkened room, or outside in a field at night, not aerial combat. -u/BMLortz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. No one thinks about you as much as you do. Meaning we’re all worried about people thinking about the tiniest embarrassing things we do, when no one really cares. It gave me freedom to take on more challenges and not worry about failure. -u/derpitaway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Dont give excuses unless they ask for it. I.E. if you are late for work, just say that you are late. Not why you are late. -u/Gurkeprinsen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Time will pass either way—if you want to work to get better at something, accomplish a long-term goal, or change careers or credentials, don’t look at the 2-5 years and think you’ll be too old. If you’re 24 and want to go to college, you’ll be 28 in four years with or without a degree regardless of what you do in that time. -u/Mild-Intrigue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Anger and remorse are shadow companions, with remorse always a step behind. I took control over my temper issues by reminding myself of this one-liner. Hope this works for you, too! -u/Cogito747</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168619.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. It’s only embarrassing if you’re embarrassed. The older I get, the more I understand this one. -u/PB-JAM</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168620.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Fail quickly, as in: If your plan may not succeed, better to find out next week than next year. Helped me quit a suffocating job and dig into my own business 10/10. -u/NNakedLunchDate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. If you cant fight the fear, do it scared. Got me through a lot of anxiety. -u/ChasingAlnilam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My mother always said Go back to basics whenever I was struggling mentally. I disregarded it for years but now I live by it. I only utilize this way of living during desperate survival times, but its amazing advice. -u/Staceystallion1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168623.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Don’t beat yourself up forever. Beat yourself up once then move on. Mr. Homer Simpson. -u/Amy-Paradise</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If you want to buy something, wait 24 hours and if you still want to buy it afterwards then buy it. This has really cut my impulse buying down and has made saving money extremely easy. -u/ThaMuffMango</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. People don’t always remember what you say but how you make them feel. -u/THGilmore</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168626.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. When writing an e-mail, leave the recipient field until last. -u/Ocsttiac</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Stressed, upset, panic attack, ennui? Put an ice cube in your hand. Move it around your hand until it slowly melts. It takes about 5 minutes. Primary Effect: the cold on your skin grabs your brains attention. You stop thinking about what was stressing you out and feel present in the moment. Secondary Effect: the cold cools your blood, which goes into your heart and slows down the beating. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+As your heartbeat slows to maintain your body heat, your lungs breathe more slowly as well. It forces you to breathe, which calms you down. After 5 minutes of this, you will feel much calmer, if slightly drippy. -u/LeskoLesko</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168631.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I tell my daughter to add the word yet after anything about lacking something. I dont know how to play this game. Becomes I dont know how to play this game yet. That sort of thing.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Its meant to redirect negative self admonishment into a drive to grow and learn. And apparently, its sinking in because she will say something like Ugh, I cant make it up this hill! while were out bike riding and then catch me looking at her, give a big eye roll and go ...yet! in the exact tone you think a teenage girl would use. Then she ends up sometimes just rage-succeeding to prove the point, its great. Shes going to be at least 3 times better than me, low as that bar may be. -u/Zambeeni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168634.jpg" style="width:100%"><br>
 
 ## <a href="#linky13" id="linky12">30 Youtube Comments That Are Better Than The Video</a><br>
 
@@ -595,7 +673,69 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169193.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">America’s Greatest Living Old People</a><br>
+## <a href="#linky14" id="linky13">Don’t Tell HR That You Came in Your Pants</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">22 "Dirty Pics" That Are Actually Pretty Innocent </a><br>
+
+<span style="font-size:4em">1. Not a boob.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164491.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Its not what you think, not even close. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Took a sec.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Giving her the O face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not a butt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Looks like bad plastic surgery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was almost traumatized</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Are you seeing what were seeing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Is someone going to tell her? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. It’s like the Coppertone logo but weirder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That’s one way to see if you like another dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. We are gathered here today…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Not two people fucking on a motorcycle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164504.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Imagine walking down the hallway and you see this guy taking a dump, or so you think. . </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Can you say purple nurple? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This might be one of the most cursed images ever taken. It looks like hes about to do some ungodly things to that poor baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That shadow is packing, damn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">America’s Greatest Living Old People</a><br>
 
 <span style="font-size:4em">1. Dolly Parton better not f*cking die before I do. -u/TyCooper2010</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168663.jpg" style="width:100%"><br>
 
@@ -646,51 +786,7 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 
 <span style="font-size:4em">24. Clint Eastwood, I guess. That man ages like an oak. -u/unofficialShadeDueli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168685.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">21 Pictures That Will Make Your Eyes Orgasm</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
+## <a href="#linky17" id="linky16">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
 
 <span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
 
@@ -731,50 +827,4 @@ Its meant to redirect negative self admonishment into a drive to grow and learn.
 <span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121148/87169275/etiquette-04.jpg" style="width:100%"><br>
 
 <span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">22 "Dirty Pics" That Are Actually Pretty Innocent </a><br>
-
-<span style="font-size:4em">1. Not a boob.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164491.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Its not what you think, not even close. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Took a sec.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Giving her the O face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not a butt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Looks like bad plastic surgery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was almost traumatized</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Are you seeing what were seeing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Is someone going to tell her? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. It’s like the Coppertone logo but weirder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That’s one way to see if you like another dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. We are gathered here today…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Not two people fucking on a motorcycle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164504.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Imagine walking down the hallway and you see this guy taking a dump, or so you think. . </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Can you say purple nurple? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This might be one of the most cursed images ever taken. It looks like hes about to do some ungodly things to that poor baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That shadow is packing, damn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
 
