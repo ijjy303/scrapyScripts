@@ -1,73 +1,147 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/18/2022-09:11:31
+Last updated: 05/18/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky2" id="linky1">30 Brilliant Comebacks People Weren't Ready For</a><br>
 
-<span style="font-size:4em">1. Men live life on the edge because it helps us treasure what we have. Also, were kind stupid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168902.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Hes right, its not work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168903.png" style="width:100%"><br>
+<span style="font-size:4em">2. Move your a** slow poke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168904.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If you think about it, a diaper is like a personal bathroom. Also its portable. Makes you think dont it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168905.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Dolly is a legend for this. God Id let her stuff me in her trunk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168906.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Heres one, boob. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The crossover nobody asked for. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168907.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Anyone else tried of this damn trial? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168908.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168909.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168910.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. We joke around a lot, but some of all need to read more. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168911.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168912.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168913.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Damn, those look delicatessen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167129.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Which way western man? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168914.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167134.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168915.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Its true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168916.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168917.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. God bless America. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168918.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168919.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168920.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. If you think sharks are scary try riding the A train at 3 in the morning. Only then will you know what true fear is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168921.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168922.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168923.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168924.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168925.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167154.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">These German Burger King Items Are Freaking Americans Out </a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">40 Fun Photos to Enjoy Irresponsibly</a><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168542.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168555.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168580.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Youtube Comments That Are Better Than The Video</a><br>
 
@@ -219,21 +293,59 @@ Last updated: 05/18/2022-09:11:31
 
 <span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">Don’t Tell HR That You Came in Your Pants</a><br>
+## <a href="#linky7" id="linky6">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+<span style="font-size:4em">1. A friend of mine works for a small luxurious hotel in London.He told me the concerge system there is absolutely absurd. Money buys everything.Anything the clients want, clients get. They are told never to say no, worst case they say I dont think this is really appropriateObviously drugs and escorts are a classic. He showed me 20 phone numbers of drug dealers in his phone to be able to get whatever drugs to the customers (he never buys though, only gets people in contact).And for harder tasks, he goes through professional concierges who charge A LOT.- You want a new Prada dress at 2AM for the party you are about to attend? Sure thing, lets wake a few people up, charge triple the price and split the benefit between people involved. Have a good night madam.- You want tickets for the Wimbledon final that takes place tomorrow? You have £20k? Enjoy the game, sir.But in some cases, they cant satisfy the customer. So when a couple of clients came back drunk asking him to have sex with the wife while the husband was watching and filming, he felt like it was a good time to say I dont think this is really appropriate. - Eco-reddit
+
+https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hotels_what_type_of/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169981.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+<span style="font-size:4em">2. My husband worked at several luxury hotels and residences (rich people who live at the hotels) and besides how absolutely disgusting everything inside the rooms actually is...I was most shocked by the behavior of the ultra rich.I’m not talking businessmen and doctors. I’m talking Saudi Princes and Heirs to Dynasty families. The level of comfort and technology these people have come to expect is things we cannot imagine.“What do you mean there isn’t there access to intercoms next to the bathroom for when I need services while going potty?” “The television inside the shower is only a 40 inch and there is no gold in this room I need a better suite”. “I’m gonna need you to go out, buy me better bedding, remake my bed, and then do it again tomorrow because I won’t sleep on the same bedding twice”.And that’s just the tip of the icebergs. - SpaceCatMatingCall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169982.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+<span style="font-size:4em">3. I spent 10 years in the boutique and 5 star hotel world. Got stories for days. But here is my favorite that sums up hospitality (former anyways).Our concierge was Les Clefs Dor, had all the connections, this dude could get you into the French Laundry same day. He would often greet guests with sangria and sprigs of mint from his garden. Sometimes he had lemon slices from his tree too! He loved to tell guests all about his garden and they ate it up.Yeah thats all bullshit. Mint, lemon, and any other garnish we got from the local grocery store. The sangria? Cheapest boxed stuff we could find. But he sold the story like no other. At the end of the day, it worked. - Duwinayo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169983.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+<span style="font-size:4em">4. Used to work in one two summers ago in a remote-ish place where we lived in accommodations across the street from the hotel. A lot of us have slept with each other (not me, had a gf at the time). And the busiest days are weekends, so we usually have Mondays off. Sundays were called Sunday Funday, where we would go to town or other peoples dorms, and do way too much coke. - Yunagi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169984.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+<span style="font-size:4em">5. Heres one taken from the opposite end. Im really bad at rolling joints. I left the shitty joint with my stash and papers on the dresser. I come back to a nicely rolled joint. I dont know if any was missing . But thank you Hard Rock LV staff. - J_Beyonder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169985.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+<span style="font-size:4em">6. I am a subcontractor that works in the It business and the W hotel in Miami beach has seen some shit. One day I come in to work and there is a big scramble at the upper floors( that is were the penthouse are) Seems this kinda known millionaire, had a little too much coke and god knows what else and was destroying the room. He was actually throwing furniture out the balcony, ripped everything out of the fridge, might of even thrown a mattress out the balcony. It was a big deal at the time but they keep it hush with no police involved, a guy that’s paying 9k-13k a night is not going to be arrested. When the team finally got into the room, there was cocaine all over the tables, bottles everywhere, and a couple of high class call girls that were in true fear. Next day they book the same room to Jennifer Lopez. - vamptholem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169986.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+<span style="font-size:4em">7. I worked at a Ritz Carlton a few years back, its literally the same as anywhere else. The hotel staff is amazing at their job, but on their personal time theyre just as fucked as everyone else.The kitchen staff had a few folks with drug issues and had to be sent home a couple times because of it. In my time there I saw 2 waiters get fired due to embezzlement. The turnover rate for management was very high because they didnt pay enough for the area. The staff parties were WILD to say the least.We werent allowed to greet celebrities by name since they wanted to be anonymous, so we would use their alias that day. Some were greeted by prostitutes or escorts who were always super nice to everyone. A regular would rent out a room for a day, once a month, and make 30-40k that day from clients. Celebrities, business guys, you name it. Crazy. - Mubly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bedbugs. Every single hotel from run down motels to 5-star resorts has dealt with bedbugs. - Soullikeether</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My SO worked for a fancy hotel. The building owners (not the chain, the actual building itself) came to visit. He was on the Forbes billionaire list.He was a nice man who had buffet lunches everyday and tipped every staff members he saw a crisp $100, every time he saw them.House keeper walking past? $100. Bar tender setting up? $100Shift swap? 100 on the way in and out. - paperconservation101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A lot of lonely people going on vacation to end their life. Happens a lot but is never mentioned on the news. - Cool-Lemon-7662</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Worked at the high end restaurant at a ski resort that hosts a famous film festival.Lots of sex in the walk in coolers, but never the people youd want to walk in on. - johnnycakeAK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Never trust glass in rooms. GRAs are so stretched thin on time that they will clean the glasses with the same rags they clean the bathroom, after all their goal is to make the room look clean.I worked as a GRA in a five diamond for years and there was over a year period that went by where we didn’t get a clean glass delivery. We didn’t have dishwashers in the room, so management was complicit. This was in a five diamond, one of the top resorts in the world. Never trust glass in hotel rooms. - WitcherOfWallStreet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Didn’t work at one, but delivered newspapers to one.The prostitution thing was something the desk saw a lot. The best one was when the gentlemen got robbed by two young ladies and immediately demanded the front desk call the cops. When the desk asked if he wanted to call the cops and tell them he hired two hookers (illegal)... he suddenly just grunted and marched up to his room. - Who_dat_22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When we see instagram influencer on your booking, we roll our eyes. - bhs1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. At a certain Beverly Hills hotel, where I valet’d for a short amount of time, many stars cars are just left there. They come and get them whenever. There was also a code name for Justin Bieber who visited often (I can’t remember it). He picked it himself. His G-Wagon and a Bentley were just kept down there free of charge. Usher also left his bike there a few years back and has just never collected it. - Oddwrld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Dead people. In some places theres a reasonable chance somebody has died in your bed. Obviously it varies with the type of hotel and its clientele, but some places you get deaths weekly (not that the hotel is unsafe but unfit old people over exerting themselves). One place I worked maybe 40% of the beds had been died in.Bedbugs. They happen in every hotel. You might be paying $5k a night but your luggage was in the hold with everyone elses. If theres only one or two bugs and none in the adjacent rooms (diamond style, so above, below, and both sides) then you brought them in.You know what I never saw happen? Maids stealing. Everyone always points at the maids when they lose stuff but we always found it. No way the maids are risking their jobs over your used iPad or mall jewelry. With tips they make pretty decent money. - KaneMomona</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. coke. lots of coke. - explainchampagne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I worked at a 5 star hotel in England as a bartender. Hosted events and stuff. One thing that was common was my manager would just spam extra drinks onto the bill at events to make more money. Or for example if a big wedding ordered 50 bottles of champagne, they’d only give them 30 and would keep 20 back and if they ran out, they’d have to buy more. I reported this to Senior management and they just laughed saying it’s normal. I actually got told off for not taking part in this. - datguywilld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. What goes on the room next to you. This week we to evict and have arrested a couple for causing over $15K in damages to a room. This was done quietly late at night and the nearby rooms never found out. - counterslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. We don’t bat an eye at prostitution or whatever goes on in the rooms as long as it doesn’t affect other guests. Half the women that come to the bar are working girls looking for a sale. The only thing that the hotel industry ever really reports is human trafficking. There are tell tale signs and if something doesn’t add up we do report it to local authorities.I don’t know about all 5* hotels but I’m sure this happens at most of them. Front desk/reservation staff will basically stalk you online if you’re a notable VIP and your picture will be shared internally to ensure everyone recognizes you so you feel special when you arrive and everyone already knows who you are. - NaniBakaNani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I was a valet in college at a very swanky resort. The members had a certain sticker on their car and the owners/partners have a black sticker (which I had no clue) but knew they belonged. When a guy pulled up in a very nice Benz I said, “welcome back (not knowing his name). He was so pissed that I didn’t know who he was, he was an ass to me but I couldn’t care less. Moments later another younger guy pulled up to valet and asked me what the guy said to me. I hesitantly said he was mad I had no idea who he was. The young guy (looked disappointed) and said “that’s my father and he is an a$$hole, don’t worry about him at all.” Then he gave me $20 to park his car and was extremely nice to every employee who ever interacted with him. - batmanlovespizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Not a 5 star hotel, but I worked at a Hilton in Seattle and we had a furry conventionOne of the cats pooped in the elevator - northwesthonkey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I use to work events at hotels and one time we had a guest break their wine glass inside a water refill barrel ... I left work for two weeks to go on vacation and when I came back, all the glass was still piled inside the water refill barrel. People must have been drinking out of it because there were events booked while I was gone - damien_gray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. LOTS of prostitution and all the drama/legal trouble that goes along with it. Corporate functions like conventions, parties, etc where theres an open bar almost always leads to something fucked up happening. One hotel I worked at hosted a Christmas party for an investment firm and two guys started jockeying for the affections of a female coworker. They all wound up on an elevator together and the guys started fighting, the elevator went in to safety lock down, we had to call the PD and the FD. One guy went in a squad car, one guy went in an ambulance, we had to give the woman some clothes from lost & found because he dress was covered in blood and the elevator was out of service for six hours to clean it up. Theres always a ton of back of house drama, too. Especially among the execs and the junior managers. Affairs, backstabbing, a little light fraud. You know, the usual. - weirdoldhobo1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I dont work in one anymore, but used to. This isnt really shenanigans, but: the staff is not nearly so impressed by famous or rich people as some of them seemed to think we should be. It was a fancy hotel. We had rich and famous guests all the time. And it was usually the ones nowhere near the top of the ladder who tried to be the most imperious and expected the most deference. If you have to try to convince us youre high status, you arent. Wed provide polite, professional service for all our guests and try to be helpful and accommodating, but being a C-list actor or whatever isnt going to get you a table in a full restaurant or an upgrade to the already-occupied fancier suites. And if theres a severe blizzard and the airport is closed, we cant open it for you because youre too special to have to wait to fly out. Even if youre a Very Important Businessman. - FranzLuciferdinand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170005.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">24 Disturbing Facts That Ruined Our Day</a><br>
 
@@ -285,175 +397,23 @@ Last updated: 05/18/2022-09:11:31
 
 <span style="font-size:4em">24. Llama spit is actually projectile vomit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167876.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">40 Fun Photos to Enjoy Irresponsibly</a><br>
+## <a href="#linky9" id="linky8">Don’t Tell HR That You Came in Your Pants</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168537.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168540.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168541.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168542.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168543.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168544.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168545.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168555.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168556.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168557.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168558.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168559.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168560.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168561.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168562.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168563.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168564.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168566.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168567.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168569.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168570.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168580.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87168581.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">21 People Having a Rough Day</a><br>
-
-<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">21 Pictures That Will Make Your Eyes Orgasm</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">America’s Greatest Living Old People</a><br>
+## <a href="#linky10" id="linky9">America’s Greatest Living Old People</a><br>
 
 <span style="font-size:4em">1. Dolly Parton better not f*cking die before I do. -u/TyCooper2010</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168663.jpg" style="width:100%"><br>
 
@@ -504,7 +464,163 @@ Last updated: 05/18/2022-09:11:31
 
 <span style="font-size:4em">24. Clint Eastwood, I guess. That man ages like an oak. -u/unofficialShadeDueli</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168685.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+## <a href="#linky11" id="linky10">These German Burger King Items Are Freaking Americans Out </a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020420/87168532/German-burger-king-menu7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020431/87168534/German-burger-king-menu1.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020427/87168533/German-burger-king-menu2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020405/87168529/German-burger-king-menu5.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020357/87168528/German-burger-king-menu3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020408/87168530/German-burger-king-menu6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/020416/87168531/German-burger-king-menu4.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. Men live life on the edge because it helps us treasure what we have. Also, were kind stupid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Hes right, its not work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168903.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The crossover nobody asked for. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Anyone else tried of this damn trial? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168909.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. We joke around a lot, but some of all need to read more. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168911.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Which way western man? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Its true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. God bless America. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. If you think sharks are scary try riding the A train at 3 in the morning. Only then will you know what true fear is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168921.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168923.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">21 Pictures That Will Make Your Eyes Orgasm</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">21 People Having a Rough Day</a><br>
+
+<span style="font-size:4em">1. Looks like I’m walking to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168446.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. I really should’ve tied my hair together. Still have much left but damn that hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168451.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Was having a nice relaxing chat with my girlfriend before she went to work, then boom!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168456.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Got laid off today with zero notice, found all my stuff already in a box when I got to work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168436.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Was standing in the grocery store when the ceiling tile above me fell, hit me in the head, followed by a few gallons of dirty water. I was completely soaked and employees didn’t do anything.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168438.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Today I learned that a coffee pot can explode.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168439.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. My cat had a tick that had a tick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168440.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Just bought this underwater protective case in Thailand and went swimming with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168441.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Take the day off to renew my tag and…its a government holiday?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168442.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Post heart surgery dinner…..Germany</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168443.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. Went to the doctor for a physical, came out with anxiety, depression and Type 1 diabetes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168444.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Had my catalytic converter stolen twice now. Wish me luck on #3 (actual photos)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168437.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. 1st attempt at smoking a brisket – Happy Mother’s Day!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168445.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. Found my car like this when I took a break at work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168447.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. I am getting married tomorrow. Celebration will be at our Home. This is the street right in front of my house today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168448.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. Amazon literally sent me an empty bag and the delivery picture shows it was open. (Say hi to my invisible graphics card)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168449.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Someone hit my car and painted it with house paint.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168450.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. My university just increased housing costs by 20% and is cutting scholarships but they still have the money to fund research into creating these mini goofy ass lemons.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168452.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. Realized after several months that this is not lip balm.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168453.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. Today, I visited my hometown and insisted we go to see a specific glass wall which I remembered as a glistening, magical rainbow masterpiece. Boy was I disappointed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168454.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Put a suction cup on my forehead having fun with my child. Now I’ve got a round bruise that won’t go away and a meeting with my manager in the morning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168455.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
 
 <span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
 
