@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/19/2022-13:11:31
+Last updated: 05/19/2022-14:11:31
 <br>
 ## <a href="#linky2" id="linky1">47 Dank Memes Hand Selected For You</a><br>
 
@@ -97,109 +97,89 @@ Last updated: 05/19/2022-13:11:31
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168207.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
+## <a href="#linky3" id="linky2">20 Jobs That We Have Zero Respect For</a><br>
 
-<span style="font-size:4em">1. It will take only a rock with a width of 0.6 miles to threaten our entire species existence. Even smaller rocks of around 130ft across can cause our planet cataclysmic damage.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110931/87169216/disturbingfacts10.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The person you marry is the person most likely to murder you!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110942/87169218/disturbingfacts12.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Sherpas use dead bodies left on Everest to understand their locations.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110909/87169212/disturbingfacts7.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. In WW2 Japan bombed China with bubonic plague infected fleas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110846/87169210/disturbingfacts2.png" style="width:100%"><br>
+<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Your body is fully developed by 24, and not long after you reach that you just start to die, no getting better.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110857/87169211/disturbingfacts4.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. You can make dead bodies make sounds with their vocal cords while theyre being embalmed.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110916/87169213/disturbingfacts5.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A 42-year-old woman in Delaware committed suicide and it was mistaken for a Halloween decoration.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110825/87169208/disturbingfacts1.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Drowning is quiet, and most kids drown right in front of the person that’s supposed to be watching them.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110920/87169214/disturbingfacts6.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. The act of hitting someone in the head won’t actually knock them out. It’s more likely to kill them. In movies, you see people hit a person on the head with something heavy, like a book or a brick or even heavier items. This won’t knock a person out so much as give them a concussion or flat out just kill them - our heads are pretty fragile.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110927/87169215/disturbingfacts9.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Approximately 5 lbs of your body weight is bacteria.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110835/87169209/disturbingfacts3.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Sperm can be ejaculated at up to 42 mph.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110938/87169217/disturbingfacts11.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. In America less than 9% of recyclables are actually recycled.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110949/87169219/disturbingfacts13.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. In the Czech Republic, there is a church that is decorated with the bones of 10,000 dead people.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110951/87169220/disturbingfacts8.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Because their necks are so long, it takes a giraffe 30 minutes to throw up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110953/87169221/disturbingfacts14.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Adult teeth in toddlers are right under their eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111001/87169222/disturbingfacts15.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. If your stomach didnt develop a new layer of mucus every two weeks, the acids would cause your stomach to dissolve.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111003/87169223/disturbingfacts16.jpg" style="width:100%"><br>
+<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. You need to rotate a human head 3 times to fully decapitate it because of the elasticity of the skin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111004/87169224/disturbingfacts17.png" style="width:100%"><br>
+<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Studies have shown that 95% of drivers think they drive better than average.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111012/87169225/disturbingfacts18.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Statistically you will walk past 14 murderers in your lifetime and without realising.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111014/87169226/disturbingfacts19.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Algeria’s national anthem was written in blood on the wall of a prison cell.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111015/87169227/disturbingfacts20.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. People with night terrors dont remember them. So if you never told them they had night terrors they would go their whole life thinking they slept well.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111024/87169228/disturbingfacts21.png" style="width:100%"><br>
+## <a href="#linky4" id="linky3">20 Animal Facts That Are Totally Messed Up but Completely True</a><br>
 
-<span style="font-size:4em">22. Edgar Allen Poe wrote a novel in 1838 in which 4 shipwrecked survivors, at the point of starvation, choose to resort to cannibalism. So they kill the young cabin boy, Richard Parker, and eat him. In 1884, a ship called the Mignonette sank. 4 crew members survived. At the point of starvation, they killed and ate the youngest of them: Richard Parker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111025/87169229/disturbingfacts22.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There are lizards that can literally squirt blood from their eyeballs. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014822/87171235/blood.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Child labor is not banned in the US, for farm labor. Less than a handful of states in the US have totally banned slavery. Colorado was the first, in 2018. Yes, you read that year right. There was once an effort to ban child labor by constitutional amendment. It didnt pass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111026/87169230/disturbingfacts23.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Female butterflies have teeth in their reproductive systems. -Ceejay4444</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014826/87171236/butterfly.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Every time you remember something, youre just remembering the last time you remembered it. Thats why they are unreliable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111035/87169231/disturbingfacts24.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. The Cordyceps Fungus grows inside an insect’s body, infects the brain and makes it kill itself (broadly speaking). Fortunately only works on insects. -Mousse9</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014832/87171237/cordycep.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Floating in outer space has what’s called “micro gravity”. It’s not a free floating feeling like in a pool but actually feels like the moment before you drop when falling.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111037/87169232/disturbingfacts25.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Dolphins are intelligent enough to commit suicide. -Ulfricstorm192</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014837/87171238/dolphindeaths.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Sharks arent just older than the first trees but also the rings of Saturn.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111046/87169233/disturbingfacts27.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Male dolphins will kill a female Dolphins baby in order to force her to make them a kid. Female Dolphins found the best possible way they could to counter that. Females will f**k every male dolphin they can until they give birth. Why? Well, So all these males can go Ho shit, maybe thats my kid and not only will they protect her from danger, but theyll also protect the kid. -Realistic-Werewolf-1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014844/87171239/dolphins.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. The Challenger crew compartment stayed intact after the initial explosion, and for three of them their emergency air systems had been manually activated. So not only did they survive the explosion, but its entirely possible the crew was alive and conscious during their entire descent back to Earth.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111048/87169234/disturbingfacts26.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. You’re more likely to be killed by a cow than a shark. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014847/87171240/cow.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">23 People Who Think They're Way More Tough Than They Are</a><br>
+<span style="font-size:4em">7. Female ferrets die if they do not mate once they go into heat. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014854/87171241/ferrett.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Male giraffes will head-butt a female in the bladder until she urinates, then it tastes the pee to help it determine whether or not the female is ovulating. --eDgAR-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014858/87171242/giraffe.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Horses cannot throw up. -Ceejay4444</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014905/87171243/horse.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. The honeybees you see in your yard are in the last 2 to 3 weeks of their lives. -Fit-Environment-8140</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014908/87171244/honeybee.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. House cat sex is basically BDSM. His penis has backward-bent barbs that will hurt her when he pulls out (the pain triggers ovulation). In turn she will hit him with her paws after that. -ronin668</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014916/87171245/housecat.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Kangaroos will drown you for the hell of it if given the opportunity. -Ok-Peak-3012</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014919/87171246/kangaroo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. When a Lion takes over a pride, they will kill the offspring in the pride to get rid of future rivals and send all of the lionesses into heat. -SnooChipmunks126</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014927/87171247/lion.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Lobsters brains are located in their throats. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014930/87171248/lobster.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Hyenas give birth through a vagina/penis and most pups dont survive. -Big-Pollution2705 </span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014937/87171249/hyena.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Pigs will eat a human body whole, bones and all. Good for getting rid of a body. Beware of pig farmers. -DazDay</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014948/87171251/pig.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Pelicans will walk through flocks of other birds and just pick up baby chicks and eat them alive. -Big-Pollution2705</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014959/87171252/pelican.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Sand Tiger Sharks eat each other while still in the womb. The momma shark has (I’m not entirely sure) at least a hundred eggs, and once they “hatch” inside her, they’ll eat each other, and usually just one or two make it out of the womb. -Chonky_railway</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015011/87171253/sandtiger.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Tasmanian devils live in burrows. A male will break into a females burrow and attack her. He will hold her hostage for days, biting and clawing at her refusing to let her leave her burrow until he wears her down and lets him mate with her. -c-est-magnifique</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015021/87171254/taz.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Out of sheer sexual frustration, male otters will rape baby seals if there aren’t any female otters around. -Murrnath</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015320/87171262/otters.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
 
@@ -305,57 +285,117 @@ Last updated: 05/19/2022-13:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Things We Were Hyped For That Completely Flopped</a><br>
+## <a href="#linky7" id="linky6">55 Radical Randoms and Magnificent Memes Anyone Can Enjoy</a><br>
 
-<span style="font-size:4em">1. Power Glove. It sucked and Ill never forget it. -u/Ekh0es</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170174.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124703/87170206/87033382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Google Plus. They made us wait for a very long time with the invite-only feature. People forgot about it when it was released. -u/introvertboyme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170175.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Dark Tower movie with Idris Elba. -u/urchisilver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170176.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125049/87170235/87169544.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Sim City 5. Good god what a horrid mess. First week or more of the release you were lucky to play because you could only play it online on their servers that were constantly full. Then once you hit like 50k people in your city the game was uncontrollable. You would literally run out of water and no matter what you did, traffic took the shortest path so constant traffic and thus emergency vehicles couldnt move so everything went to hell fast. -u/InsertBluescreenHere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170177.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Google Glass: futuristic smart glasses. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170178.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. M. Night Shyamalans Avatar movie. He broke my heart. -u/Suspicious-Elk-3631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170179.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124652/87170204/87029692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The Zune. Larger capacity, color screen, could play movies, and cost less than an iPod. Personally, I think it was an awesome device, but ultimately it failed. :( -u/TSwizzlesNipples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170189.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168716.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Yandere simulator years ago. -u/grossjuice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170180.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168717.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">9. When Geraldo Rivera opened Al Capones vault. -u/miurabucho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170181.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168714.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Being an adult. -u/marr318</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170182.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168705.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Anthem. I didnt even find the flying that great. It was kinda fun, but the gunplay was so insanely boring and the world-building was so poorly executed. And holy Christ was the writing trash. I played it with a friend and had low expectations, but it failed to meet even those. -u/NobilisUltima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170183.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168724.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Second go around of Arrested Development. Deep inside I knew they’d never be able to capture that magic. Still, told myself they could. Narrator: They couldn’t. -u/AreaGuy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170184.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168719.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Every New Year’s Eve party ever. -u/PollyWentlightly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170185.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124918/87170230/87169515.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The PS Vita. I wouldn’t say it was a total flop but it deserved so much more support and a better life than it had. -u/GhostRN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170188.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. 3D TV. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170186.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124813/87170218/87041050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Pacific Rim 2. What the f*ck was that? -u/Accurate_Western_346</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170191.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124843/87170223/87167006.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I remember being hyped for the Suicide Squad movie back then and left the cinema severely disappointed. -u/mj-gaia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170187.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125100/87170237/87169546.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Having a career. Our whole life built up to this….and its just mediocre, and NOBODY knows what they are really doing. -u/SnooPandas1674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170192.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Segway. Mind you, it was billed as something that would change mankind. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170193.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124643/87170203/87029689.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Last season of GOT. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170190.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124610/87170199/87026010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Fallout 76. Was happy to finally have a Fallout with multiplayer, but was too buggy to have any fun at launch. -u/KrogtDK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170194.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Mobile gaming. -u/xx_DEADND_xx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170195.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168713.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The Hobbit movies. Im a huge LOTR fan and they are just meh. The magic was gone. They should have made one film closely following the book. -u/feta_morgana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170196.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The Fantastic Beasts films. -u/kukukele</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170197.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168715.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124621/87170200/87026021.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124632/87170201/87029674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124641/87170202/87026008.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124656/87170205/87029694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124707/87170207/87033385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124714/87170208/87033390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124718/87170209/87033398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124725/87170210/87033411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124729/87170211/87033417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124736/87170212/87033418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124740/87170213/87033420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124747/87170214/87041029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124751/87170215/87041035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124758/87170216/87041037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124802/87170217/87041049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124821/87170219/87166980.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124824/87170220/87166986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124832/87170221/87166992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124835/87170222/87166994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124854/87170225/87169510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124845/87170224/87167011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124856/87170226/87169511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124905/87170227/87169512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124907/87170228/87169513.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125027/87170233/87169540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125038/87170234/87169533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125057/87170236/87169529.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
 
@@ -627,7 +667,63 @@ Last updated: 05/19/2022-13:11:31
 
 <span style="font-size:4em">30. that January is the first month of the Gregorian calendar because it is named after the roman god of all beginnings, Janus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169966.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">45 Fun Photos For Your Enjoyment</a><br>
+## <a href="#linky13" id="linky12">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
+
+<span style="font-size:4em">1. It will take only a rock with a width of 0.6 miles to threaten our entire species existence. Even smaller rocks of around 130ft across can cause our planet cataclysmic damage.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110931/87169216/disturbingfacts10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The person you marry is the person most likely to murder you!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110942/87169218/disturbingfacts12.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Sherpas use dead bodies left on Everest to understand their locations.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110909/87169212/disturbingfacts7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. In WW2 Japan bombed China with bubonic plague infected fleas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110846/87169210/disturbingfacts2.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Your body is fully developed by 24, and not long after you reach that you just start to die, no getting better.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110857/87169211/disturbingfacts4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. You can make dead bodies make sounds with their vocal cords while theyre being embalmed.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110916/87169213/disturbingfacts5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A 42-year-old woman in Delaware committed suicide and it was mistaken for a Halloween decoration.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110825/87169208/disturbingfacts1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Drowning is quiet, and most kids drown right in front of the person that’s supposed to be watching them.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110920/87169214/disturbingfacts6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The act of hitting someone in the head won’t actually knock them out. It’s more likely to kill them. In movies, you see people hit a person on the head with something heavy, like a book or a brick or even heavier items. This won’t knock a person out so much as give them a concussion or flat out just kill them - our heads are pretty fragile.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110927/87169215/disturbingfacts9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Approximately 5 lbs of your body weight is bacteria.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110835/87169209/disturbingfacts3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Sperm can be ejaculated at up to 42 mph.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110938/87169217/disturbingfacts11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In America less than 9% of recyclables are actually recycled.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110949/87169219/disturbingfacts13.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In the Czech Republic, there is a church that is decorated with the bones of 10,000 dead people.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110951/87169220/disturbingfacts8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Because their necks are so long, it takes a giraffe 30 minutes to throw up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110953/87169221/disturbingfacts14.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Adult teeth in toddlers are right under their eyes.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111001/87169222/disturbingfacts15.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If your stomach didnt develop a new layer of mucus every two weeks, the acids would cause your stomach to dissolve.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111003/87169223/disturbingfacts16.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. You need to rotate a human head 3 times to fully decapitate it because of the elasticity of the skin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111004/87169224/disturbingfacts17.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. Studies have shown that 95% of drivers think they drive better than average.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111012/87169225/disturbingfacts18.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Statistically you will walk past 14 murderers in your lifetime and without realising.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111014/87169226/disturbingfacts19.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Algeria’s national anthem was written in blood on the wall of a prison cell.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111015/87169227/disturbingfacts20.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. People with night terrors dont remember them. So if you never told them they had night terrors they would go their whole life thinking they slept well.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111024/87169228/disturbingfacts21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. Edgar Allen Poe wrote a novel in 1838 in which 4 shipwrecked survivors, at the point of starvation, choose to resort to cannibalism. So they kill the young cabin boy, Richard Parker, and eat him. In 1884, a ship called the Mignonette sank. 4 crew members survived. At the point of starvation, they killed and ate the youngest of them: Richard Parker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111025/87169229/disturbingfacts22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Child labor is not banned in the US, for farm labor. Less than a handful of states in the US have totally banned slavery. Colorado was the first, in 2018. Yes, you read that year right. There was once an effort to ban child labor by constitutional amendment. It didnt pass.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111026/87169230/disturbingfacts23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Every time you remember something, youre just remembering the last time you remembered it. Thats why they are unreliable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111035/87169231/disturbingfacts24.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Floating in outer space has what’s called “micro gravity”. It’s not a free floating feeling like in a pool but actually feels like the moment before you drop when falling.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111037/87169232/disturbingfacts25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Sharks arent just older than the first trees but also the rings of Saturn.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111046/87169233/disturbingfacts27.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. The Challenger crew compartment stayed intact after the initial explosion, and for three of them their emergency air systems had been manually activated. So not only did they survive the explosion, but its entirely possible the crew was alive and conscious during their entire descent back to Earth.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111048/87169234/disturbingfacts26.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">45 Fun Photos For Your Enjoyment</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87170454.jpg" style="width:100%"><br>
 
@@ -700,139 +796,6 @@ Last updated: 05/19/2022-13:11:31
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87170496.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87170497.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">30 Surprising Stories From People Who Were Stuck in Comas</a><br>
-
-<span style="font-size:4em">1. I was in a coma for three days after a car accident where I hit my head. Pretty much, I was driving then I saw the color purple, and then I woke up three days later. There really was nothing. Its not even like sleeping because when you wake up from sleeping, you know you were asleep. It is like blinking; one second you are doing something, then the next something totally different. I do have a vague memory of being on a table with a cute guy wiping my nose and it hurting really bad. I remember saying, You are super cute, but thats all.
-
-I believe that was before I went into the coma after the accident. I had a brain bruise or something like that, and it caused speech problems for about six months after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A friend of mine was in a 6 month coma after an accident. Afterwards he made sure to tell everyone around him to talk to people in a coma because they can hear you. BUT he noted that they should always tell the person in a coma what happened, where they are and whats happening to them because he said that his moments of lucidity were mixed with some truly horrifying dreams and he had trouble distinguishing between what was real and what were dreams. He said he just wanted to be told what was real and what was happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I spent eight days in a coma last year after a particularly traumatic surgery, my waking thoughts were wondering if I had died or made it. I couldnt open my eyes, and I was on a medical air mattress, so I felt like I was floating; this lead me to think that I had died, and I remember thinking it wasnt so bad and wondering if my dad would come find me. Once I realized that I was still alive, I thought I had been injured fighting in a war and worried that my wife might not know I was still alive. Trying to communicate with the nurses while intubated and drugged was very difficult.
-
-What I learned later from my wife is that she was there the whole time and while I was fighting against the doctors and nurses, I would immediately calm down and cooperate when she held my hand and sang to me. It still brings tears to my eyes to think of the love and devotion she has shown to me during this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I was in a coma for four days. When I woke up, everyone was talking about the baby boy I had. I had lost my long-term memory and didnt even remember being pregnant. My son was at the childrens hospital in the NICU. I delivered him via C-section at 29 wks. All this was due to me having Crohns disease (which I found out after I woke up); my colon had ruptured during my pregnancy. My husband said I was talking like a child when I first woke up.
-
-When I woke up, I felt super tired, but then the next few days, kinda restless. I remembered one conversation my mom had with a nurse while I was under. After a couple of days, I got my long-term memory back and remembered everything up until my second surgery then nothing until I woke up. My son was my third surgery. So, my son was what surprised me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A friend of ours fell into a coma at age 25 (around 1992) and woke up at age 36 (around 2002). She was a Rhodes Scholar nominee (I think, second-hand information) and quite brilliant. She was still 25 mentally — as if everything was just on pause. Her body was really well-preserved; shes really fun and cool and sort of the ultimate cougar. Plus, she totally woke up to the internet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This is really bizarre, but my uncle — a very serious, strict, and rather dry man — had an accident and went into a coma a few years back. He never believed anything he couldnt touch, no talks about souls, or anything similar. But he was in a coma for a few weeks until he woke up and had this crazy AF story. He said he saw himself in a bubble, floating around in a white place, and it was peaceful and beautiful. But then, he said there were other bubbles he could see around him, and they had other people in them. He distinctly remembered a black-haired woman singing in the bubble closest to his, until one day, her bubble burst, and she disappeared. When he woke up, he could give a very clear description of her body, age, and all that. Now heres the wild part...
-
-There was a woman, one floor below him, in a coma who sadly had passed away before he woke up. You guessed it — black hair, age, body all correct. He had never met or seen this woman in his life. His whole idea of life changed after this. It still makes me think sometimes... Where was he? He thinks all the people in bubbles around him were patients in the same hospital. Could it be? Well probably never know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My friend was in a coma about ten years ago for roughly three weeks. Car accident. When he woke up we visited him and when I was alone with him he told me it was like a lucid dream. The real world was gone and he felt like he was in a world he could create himself for years. He was dead serious too, he talked on and on about how he had a slight understanding that he was not in the real world anymore and that he thought he might be in heaven. About how he felt like he was actually dying and his last few second just stretched on and on forever. He said thats what it felt like. He mentioned that he could fly (in the coma dream) and that it was amazing. He spent a little while in the hospital, then went home, did physical therapy for about two weeks before killing himself with pain pills and vodka. People thought the pain was too much, that it was an accidental overdose, or that the therapy and the accident made him feel helpless and depressed. Honestly, I think he wanted back into his lucid dream world. The way he talked about it was like the best thing he ever experienced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I was in a coma for nine days. When I woke up, I was still on a ventilator. When they took me off the ventilator, my body didnt remember to breathe on its own. I literally had to relearn how to breathe. It took me a few days; I had no natural sense for how deeply to inhale, how long to hold it, how long to exhale. I had to put all my mental focus on breathing. It was really weird.
-
-For all the people wondering how I slept, I didnt for the first couple of days. If I dozed off, my blood O2 monitor would start beeping and wake me up, then a nurse would yell at me from across the ICU to remember to breathe. I couldnt talk because Id had the tubes down my nose and throat, but I remember one time I woke up, really exhausted, to that damn beeping. So, I started focusing on breathing again, but I was really angry about it. My nurse came running over yelling at me to breathe. I glared at her, and screamed in my non-existent voice, I. AM. She must have read my lips and felt the rage because she just put her hands up and said, All right. All right. Good job, then walked away. My ability to breathe normally was back within a month or so, and my health is good nowadays, so I wouldnt say it had any permanent effects.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I was in a medically induced coma (with induced, full-body paralysis) for six weeks. There were a handful of times that I distinctly remember where I woke up in my head. What was the experience like? It sucked.
-
-When I would wake up in my head, I had no idea as to what had happened. So, Im fully conscious, I know that Im me, but I cant open my eyes, I cant move a muscle and I cant speak. The first time it happened was terrifying. I started to panic and for a minute there, I thought I might be dead. Then I realized that I was thinking, so that didnt seem right. I tried to move and couldnt. I tried to speak and couldnt. I tried to scream and couldnt.
-
-The next time it happened was when my best friend came to see me. Again, I cant move, I cant see, and I cant talk. But when I woke up in my head, I could feel her holding my hand and asking me to squeeze if I could hear her talking. I tried as hard as I could to squeeze my hand, and I could feel it doing absolutely nothing. When she let go to walk away, I was completely devastated. I tried to scream for her to stay, but obviously, nothing happened. However, I was so glad that people I knew were there wherever I was and that I was getting help (even though I felt completely helpless). That kind of helped. I had to calm myself down again so that I could drift off again.
-
-When I was finally brought out of the coma, my parents were there and that didnt make any sense because my parents lived two states away at the time. I eventually learned that they had been there the entire time. They dropped everything in their lives and came to be with me and stayed there throughout the entire ordeal. After a couple of days (I think), some doctors came in and asked me a bunch of questions. The first question was what year it was — that I knew because I remembered getting sick on New Years Eve, so I knew it was 2000. Next was who the president was. I answered Clinton, so I got that right. Then they asked if I knew where I was. I assuredly said, Honolulu because in my dreams, I had been in Honolulu. When all of their faces had that confused Scooby Doo look is when I realized that wasnt quite right, so I figured that I must have been back in Salt Lake City (somehow). They appeared quite relieved when I came up with that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ooh I can answer this one! I was in a medically induced coma for two weeks, about 3 months ago. I had open heart surgery, it didnt go well, had trouble coming off the ventilator so they just put me in a come to try to give me time to heal.
-
-I had nightmares the entire time from the medicine they were using to knock me out. I thought I had been kidnapped by a nurse and was a victim of sex trafficking. I thought my drug addict aunt had her friends rob my sister and her husband, killing my brother-in-law and one of their children, and I thought I was constantly being grabbed by people under my bed. It was not fun.
-
-I cant say that I knew I was in a coma or anything. I am usually one of those people that when I have a bad dream, I can tell myself it is just a dream and wake myself up in order to end it. This was not like that. I was convinced it was all really happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dunno. I was in a coma for 11 days, severe brain injury. I don’t remember being in a coma or waking up from a coma. I lost several years of memories prior to the coma, and my brain didn’t really start to “retain” information again until ~6 weeks after I came out of the coma.
-
-I’m told that my personality changed afterwards. I had to rebuild most areas of my life. It sucked, but it was probably a good thing.
-
-Although I’d be lying if I said I never wondered what my life would be like if I’d never had the coma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was out for 45 days, no white light, no tunnel, nothing. Woke up and couldnt remember who I was. For six months, never really fully recovered so I just started life again. Turns out Im a completely different person than I was and that is a really good thing. I get memories now and then, they arent pleasant. A woman came and sat by my bed for six weeks, turns out she was my ex lover. I couldnt remember her. Didnt recognize my mother.
-
-*** Afterward** This is the second time in my life I have related this much about my life publicly and it has been good and at the same time really painful. Thanks to everyone for being kind. I wrote this story seven months ago and published it in the lounge and I really hurt my self doing it. This time I wanted to share about the life afterwards and I hope it has been of some benefit to others that struggle with mental issues. This place saves lives, gives hope and guidance to millions of people and i feel lucky to be part of the community.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. After being in a really bad accident that left one of my good friends (the driver) brain dead, they put me into a chemically induced coma for under a week to prevent brain damage due to swelling.
-
-When I first woke up, my memory was much better than it was as it gradually faded in the days to come. I have a journal my mother recorded things in, and I recalled many things I shouldn’t have been able to immediately after waking up. Today, I have very little memory of it all, but I can definitely say that having positive people around you definitely helps when you’re in a situation like that.
-
-If you have a friend in this situation, don’t disregard them. Even though your life has moved on, they may wake up one day, and in their mind, not a day has passed since the last conversation they had with you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Im a burn survivor — I was in an explosion in my backyard when I was seven years old. Whilst I was in the hospital, I was in a medically induced coma to make my chances of surviving higher. I do remember a few things that happened while I was in said coma; I remember my father reading the seventh book of the Magic Tree House series to me, and I remember hearing the screams of new patients that would come in, but I couldnt move my body at all, nor could I give any signs that I could hear my family or medical staff.
-
-I spent two weeks in the coma and another 48 days. Today, Im a happy, healthy 17-year-old. If I can say anything about what happened that day, its that it changed my life for the better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I was in a medically induced coma following a self-inflicted gunshot wound. I dont remember much but my family described moments of me appearing to be awake. Most notable, an apparent attempt at humor. Apparently they put these mits on my hands to prevent me from ripping my ventilation tubes out over and over but I pretended they were my lobster claws. I have no recollection but its a real me move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 3 month coma here. I did know I was in a coma, but had no sense of time. I had some minor awareness of what was going on around me, sort of the inverse of a dream. Speaking of dreaming, I learned lucid dreaming. I remember using Legos to build walls against the pain. I remember alternating between feeling like I was freezing and on fire and used my newfound lucid dreaming powers to try to mitigate those feelings. I remember writing a book in my mind, and visualising it like a movie as I wrote it. I remember feeling the tears of my wife and hearing her cry, and talking about how she was running out of strength. I remember wanting to comfort her, I remember wanting to tell her about the book I was working on.
-
-When I came out of it the next 6 months were hell. I had no appetite but somehow gained 40 pounds pretty quickly. I felt like my whole nervous system was off by a millimeter and had to relearn touch typing. Ive never recovered the energy I had before. I lost the ability to lucid dream. Itll happen sometimes, but very rarely. I held onto to the details of the book in my mind for about two days, which wasnt nearly long enough to write it all down, especially since I had to relearn touch typing. There were times in that first six months I wished I was back in the coma.
-
-That was three years ago but I only have about $30k of debt left. Ill never be able to buy a house. Due to the debt I lost my security clearance, which cut off my entire career track. I still feel bad for my family having to go through that but I think it made us closer. Im happier with what I have, and grateful for the small things in life, which is fortunate because beforehand I was very driven and ambitious. Now Im more cautious and reserved. Me of three years ago wouldnt like me now. Hed think I gave up and should work harder for more tangible success. Current me is happy with the love and loyalty of my family.
-
-Sometimes though I miss the ability to create fully fleshed out worlds in my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I was in a coma for about two weeks following a cardiac arrest as a teen. I was technically dead for over an hour, in fact. People often ask me if I could hear my family talking to me or if I was dreaming. The answer is No.
-
-There is a huge hole in my memory beginning about two weeks before the coma through a week after waking up. And waking up is in quotes because I would wake up, ask a bunch of semi-incoherent questions, fall back under, then wake up again and ask the *exact* same questions, in the exact same order. Repeat six or seven times.
-
-The coma was not even blackness. It just does not exist. I remember having the hardest time believing it was actually mid-October when the last day I remembered was late-September.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I was in a medically induced coma for several months after a car accident. I dont remember much. But i do recall coming out of the coma briefly a few times. The first time i started flailing around and had to be tired back down to the bed till i was put back to sleep. A second time i woke to see some of my organs out on trays sitting on my body (still attached, but just being held out of the way) i also had a dream about being locked to a couch in cuba and could only watch tv in Spanish (i think it was). I say locked because i was able to get up and move, but only to a certain distance. Like after 10ft id hit an imaginary wall. Like when in a video game and you reach the end of the map.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My mom was in an induced coma for three months. When she woke up, she thought the hospital was trying to kill her. She tried to get out of bed, and she fell on the floor because she couldnt walk. She was mostly freaked about how her feet had lost their form. They were humped over from not being used. Every muscle, she had to learn again. She couldn’t talk well or write at all. She has different handwriting after re-learning. She said she hated how perfect her hands looked. Her nails and cuticles were perfect and clean from not being used. I remember trying to brush her hair after she woke up, and almost all of it fell out. And she almost died pretty much every day she was in her coma.
-
-She had sepsis from a diverticulitis surgery gone wrong. A lot of her hair has grown back, and she can walk but has brain damage that makes her seem very drunk. She is always dizzy. But it’s been five years now, and her recovery has been miraculous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Back in the 90s, my great grandfather had a stroke. He was in a coma for three weeks, and when he woke up, he could not speak English — all he could speak was the Choctaw language. He had learned it when he was a kid, because his family lived right near a Choctaw reserve, and he played with a lot of those kids. He spoke it fluently at that time, but forgot it over his life to where he couldnt remember any of it by this time. This went on for around 10 days, and then he woke up from a nights sleep and could suddenly speak only English again, not remembering a word of Choctaw.
-
-He was also able to repeat verbatim every conversation that had been held in the room that he was in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When I was considered medically dead I couldnt hear anyone, I was in a huge white room with no walls, just a floor. The floor would occasionally sparkle far off. I could not move, I could just look around, it was completely empty. I could still feel emotions, I had a heavy feeling of being nervous/worried. It felt like I was sneaking into a place where I did not belong, like a part of the house that was off limits to me as a kid. Time went by so slowly, I felt every second of it. It was only for 4ish minutes but it definitely felt that long. I could not think, I just felt. It was the most terrifying experience of my life. I felt helpless, everything was out of my control, I felt trapped. I dont remember but when I was revived I screamed for minutes, I just screamed and cried.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My girlfriend of 6 years and sort of fiance was in a severe car crash when she was 16. Both of her best friends died instantly. She was the only survivor but they didnt think she would make it. She was in a coma for 9 months. She was in what is called a waking coma. She retained normal periods of sleep and open eyed wakefulness, but no higher brain functions.
-
-Here are some things about her experience.
-
-She doesnt have any memories of the year prior or the year and a halfish after her coma and obviously no memories of the car crash.
-
-She suffered a TBI and when she first got out of the coma she would get naked and sexual with people and anger very easily. These are common problems of people who suffer a TBI.
-
-She went back to school after the coma, but her brain was still healing a lot. She was held back another year because her brain was still not retaining anything.
-
-Today she is a wonderful, bright 30 year old with a college degree. She has a slight speech impediment, gets frustrated easier than most, and it took her a while to get driving down. Honestly, she still scares the hell out of me when she drives, but there are worse drivers out there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I was in a coma for about 2 days when I was 22. I have Crohns and had been in a severe flare for a few weeks prior. Lots of blood loss, unable to eat dehydrated etc. I fell asleep on my parents couch. The next thing I remember is walking up in the ICU and thinking about how I needed to use the restroom. Since I had no idea what had happened or where I was I just got up (or tried to anyway) and all the machines went off and a nurse came running into the room and told me to sit down. I dont remember anything that happened during the coma, no dreams, no sense of time moving. Just like a dreamless sleep. Apparently though I was able to do basic commands in the coma. Like a doctor told me to open my eyes so they could take my contacts out. Id squeeze a hand if told to, but otherwise I didnt move or respond to anything. I dont recall any of it though. Doctors think I went into this coma as a way to preserve energy to keep me alive. I had to get 5 pints of blood and had IV drips in both arms while I was out. Its weird to think about how it happened I was there and yet I have no memories of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. You and the people around you change. A lot. I had a narcissistic sister and mom & dad used to fight on the most trivial stuff lots of raised voices. I bet that’s why my sister behaved the way she did. She was sarcastic, too. It never ended. Going home felt like a room to take a bath in and hit the sack at, with a touch of sarcasm and constant entitledness(if that’s even a word).
-
-I had a brain surgery. I was under for 5 months. The lobby lady told me, she was there every day. Never missed a day, there was no need to come visit me. But she would stay there after school till night fell. So like 5 hours.
-
-I never felt so loved ever. It swept the ground (what I thought of her) from under my feet. I was blank.
-
-When I did wake up. She was the first thing I saw. There she was, my sister. Who always hated my guts. I don’t know what made her change, I never asked but I was glad. I knew it was genuine. She wasn’t even surprised, she just looks at me and says “Took you long enough.” We cried and hugged it out.
-
-And she was a complete different person after that. I don’t know what it does to/in people that changes them. But I’m glad that it does.
-
-Then I realised why people just didn’t get up from a bedridden state and need help. Because the back is stiff. XD lolz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I was in a coma for four days from bacterial meningitis. When I woke up, I was completely deaf! I had to communicate with my parents and doctors with a notepad and pen. Some hearing gradually returned in my left ear, but my right ear is still 100% deaf to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I was in a coma for close to six weeks. When I woke up, I had to learn everything again. I had most of my speaking abilities, but my motor control was horrid. I had to figure out how to wipe my ass as well as how to walk up and down the stairs again. That took about three weeks. I had lost a ton of weight, too — I was 63 and weighed about 145 pounds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I was in a medically induced coma for approximately a week due to sepsis. When I was in, I thought I was a bird with my wings outstretched that was slowly freezing to the ground. When I woke up, I thought I was in Taos, but it looked like Raton (I was in Albuquerque, in a hospital that I had worked in for years). I thought I was 10 years younger. I thought I had gotten into a wreck and that my fiancé at the time was an abusive ex-boyfriend. I thought my fiancé had found me naked on the side of I-25 and had taken me to a veterinary hospital. It took another month and a half for me to understand what happened.
-
-I was in and out of surgery and died a couple times in that time. Once, they were changing out my wound vac, and I looked down and saw inside of me, then things started making a little more sense. (When I looked down and saw myself open, it resembled a cheeseburger that someone had cut in half and left in a fridge uncovered for two weeks.) I still cant eat cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I remember what put me in a coma, then I remember being unconscious but hearing my parents, hallucinations; and then nothing for 5 weeks.. my next memory is at home and my doctor visiting me.
-
-Edit: I’m not a marine (been asked this like 20 times now today)
-Sorry for the questions I haven’t answered, but my inbox just blew up too much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I was in a coma for 3 days following a serious cycling accident, medically induced. I woke up with zero recollection of why I was there or what was said while I was out. It is easily the scariest situation Ive found myself in, but I cant say I remember it. I woke up to my mom and dad in the hospital with me and my body in traction of some sort and that was way scarier to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I had a seizure and was in a medically induced coma for 3 days when I was 17. To be honest I don’t remember anything. I remember fading in and out of the anesthesia trying to pull my breathing tube out and and that my hands were restrained to the bed so I couldn’t. When I woke up and was coherent I couldn’t recall anything from actually being in the coma. They had even moved me to a hospital over 100 miles away. It was really just nothing but black. No dreams, no lights, no voices, just nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170889.jpg" style="width:100%"><br>
 
 ## <a href="#linky15" id="linky14">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
 
@@ -930,7 +893,59 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">20. Salvador Dali was a fascist that beat women. Patton and MacArthur were pretty shit people too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170055.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">27 Pics You May Have to Look at Twice to Understand</a><br>
+## <a href="#linky17" id="linky16">25 Things We Were Hyped For That Completely Flopped</a><br>
+
+<span style="font-size:4em">1. Power Glove. It sucked and Ill never forget it. -u/Ekh0es</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Google Plus. They made us wait for a very long time with the invite-only feature. People forgot about it when it was released. -u/introvertboyme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Dark Tower movie with Idris Elba. -u/urchisilver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Sim City 5. Good god what a horrid mess. First week or more of the release you were lucky to play because you could only play it online on their servers that were constantly full. Then once you hit like 50k people in your city the game was uncontrollable. You would literally run out of water and no matter what you did, traffic took the shortest path so constant traffic and thus emergency vehicles couldnt move so everything went to hell fast. -u/InsertBluescreenHere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Google Glass: futuristic smart glasses. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. M. Night Shyamalans Avatar movie. He broke my heart. -u/Suspicious-Elk-3631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. The Zune. Larger capacity, color screen, could play movies, and cost less than an iPod. Personally, I think it was an awesome device, but ultimately it failed. :( -u/TSwizzlesNipples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Yandere simulator years ago. -u/grossjuice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. When Geraldo Rivera opened Al Capones vault. -u/miurabucho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170181.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Being an adult. -u/marr318</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Anthem. I didnt even find the flying that great. It was kinda fun, but the gunplay was so insanely boring and the world-building was so poorly executed. And holy Christ was the writing trash. I played it with a friend and had low expectations, but it failed to meet even those. -u/NobilisUltima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Second go around of Arrested Development. Deep inside I knew they’d never be able to capture that magic. Still, told myself they could. Narrator: They couldn’t. -u/AreaGuy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Every New Year’s Eve party ever. -u/PollyWentlightly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. The PS Vita. I wouldn’t say it was a total flop but it deserved so much more support and a better life than it had. -u/GhostRN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. 3D TV. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Pacific Rim 2. What the f*ck was that? -u/Accurate_Western_346</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. I remember being hyped for the Suicide Squad movie back then and left the cinema severely disappointed. -u/mj-gaia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Having a career. Our whole life built up to this….and its just mediocre, and NOBODY knows what they are really doing. -u/SnooPandas1674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The Segway. Mind you, it was billed as something that would change mankind. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Last season of GOT. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Fallout 76. Was happy to finally have a Fallout with multiplayer, but was too buggy to have any fun at launch. -u/KrogtDK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Mobile gaming. -u/xx_DEADND_xx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The Hobbit movies. Im a huge LOTR fan and they are just meh. The magic was gone. They should have made one film closely following the book. -u/feta_morgana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170196.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. The Fantastic Beasts films. -u/kukukele</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">27 Pics You May Have to Look at Twice to Understand</a><br>
 
 <span style="font-size:4em">1. The shadows from the power lines make my van look like its been rear ended.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031658/87169424/87163267.jpg" style="width:100%"><br>
 
@@ -986,223 +1001,7 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">27. Run, Godzilla is coming!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168764.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">20 Jobs That We Have Zero Respect For</a><br>
-
-<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">30 Brilliant Comebacks People Weren't Ready For</a><br>
-
-<span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Move your a** slow poke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you think about it, a diaper is like a personal bathroom. Also its portable. Makes you think dont it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167135.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dolly is a legend for this. God Id let her stuff me in her trunk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Heres one, boob. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167133.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Damn, those look delicatessen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167129.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167134.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167132.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167147.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
-
-## <a href="#linky20" id="linky19">55 Radical Randoms and Magnificent Memes Anyone Can Enjoy</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124703/87170206/87033382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125049/87170235/87169544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124652/87170204/87029692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168716.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168717.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168714.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124918/87170230/87169515.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124813/87170218/87041050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124843/87170223/87167006.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125100/87170237/87169546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124643/87170203/87029689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124610/87170199/87026010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168713.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168715.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124621/87170200/87026021.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124632/87170201/87029674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124641/87170202/87026008.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124656/87170205/87029694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124707/87170207/87033385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124714/87170208/87033390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124718/87170209/87033398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124725/87170210/87033411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124729/87170211/87033417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124736/87170212/87033418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124740/87170213/87033420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124747/87170214/87041029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124751/87170215/87041035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124758/87170216/87041037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124802/87170217/87041049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124821/87170219/87166980.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124824/87170220/87166986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124832/87170221/87166992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124835/87170222/87166994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124854/87170225/87169510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124845/87170224/87167011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124856/87170226/87169511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124905/87170227/87169512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124907/87170228/87169513.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87168690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125027/87170233/87169540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125038/87170234/87169533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125057/87170236/87169529.jpg" style="width:100%"><br>
-
-## <a href="#linky21" id="linky20">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
+## <a href="#linky19" id="linky18">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
 
 <span style="font-size:4em">1. Midway games at carnivals or fairs purposely let people win early on in the day. This way people carry around the prizes and advertise them for the rest of the day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169111.jpg" style="width:100%"><br>
 
@@ -1253,4 +1052,52 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 <span style="font-size:4em">22. Fast food workers dont wash their hands as often as they should and rarely call in sick even if they are sick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169131.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. Im a visa agent. I’ve seen people be refused because the manager didn’t like their face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169132.jpg" style="width:100%"><br>
+
+## <a href="#linky20" id="linky19">23 People Who Think They're Way More Tough Than They Are</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
 
