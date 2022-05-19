@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/19/2022-02:11:32
+Last updated: 05/19/2022-03:11:31
 <br>
 ## <a href="#linky2" id="linky1">55 Radical Randoms and Magnificent Memes Anyone Can Enjoy</a><br>
 
@@ -113,57 +113,49 @@ Last updated: 05/19/2022-02:11:32
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125057/87170236/87169529.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky3" id="linky2">21 Pictures That Will Make Your Eyes Orgasm</a><br>
 
-<span style="font-size:4em">1. Men live life on the edge because it helps us treasure what we have. Also, were kind stupid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168902.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Hes right, its not work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168903.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168904.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168905.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168906.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The crossover nobody asked for. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168907.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Anyone else tried of this damn trial? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168908.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168909.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168910.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. We joke around a lot, but some of all need to read more. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168911.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168912.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168913.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Which way western man? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168914.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168915.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Its true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168916.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168917.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. God bless America. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168918.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168919.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168920.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. If you think sharks are scary try riding the A train at 3 in the morning. Only then will you know what true fear is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168921.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168923.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Brilliant Comebacks People Weren't Ready For</a><br>
 
@@ -283,21 +275,47 @@ Last updated: 05/19/2022-02:11:32
 
 <span style="font-size:4em">27. The Challenger crew compartment stayed intact after the initial explosion, and for three of them their emergency air systems had been manually activated. So not only did they survive the explosion, but its entirely possible the crew was alive and conscious during their entire descent back to Earth.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111048/87169234/disturbingfacts26.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Don’t Tell HR That You Came in Your Pants</a><br>
+## <a href="#linky6" id="linky5">20 Jobs That We Have Zero Respect For</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">27 Pics You May Have to Look at Twice to Understand</a><br>
 
@@ -501,201 +519,7 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">23 People Who Think They're Way More Tough Than They Are</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">20 Jobs That We Have Zero Respect For</a><br>
-
-<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">25 Dank Memes We Hid From the Tax Man</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169710.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169711.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169712.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169714.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
-
-<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">30 Youtube Comments That Are Better Than The Video</a><br>
+## <a href="#linky11" id="linky10">30 Youtube Comments That Are Better Than The Video</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169167.jpg" style="width:100%"><br>
 
@@ -757,51 +581,273 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169193.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">21 Pictures That Will Make Your Eyes Orgasm</a><br>
+## <a href="#linky12" id="linky11">23 People Who Think They're Way More Tough Than They Are</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167101.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167102.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167103.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167104.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167105.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167106.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167107.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167108.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167109.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167110.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167111.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167112.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167113.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167114.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167115.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167116.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167117.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167118.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167119.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167120.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87167121.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">22 "Dirty Pics" That Are Actually Pretty Innocent </a><br>
+
+<span style="font-size:4em">1. Not a boob.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164491.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Its not what you think, not even close. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Took a sec.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Giving her the O face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not a butt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Looks like bad plastic surgery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was almost traumatized</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Are you seeing what were seeing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164497.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Is someone going to tell her? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. It’s like the Coppertone logo but weirder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. That’s one way to see if you like another dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. We are gathered here today…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Not two people fucking on a motorcycle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164503.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164504.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Imagine walking down the hallway and you see this guy taking a dump, or so you think. . </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164505.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Can you say purple nurple? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164507.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164508.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This might be one of the most cursed images ever taken. It looks like hes about to do some ungodly things to that poor baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164509.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164510.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That shadow is packing, damn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164511.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164512.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
+
+<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">25 Dank Memes We Hid From the Tax Man</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169710.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169711.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169712.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169714.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169730.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">25 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. Men live life on the edge because it helps us treasure what we have. Also, were kind stupid. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168902.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Hes right, its not work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168903.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168904.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168905.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The crossover nobody asked for. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Anyone else tried of this damn trial? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168909.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. We joke around a lot, but some of all need to read more. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168911.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Which way western man? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Its true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. God bless America. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. If you think sharks are scary try riding the A train at 3 in the morning. Only then will you know what true fear is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168921.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168923.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">Don’t Tell HR That You Came in Your Pants</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">20 Ground Rules for Boob-Watching from the Women Folk Themselves</a><br>
 
 <span style="font-size:4em">1. If it’s a quick glance, it’s fine. That’s normal and feels mostly involuntary on behalf of the person looking. I notice but it doesn’t bother me. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/121137/87169274/etiquette-02.jpg" style="width:100%"><br>
 
@@ -843,7 +889,7 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em"> </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/015231/87169387/etiquette-20.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
+## <a href="#linky19" id="linky18">24 Pieces of Advice That Sound Crazy but Aren’t</a><br>
 
 <span style="font-size:4em">1. Do you understand, that if you try to endlessly stack bricks, no matter how perfect you do it, they will fall over? My boss told me this after I burned out. Just says that no matter how well you plan your work, too much is too much. -u/IsabellaCps</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168611.jpg" style="width:100%"><br>
 
@@ -898,50 +944,4 @@ As your heartbeat slows to maintain your body heat, your lungs breathe more slow
 
 <span style="font-size:4em">
 Its meant to redirect negative self admonishment into a drive to grow and learn. And apparently, its sinking in because she will say something like Ugh, I cant make it up this hill! while were out bike riding and then catch me looking at her, give a big eye roll and go ...yet! in the exact tone you think a teenage girl would use. Then she ends up sometimes just rage-succeeding to prove the point, its great. Shes going to be at least 3 times better than me, low as that bar may be. -u/Zambeeni</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87168634.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">22 "Dirty Pics" That Are Actually Pretty Innocent </a><br>
-
-<span style="font-size:4em">1. Not a boob.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164491.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Its not what you think, not even close. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Took a sec.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Giving her the O face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Not a butt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Looks like bad plastic surgery.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I was almost traumatized</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Are you seeing what were seeing? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164497.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Is someone going to tell her? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. It’s like the Coppertone logo but weirder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. That’s one way to see if you like another dog.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. We are gathered here today…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Not two people fucking on a motorcycle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164503.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164504.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Imagine walking down the hallway and you see this guy taking a dump, or so you think. . </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164505.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Can you say purple nurple? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164507.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164508.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This might be one of the most cursed images ever taken. It looks like hes about to do some ungodly things to that poor baby. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164509.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164510.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That shadow is packing, damn. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164511.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164512.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Oh no, please delete this image from my brain. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87164513.jpg" style="width:100%"><br>
 
