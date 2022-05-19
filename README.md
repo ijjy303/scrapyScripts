@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/19/2022-10:11:31
+Last updated: 05/19/2022-11:11:31
 <br>
 ## <a href="#linky2" id="linky1">30 Fun Facts for a Cognitive Colada</a><br>
 
@@ -115,7 +115,49 @@ Last updated: 05/19/2022-10:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168926.png" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
+## <a href="#linky4" id="linky3">20 Jobs That We Have Zero Respect For</a><br>
+
+<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">23 Dirty Secrets Industries Are Hiding From The Public</a><br>
 
 <span style="font-size:4em">1. Midway games at carnivals or fairs purposely let people win early on in the day. This way people carry around the prizes and advertise them for the rest of the day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169111.jpg" style="width:100%"><br>
 
@@ -167,7 +209,7 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">23. Im a visa agent. I’ve seen people be refused because the manager didn’t like their face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169132.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">25 Things We Were Hyped For That Completely Flopped</a><br>
+## <a href="#linky6" id="linky5">25 Things We Were Hyped For That Completely Flopped</a><br>
 
 <span style="font-size:4em">1. Power Glove. It sucked and Ill never forget it. -u/Ekh0es</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170174.jpg" style="width:100%"><br>
 
@@ -219,119 +261,53 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">30 Brilliant Comebacks People Weren't Ready For</a><br>
+## <a href="#linky7" id="linky6">23 People Who Think They're Way More Tough Than They Are</a><br>
 
-<span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Move your a** slow poke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167145.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. If you think about it, a diaper is like a personal bathroom. Also its portable. Makes you think dont it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167135.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Dolly is a legend for this. God Id let her stuff me in her trunk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167136.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Heres one, boob. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167137.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167138.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167133.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167139.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167140.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167141.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167142.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Damn, those look delicatessen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167129.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167134.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167143.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167132.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167144.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167146.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167147.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167148.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167149.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167150.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167151.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167154.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167130.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
-
-<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">25 Dank Memes We Hid From the Tax Man</a><br>
 
@@ -497,7 +473,159 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125057/87170236/87169529.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
+## <a href="#linky10" id="linky9">Don’t Tell HR That You Came in Your Pants</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">Three-Word Pieces of Advice We’d Give to Our 13-Year-Old Selves </a><br>
+
+<span style="font-size:4em">1. Brush your teeth. -mynameisusama</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053921/87169554/brush.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dont trade Charizard. -facepwnage</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053954/87169557/charizard.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Wash your a**. -imk</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054354/87169578/wash.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Save up money. -JugOfVoodoo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053838/87169550/allowance.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. WEAR A CONDOM. -NicksterPro</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054017/87169559/condom.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Stay off ATVs. -Cloudkicker91</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053859/87169552/atv.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Choose Art School. -Bryans-Ghost</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053847/87169551/artschool.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Alcohol. Bad. Don’t. -Seaniebeebop</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053910/87169553/booze.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You were abused. -Bepis_drinker_cum</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053837/87169549/abuse.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Love dad more. -RealLifeHaxor</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053932/87169555/catch.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Dont ever change. -emzyyx</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053943/87169556/change.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Don’t f**king smoke. -whateverathrowaway00</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054005/87169558/cigs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. It gets better. -PiltoversFinest62</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054028/87169560/depress.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Dont date _______. -Confianca1970</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054039/87169561/dontdate.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. DONT FORGET ABOUT... -netohh323</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054050/87169562/dontforget.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Drugs ruined you. -GizmoTheLion</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054102/87169563/drugs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Never trust farts. -LaurensOfSuburbia</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054113/87169564/fart.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Never start gambling. -ElegantBullfrog2417</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054125/87169565/gamble.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Leave Jehovahs Witnesses. -from_dust</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054159/87169568/jehovah.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Happiness isn’t linear. -Evangelion-02</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054136/87169566/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Enjoy your childhood. -OnuAjiNo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054211/87169569/kidsplaying.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I love you. -a-rabid-cupcake</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054234/87169571/love.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Keep making music. -douglas_yancie</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054245/87169572/music.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. You aren’t fat. -Boinkysamm</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054257/87169573/notfat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stay in school. -Julie-Andrews</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054308/87169574/school.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. No student loans. -TravelingGleeman87</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054332/87169576/studentloans.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Go to therapy. -cornygiraffe</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054343/87169577/therapy.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
+
+<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
+
+<span style="font-size:4em">1. Threw acid in someones face to steal their motorbike. I was at school with him until I went to university and he was the sweetest guy you could meet. I dont know where it went wrong for him.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/042131/87169477/Motorbike.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I know a dude who shit down a chimney. Impressive as it was messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044934/87169483/badthings3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. He slept with his sons long-term girlfriend. Like his sons first love. Told his son like it was no big deal. He told us about it at work, and said his son was being a bit of a bitch about it. We then watched his life fall apart as both his kids cut him out of their lives. Dude found out he became a grandpa from his older daughter via an email with no pictures.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044941/87169484/badthings5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My ex best friend slept with a coworker that was freshly married & had a newborn. In the wife’s car. Twice.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044953/87169486/badthings6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I know someone who was doing a semester abroad in China during college. She let her boyfriend at the time fly out from the US for a week+ visit, knowing she was going to dump him the second she saw him. She did it because it would have been “too hard” to dump him over the phone.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044957/87169487/badthings8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. There’s a lot to pick from, but one of my ex-coworkers euthanized her two cats because she was getting a new couch and didn’t want them to ruin it. She told us this at work and didn’t get why she got a bunch of blank stares back.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045004/87169488/badthings9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My dad ran a small but successful business for over a decade but when my eldest brother started working with him he ruined us to the point that he almost made us homeless. After he left us high & dry, my dad had spent 3-4 years trying to do damage control but ultimately had to sell the business for less than half its worth.To this day my eldest brother has never apologized nor has taken any responsibility for his actions. I have zero respect for that scumbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045010/87169489/badthings10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My best friend at the time had depression and drinking issues. One night he got really drunk and I think drugs were in the mix and he stole a gun out of his neighbors barn and shot one of his toes off on purpose. He’s doing better now thankfully.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045016/87169490/badthings11.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I was getting out of the army and had put back over $70k for a home for my family. My mother got my banking information and took every penny for drugs. When I tried suing my family disowned me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020517/87170348/messedupthings22.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A coworker took another coworkers insulin out of the fridge because he made the other coworker check out late when they didnt come in.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020528/87170349/messedupthings24.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My friend told a guy she was sleeping with that she’d had a miscarriage so that he would come back from Australia (he’d left three weeks before for an extended stay, probably to get away from her because she was a psychopath).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020542/87170350/messedupthings23.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. My uncle ran a Ponzi scheme and stole millions of dollars from his clients, including $200,000 from my grandfather. In terms of people I know personally, that’s gotta be up there.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020545/87170351/messedupthings25.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Her parents faked her younger brothers death on the day where she had three finals back to back to back. They wanted to test whether she cared more about her family or her career, supposedly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020547/87170352/messedupthings21.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012036/87169363/babes.jpg" style="width:100%"><br>
 
@@ -533,55 +661,125 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">  My retired dad has been so nasty to my husband because my husband enjoys playing video games. He tells him hes addicted and one time told him to get a job instead of playing video games even though my husband did already have a job. At the same time, my dad has no friends, hates spending time with his family, and spends his entire day every day watching tv from the moment he wakes up until he goes to bed at night.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014944/87169382/earth.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">23 People Who Think They're Way More Tough Than They Are</a><br>
+## <a href="#linky15" id="linky14">20 Lazy Dad Jokes That Made Us Roll Our Eyes </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. I made my bowl of yogurt, I then squeezed some honey on it in a B. I told my wife, from across the kitchen theres a honeybee in my yogurt! She comes over, looks in the bowl, and says only its 6 oclock in the morning. I could hear her eyes roll. It was great! -impvette</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170292.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169009.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. A guy tried to sell me a coffin, I told him that’s the last thing I need. -hethethesethose</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169011.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. What word becomes shorter when you add two letters to it? Short. -Agitated-Try-5474</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169013.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Me: whats up kiddo? 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169014.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170296.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169015.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Daughter: my ear is bothering me.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169016.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170298.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169018.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Me: what are the symptoms?
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169020.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169010.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Daughter: its Ear-ritating me.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170301.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169024.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169026.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Me: laughs hysterically. -Elfere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169027.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My niece calls me Ankle. I call her my Knees. -avadhut1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169028.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. As told by my son: Mr. Bigger and Mrs. Bigger have a baby. Who’s the biggest in the family? The baby - because he’s a little Bigger. -yellowlemonie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170305.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169032.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My psychologist says Im addicted to puns about textiles and needlework. Or sew it would seam. -KCL80</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170306.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169033.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. What do you call a hooker you pay with spaghetti? A pasta-tute. -emeryjane90</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170307.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169034.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. One day a boy broom met a girl broom and they fell in love. They decided to get married! Just before the ceremony, the girl broom went to find the boy broom to tell him something. She said, “Guess what?! We’re going to have little whisk brooms!” And the boy broom replied, “How can that be? We’ve never even swept together!” -Fluffy_Momma_C</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170308.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169036.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I bought some helium balloons for my sons birthday. Theyre a pretty expensive item to buy these days...Mainly due to the rise of inflation. -HugoZHackenbush2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170309.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169037.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My wife is trying to convince me she doesn’t poop. I think she’s full of crap. -zerok_nyc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170310.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169038.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. What did Juan say when he met another Juan? Huh, I guess it takes Juan to know Juan.-Jfire_Tunes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170311.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169039.jpg" style="width:100%"><br>
+## <a href="#linky16" id="linky15">31 Fresh Pics And Memes For The Exquisite Minds</a><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169040.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170731.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170732.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">43 Choice Randoms For Your Weekly Pleasure</a><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170733.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170734.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170736.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170737.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170738.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170739.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170741.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170742.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170743.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170744.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170745.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170746.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170747.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170748.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170749.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170750.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170752.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170754.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170755.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170756.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170757.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170759.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170760.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170761.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">43 Choice Randoms For Your Weekly Pleasure</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169432.jpg" style="width:100%"><br>
 
@@ -669,135 +867,69 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169474.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
+## <a href="#linky18" id="linky17">30 Brilliant Comebacks People Weren't Ready For</a><br>
 
-<span style="font-size:4em">1. Threw acid in someones face to steal their motorbike. I was at school with him until I went to university and he was the sweetest guy you could meet. I dont know where it went wrong for him.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/042131/87169477/Motorbike.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Jokes on him when he still cant land a date. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167131.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I know a dude who shit down a chimney. Impressive as it was messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044934/87169483/badthings3.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Move your a** slow poke. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. He slept with his sons long-term girlfriend. Like his sons first love. Told his son like it was no big deal. He told us about it at work, and said his son was being a bit of a bitch about it. We then watched his life fall apart as both his kids cut him out of their lives. Dude found out he became a grandpa from his older daughter via an email with no pictures.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044941/87169484/badthings5.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If you think about it, a diaper is like a personal bathroom. Also its portable. Makes you think dont it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167135.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My ex best friend slept with a coworker that was freshly married & had a newborn. In the wife’s car. Twice.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044953/87169486/badthings6.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Dolly is a legend for this. God Id let her stuff me in her trunk. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I know someone who was doing a semester abroad in China during college. She let her boyfriend at the time fly out from the US for a week+ visit, knowing she was going to dump him the second she saw him. She did it because it would have been “too hard” to dump him over the phone.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044957/87169487/badthings8.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Heres one, boob. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. There’s a lot to pick from, but one of my ex-coworkers euthanized her two cats because she was getting a new couch and didn’t want them to ruin it. She told us this at work and didn’t get why she got a bunch of blank stares back.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045004/87169488/badthings9.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. My dad ran a small but successful business for over a decade but when my eldest brother started working with him he ruined us to the point that he almost made us homeless. After he left us high & dry, my dad had spent 3-4 years trying to do damage control but ultimately had to sell the business for less than half its worth.To this day my eldest brother has never apologized nor has taken any responsibility for his actions. I have zero respect for that scumbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045010/87169489/badthings10.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167133.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My best friend at the time had depression and drinking issues. One night he got really drunk and I think drugs were in the mix and he stole a gun out of his neighbors barn and shot one of his toes off on purpose. He’s doing better now thankfully.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045016/87169490/badthings11.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I was getting out of the army and had put back over $70k for a home for my family. My mother got my banking information and took every penny for drugs. When I tried suing my family disowned me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020517/87170348/messedupthings22.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. A coworker took another coworkers insulin out of the fridge because he made the other coworker check out late when they didnt come in.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020528/87170349/messedupthings24.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. My friend told a guy she was sleeping with that she’d had a miscarriage so that he would come back from Australia (he’d left three weeks before for an extended stay, probably to get away from her because she was a psychopath).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020542/87170350/messedupthings23.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. My uncle ran a Ponzi scheme and stole millions of dollars from his clients, including $200,000 from my grandfather. In terms of people I know personally, that’s gotta be up there.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020545/87170351/messedupthings25.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Damn, those look delicatessen. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167129.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Her parents faked her younger brothers death on the day where she had three finals back to back to back. They wanted to test whether she cared more about her family or her career, supposedly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020547/87170352/messedupthings21.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167134.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">20 Jobs That We Have Zero Respect For</a><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Scammers that scam old people via phone calls. This isnt a job in the traditional sense but loads of call centers in India hire people to do this, you got to go through interviews and get paid a salary and commission. -Training_Exit_5849</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053823/87168589/callcenter.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167132.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Those journalists who write click-bait articles. The ones where you wade through page after page of deliberately prolonged text and ads to get to the bit you want to read. -Sloper59</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053827/87168590/clickbait.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Food bloggers who tell you the history of the world before giving you the recipe. -CCChic1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053837/87168592/foodblog.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Health insurance company CEOs. -luhzon89</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053847/87168593/healthinsurance.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Higher level people in hospitals (admin, CEOs, etc.) Majorly detached from what’s actually going on in their facilities (or just don’t care) and implement policies that can legitimately be dangerous for patients so that they can get their bonus. -megs0114</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053850/87168594/hospital.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Dating experts. -Mean_Manufacturer_61</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053854/87168595/datingexpert.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. There are debt collectors who call relatives of the deceased to pay off their debts when they are not legally obligated to. -Top_Gun_2021</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053834/87168591/debt.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Life coach. -KidArcade</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053859/87168596/lifecoach.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Those people that work in the middle of the mall trying to sell you stuff. They just pray on older people and younger teens that dont know any better. -rosespetaling</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053903/87168597/mallkiosk.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Managers who have never worked the lower level positions. -JuniorMongoose9160</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053905/87168598/managers.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Psychic Mediums. Specifically those who prey on the grieving. -JamesDeadite</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053910/87168599/medium.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. MLM managers. Not the low level idiots that get suckered into it, they suck too for trying to bring new people into that sh*t-show, but the people who create them know exactly what they are doing. And they are pretty much the only ones who profit off of it. Should be illegal. Pyramid schemes are illegal. -Wereno</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053915/87168600/mlm.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Is being a Reddit mod a job? They probably think so. -NuclearWinterGames</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053918/87168601/mod.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Paparazzi. -VictorBlimpmuscle</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053922/87168602/paparazzi.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Poachers. Especially big game poachers who purposefully hunt nearly extinct animals from species they know are on the brink.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053927/87168603/poachers.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167130.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">I know there are poachers that come from rural villages who are trying to just put food on the table, which have my sympathy. But poachers who come from money and hunt down animals minding their business in most shelters or restricted areas just to put a head on their wall as a trophy are absolutely heinous. -GetterdoneObiwan</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053933/87168605/scalping.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87167158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Ticket-scalpers. -vswlife</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053942/87168606/televang.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Televangelists. -WBFY</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053930/87168604/politicians.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Politicians. -gurdsang</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053945/87168607/tiktok.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. TikTok Influencers. TikToks algorithm literally is not based on anything and people just go viral for the dumbest things, but when they are famous they act like they worked hard and are some kind of role model. -frankgumbomarchman</span><br><img src="https://cdn.ebaumsworld.com/2022/05/16/053954/87168608/timeshare.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">20 Awful Celebs That Are Well Liked Since Their Deaths</a><br>
-
-<span style="font-size:4em">1. Ray Charles. Made children all over the place and refused to acknowledge them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Jerry Lewis. He treated his family like shit, cut his kids out of his will and was a real pos on set. Watch some clips on youtube of him and his behaviour. Terrible. Most likely stemming from when he and Dean Martin split from being Martin & Lewis, everyone thought Dean would disappear and Jerry would go on to be a massive star. As it turned out, it was the complete reverse. He was a bitter, bitter person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Bing Crosby. Father of the Century. Physically and mentally abusive to all his kids, alcoholic, adulterer, slimy businessman. Check it out....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Frank Lloyd Wright. He is seen as a visionary in architecture but he was a horrible person IRL. Raging narcissist, abandoned his wife and kids to run off with the wife of one of his clients, nailed down his selected furniture in a clients home because he didnt like what the client wanted, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. No one will say it because Americans have a hard time grappling with the military not being heroes, but Chris Kyle was a racist and a liar.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Coco Chanel revered fashion icon and also Nazi sympathizer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I havent seen Michael Landons name come up yet... he did amazing on Little House on the Prairie, but apparently he was actually a raging alcoholic and even his own kids made a documentary about The Father I Knew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I feel like Cosby is as good as dead and wouldve been beatified if he had died before he got caught. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Jimmy Savile. Absolute monster. His celebrity as an English radio and tv personality gained him unrestricted access to hospitals with disabled children whom he abused. That’s putting his life very lightly. Beware if you go on to read more about him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Johnny Carson. He cheated on his wives and was an all around prick when he wasnt on camera. The most widely know example was him telling Joan Rivers that shed never become the star of The Tonight Show (she was the permanent guest host at the time), then refusing to ever speak to her again after she got a job elsewhere.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Its probably come up time and again, but John Lennon was not a nice man. His son grew to despise him enough to tell Paul McCartney that he wished Paul was his father.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Alfred Hitchcock was really really terrible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Big PunHes kids and widow hated him, he pistol whipped his wife in front of his children and broke her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. By some Stones fans, Brian Jones. He deserves to be honored for his role innthe band, and for his musical contributions, and its a shame how his life ended, but he also had a history of domestic violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Picasso has been commonly characterized as a womanizer and a misogynist, being quoted as having said to one of his mistresses, Françoise Gilot, Women are machines for suffering. He later told her, For me there are only two kinds of women: goddesses and doormats. In her memoir, Picasso, My Grandfather, Marina Picasso writes of his treatment of women, He submitted them to his animal sexuality, tamed them, bewitched them, ingested them, and crushed them onto his canvas. After he had spent many nights extracting their essence, once they were bled dry, he would dispose of them.Of the several important women in his life, two, Marie-Thèrése Walter, a mistress, and Jacqueline Roque, his second wife, committed suicide. Others, notably his first wife Olga Khokhlova, and his mistress Dora Maar, succumbed to nervous breakdowns. His son, Paulo, developed a fatal alcoholism due to depression. His grandson, Pablito, also committed suicide when he was barred by Jacqueline Roque from attending the artists funeral. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Since no one mentioned them yet. Simone de Beauvoir and Jean-Paul Sartre. In her letters De Beauvoir mentions several romantic and sexual relationship with female students of hers, in one case she met a 17 year old student who she had a relationship, and later introduced her to Sartre who also began to have sex with her. There were a few others who basically made up Sartre’s personal harem, while de Beauvoir acted as the pimp; seducing teenage girls into threesomes with Sartre.Additionally both were signatories of a petition to remove the age of consent laws in France; the petition was written by a known pedo,Gabriel Matzneff, and signed by other French intellectuals including Foucault; who himself has been accused of sodomizing boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lou Reed, I love the Velvet Underground but many of the band members were awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Frank Sinatra. My grandpas girlfriend and her husband used to work for him, and he was a right bastard. Didnt think that he had to pay people that worked for him, treated employees bad, all the usual human stuff. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. I’ve worked for Prince and it’s a not so hidden secret he was absolutely awful to work with. There used to be a saying “you’re nobody in this industry until you’ve been fired by prince” He’s a legend for sure but was awful to those who put the show on, and his ego was out of control. And when it came down to it, he died from an OD, so for someone who was so quick to fire anyone over a simple mistake and he so critical of weakness, it turns out he had some hidden weaknesses of his own. Also, from all accounts Jim Morrison was an awful awful person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Salvador Dali was a fascist that beat women. Patton and MacArthur were pretty shit people too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170055.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">Don’t Tell HR That You Came in Your Pants</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169394.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169392.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Relatable. This seems like a typical Spring occurrence in most places in the U.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169395.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Alright I am genuinely curious how many women do this? Is this a thing, changing mid-work day into a dress?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169393.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. And there it is. Record scratch. Thats me, I bet youre wondering how I got myself into this situation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169391.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. So to recap, just telling your HR rep out of nowhere that you came in your pants with no other context is bad. Doing literally anything else...is good.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169390.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Gotta love a Lonely Island reference.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87169389.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
+## <a href="#linky19" id="linky18">27 Disturbing Facts You Probably Haven’t Heard Before</a><br>
 
 <span style="font-size:4em">1. It will take only a rock with a width of 0.6 miles to threaten our entire species existence. Even smaller rocks of around 130ft across can cause our planet cataclysmic damage.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/110931/87169216/disturbingfacts10.jpg" style="width:100%"><br>
 
@@ -853,7 +985,49 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 
 <span style="font-size:4em">27. The Challenger crew compartment stayed intact after the initial explosion, and for three of them their emergency air systems had been manually activated. So not only did they survive the explosion, but its entirely possible the crew was alive and conscious during their entire descent back to Earth.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/111048/87169234/disturbingfacts26.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">27 Pics You May Have to Look at Twice to Understand</a><br>
+## <a href="#linky20" id="linky19">20 Awful Celebs That Are Well Liked Since Their Deaths</a><br>
+
+<span style="font-size:4em">1. Ray Charles. Made children all over the place and refused to acknowledge them.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Jerry Lewis. He treated his family like shit, cut his kids out of his will and was a real pos on set. Watch some clips on youtube of him and his behaviour. Terrible. Most likely stemming from when he and Dean Martin split from being Martin & Lewis, everyone thought Dean would disappear and Jerry would go on to be a massive star. As it turned out, it was the complete reverse. He was a bitter, bitter person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Bing Crosby. Father of the Century. Physically and mentally abusive to all his kids, alcoholic, adulterer, slimy businessman. Check it out....</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Frank Lloyd Wright. He is seen as a visionary in architecture but he was a horrible person IRL. Raging narcissist, abandoned his wife and kids to run off with the wife of one of his clients, nailed down his selected furniture in a clients home because he didnt like what the client wanted, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. No one will say it because Americans have a hard time grappling with the military not being heroes, but Chris Kyle was a racist and a liar.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Coco Chanel revered fashion icon and also Nazi sympathizer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I havent seen Michael Landons name come up yet... he did amazing on Little House on the Prairie, but apparently he was actually a raging alcoholic and even his own kids made a documentary about The Father I Knew.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I feel like Cosby is as good as dead and wouldve been beatified if he had died before he got caught. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Jimmy Savile. Absolute monster. His celebrity as an English radio and tv personality gained him unrestricted access to hospitals with disabled children whom he abused. That’s putting his life very lightly. Beware if you go on to read more about him.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Johnny Carson. He cheated on his wives and was an all around prick when he wasnt on camera. The most widely know example was him telling Joan Rivers that shed never become the star of The Tonight Show (she was the permanent guest host at the time), then refusing to ever speak to her again after she got a job elsewhere.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Its probably come up time and again, but John Lennon was not a nice man. His son grew to despise him enough to tell Paul McCartney that he wished Paul was his father.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Alfred Hitchcock was really really terrible. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Big PunHes kids and widow hated him, he pistol whipped his wife in front of his children and broke her face.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. By some Stones fans, Brian Jones. He deserves to be honored for his role innthe band, and for his musical contributions, and its a shame how his life ended, but he also had a history of domestic violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Picasso has been commonly characterized as a womanizer and a misogynist, being quoted as having said to one of his mistresses, Françoise Gilot, Women are machines for suffering. He later told her, For me there are only two kinds of women: goddesses and doormats. In her memoir, Picasso, My Grandfather, Marina Picasso writes of his treatment of women, He submitted them to his animal sexuality, tamed them, bewitched them, ingested them, and crushed them onto his canvas. After he had spent many nights extracting their essence, once they were bled dry, he would dispose of them.Of the several important women in his life, two, Marie-Thèrése Walter, a mistress, and Jacqueline Roque, his second wife, committed suicide. Others, notably his first wife Olga Khokhlova, and his mistress Dora Maar, succumbed to nervous breakdowns. His son, Paulo, developed a fatal alcoholism due to depression. His grandson, Pablito, also committed suicide when he was barred by Jacqueline Roque from attending the artists funeral. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Since no one mentioned them yet. Simone de Beauvoir and Jean-Paul Sartre. In her letters De Beauvoir mentions several romantic and sexual relationship with female students of hers, in one case she met a 17 year old student who she had a relationship, and later introduced her to Sartre who also began to have sex with her. There were a few others who basically made up Sartre’s personal harem, while de Beauvoir acted as the pimp; seducing teenage girls into threesomes with Sartre.Additionally both were signatories of a petition to remove the age of consent laws in France; the petition was written by a known pedo,Gabriel Matzneff, and signed by other French intellectuals including Foucault; who himself has been accused of sodomizing boys. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lou Reed, I love the Velvet Underground but many of the band members were awful.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Frank Sinatra. My grandpas girlfriend and her husband used to work for him, and he was a right bastard. Didnt think that he had to pay people that worked for him, treated employees bad, all the usual human stuff. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I’ve worked for Prince and it’s a not so hidden secret he was absolutely awful to work with. There used to be a saying “you’re nobody in this industry until you’ve been fired by prince” He’s a legend for sure but was awful to those who put the show on, and his ego was out of control. And when it came down to it, he died from an OD, so for someone who was so quick to fire anyone over a simple mistake and he so critical of weakness, it turns out he had some hidden weaknesses of his own. Also, from all accounts Jim Morrison was an awful awful person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Salvador Dali was a fascist that beat women. Patton and MacArthur were pretty shit people too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170055.jpg" style="width:100%"><br>
+
+## <a href="#linky21" id="linky20">27 Pics You May Have to Look at Twice to Understand</a><br>
 
 <span style="font-size:4em">1. The shadows from the power lines make my van look like its been rear ended.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/031658/87169424/87163267.jpg" style="width:100%"><br>
 
@@ -908,60 +1082,4 @@ Source: Preschool Teacher</span><br><img src="https://cdn.ebaumsworld.com/mediaF
 <span style="font-size:4em">26. My car showing its personality after some snow.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168761.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">27. Run, Godzilla is coming!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168764.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">Three-Word Pieces of Advice We’d Give to Our 13-Year-Old Selves </a><br>
-
-<span style="font-size:4em">1. Brush your teeth. -mynameisusama</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053921/87169554/brush.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dont trade Charizard. -facepwnage</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053954/87169557/charizard.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wash your a**. -imk</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054354/87169578/wash.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Save up money. -JugOfVoodoo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053838/87169550/allowance.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. WEAR A CONDOM. -NicksterPro</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054017/87169559/condom.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Stay off ATVs. -Cloudkicker91</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053859/87169552/atv.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Choose Art School. -Bryans-Ghost</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053847/87169551/artschool.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Alcohol. Bad. Don’t. -Seaniebeebop</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053910/87169553/booze.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. You were abused. -Bepis_drinker_cum</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053837/87169549/abuse.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Love dad more. -RealLifeHaxor</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053932/87169555/catch.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dont ever change. -emzyyx</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053943/87169556/change.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Don’t f**king smoke. -whateverathrowaway00</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054005/87169558/cigs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. It gets better. -PiltoversFinest62</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054028/87169560/depress.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Dont date _______. -Confianca1970</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054039/87169561/dontdate.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. DONT FORGET ABOUT... -netohh323</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054050/87169562/dontforget.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Drugs ruined you. -GizmoTheLion</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054102/87169563/drugs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Never trust farts. -LaurensOfSuburbia</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054113/87169564/fart.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never start gambling. -ElegantBullfrog2417</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054125/87169565/gamble.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Leave Jehovahs Witnesses. -from_dust</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054159/87169568/jehovah.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Happiness isn’t linear. -Evangelion-02</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054136/87169566/happy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Enjoy your childhood. -OnuAjiNo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054211/87169569/kidsplaying.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I love you. -a-rabid-cupcake</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054234/87169571/love.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Keep making music. -douglas_yancie</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054245/87169572/music.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. You aren’t fat. -Boinkysamm</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054257/87169573/notfat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stay in school. -Julie-Andrews</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054308/87169574/school.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. No student loans. -TravelingGleeman87</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054332/87169576/studentloans.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Go to therapy. -cornygiraffe</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054343/87169577/therapy.jpg" style="width:100%"><br>
 
