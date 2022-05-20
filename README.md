@@ -1,139 +1,204 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/20/2022-09:11:31
+Last updated: 05/20/2022-10:11:31
 <br>
-## <a href="#linky2" id="linky1">22 Fresh Memes of the Dankest Kind</a><br>
+## <a href="#linky2" id="linky1">30 People Describe What a Coma is Like</a><br>
+
+<span style="font-size:4em">1. I was in a coma for three days after a car accident where I hit my head. Pretty much, I was driving then I saw the color purple, and then I woke up three days later. There really was nothing. Its not even like sleeping because when you wake up from sleeping, you know you were asleep. It is like blinking; one second you are doing something, then the next something totally different. I do have a vague memory of being on a table with a cute guy wiping my nose and it hurting really bad. I remember saying, You are super cute, but thats all.
+
+I believe that was before I went into the coma after the accident. I had a brain bruise or something like that, and it caused speech problems for about six months after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170873.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. A friend of mine was in a 6 month coma after an accident. Afterwards he made sure to tell everyone around him to talk to people in a coma because they can hear you. BUT he noted that they should always tell the person in a coma what happened, where they are and whats happening to them because he said that his moments of lucidity were mixed with some truly horrifying dreams and he had trouble distinguishing between what was real and what were dreams. He said he just wanted to be told what was real and what was happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170860.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I spent eight days in a coma last year after a particularly traumatic surgery, my waking thoughts were wondering if I had died or made it. I couldnt open my eyes, and I was on a medical air mattress, so I felt like I was floating; this lead me to think that I had died, and I remember thinking it wasnt so bad and wondering if my dad would come find me. Once I realized that I was still alive, I thought I had been injured fighting in a war and worried that my wife might not know I was still alive. Trying to communicate with the nurses while intubated and drugged was very difficult.
+
+What I learned later from my wife is that she was there the whole time and while I was fighting against the doctors and nurses, I would immediately calm down and cooperate when she held my hand and sang to me. It still brings tears to my eyes to think of the love and devotion she has shown to me during this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170861.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. I was in a coma for four days. When I woke up, everyone was talking about the baby boy I had. I had lost my long-term memory and didnt even remember being pregnant. My son was at the childrens hospital in the NICU. I delivered him via C-section at 29 wks. All this was due to me having Crohns disease (which I found out after I woke up); my colon had ruptured during my pregnancy. My husband said I was talking like a child when I first woke up.
+
+When I woke up, I felt super tired, but then the next few days, kinda restless. I remembered one conversation my mom had with a nurse while I was under. After a couple of days, I got my long-term memory back and remembered everything up until my second surgery then nothing until I woke up. My son was my third surgery. So, my son was what surprised me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170862.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. A friend of ours fell into a coma at age 25 (around 1992) and woke up at age 36 (around 2002). She was a Rhodes Scholar nominee (I think, second-hand information) and quite brilliant. She was still 25 mentally — as if everything was just on pause. Her body was really well-preserved; shes really fun and cool and sort of the ultimate cougar. Plus, she totally woke up to the internet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170863.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This is really bizarre, but my uncle — a very serious, strict, and rather dry man — had an accident and went into a coma a few years back. He never believed anything he couldnt touch, no talks about souls, or anything similar. But he was in a coma for a few weeks until he woke up and had this crazy AF story. He said he saw himself in a bubble, floating around in a white place, and it was peaceful and beautiful. But then, he said there were other bubbles he could see around him, and they had other people in them. He distinctly remembered a black-haired woman singing in the bubble closest to his, until one day, her bubble burst, and she disappeared. When he woke up, he could give a very clear description of her body, age, and all that. Now heres the wild part...
+
+There was a woman, one floor below him, in a coma who sadly had passed away before he woke up. You guessed it — black hair, age, body all correct. He had never met or seen this woman in his life. His whole idea of life changed after this. It still makes me think sometimes... Where was he? He thinks all the people in bubbles around him were patients in the same hospital. Could it be? Well probably never know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. My friend was in a coma about ten years ago for roughly three weeks. Car accident. When he woke up we visited him and when I was alone with him he told me it was like a lucid dream. The real world was gone and he felt like he was in a world he could create himself for years. He was dead serious too, he talked on and on about how he had a slight understanding that he was not in the real world anymore and that he thought he might be in heaven. About how he felt like he was actually dying and his last few second just stretched on and on forever. He said thats what it felt like. He mentioned that he could fly (in the coma dream) and that it was amazing. He spent a little while in the hospital, then went home, did physical therapy for about two weeks before killing himself with pain pills and vodka. People thought the pain was too much, that it was an accidental overdose, or that the therapy and the accident made him feel helpless and depressed. Honestly, I think he wanted back into his lucid dream world. The way he talked about it was like the best thing he ever experienced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170865.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I was in a coma for nine days. When I woke up, I was still on a ventilator. When they took me off the ventilator, my body didnt remember to breathe on its own. I literally had to relearn how to breathe. It took me a few days; I had no natural sense for how deeply to inhale, how long to hold it, how long to exhale. I had to put all my mental focus on breathing. It was really weird.
+
+For all the people wondering how I slept, I didnt for the first couple of days. If I dozed off, my blood O2 monitor would start beeping and wake me up, then a nurse would yell at me from across the ICU to remember to breathe. I couldnt talk because Id had the tubes down my nose and throat, but I remember one time I woke up, really exhausted, to that damn beeping. So, I started focusing on breathing again, but I was really angry about it. My nurse came running over yelling at me to breathe. I glared at her, and screamed in my non-existent voice, I. AM. She must have read my lips and felt the rage because she just put her hands up and said, All right. All right. Good job, then walked away. My ability to breathe normally was back within a month or so, and my health is good nowadays, so I wouldnt say it had any permanent effects.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. I was in a medically induced coma (with induced, full-body paralysis) for six weeks. There were a handful of times that I distinctly remember where I woke up in my head. What was the experience like? It sucked.
+
+When I would wake up in my head, I had no idea as to what had happened. So, Im fully conscious, I know that Im me, but I cant open my eyes, I cant move a muscle and I cant speak. The first time it happened was terrifying. I started to panic and for a minute there, I thought I might be dead. Then I realized that I was thinking, so that didnt seem right. I tried to move and couldnt. I tried to speak and couldnt. I tried to scream and couldnt.
+
+The next time it happened was when my best friend came to see me. Again, I cant move, I cant see, and I cant talk. But when I woke up in my head, I could feel her holding my hand and asking me to squeeze if I could hear her talking. I tried as hard as I could to squeeze my hand, and I could feel it doing absolutely nothing. When she let go to walk away, I was completely devastated. I tried to scream for her to stay, but obviously, nothing happened. However, I was so glad that people I knew were there wherever I was and that I was getting help (even though I felt completely helpless). That kind of helped. I had to calm myself down again so that I could drift off again.
+
+When I was finally brought out of the coma, my parents were there and that didnt make any sense because my parents lived two states away at the time. I eventually learned that they had been there the entire time. They dropped everything in their lives and came to be with me and stayed there throughout the entire ordeal. After a couple of days (I think), some doctors came in and asked me a bunch of questions. The first question was what year it was — that I knew because I remembered getting sick on New Years Eve, so I knew it was 2000. Next was who the president was. I answered Clinton, so I got that right. Then they asked if I knew where I was. I assuredly said, Honolulu because in my dreams, I had been in Honolulu. When all of their faces had that confused Scooby Doo look is when I realized that wasnt quite right, so I figured that I must have been back in Salt Lake City (somehow). They appeared quite relieved when I came up with that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170867.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Ooh I can answer this one! I was in a medically induced coma for two weeks, about 3 months ago. I had open heart surgery, it didnt go well, had trouble coming off the ventilator so they just put me in a come to try to give me time to heal.
+
+I had nightmares the entire time from the medicine they were using to knock me out. I thought I had been kidnapped by a nurse and was a victim of sex trafficking. I thought my drug addict aunt had her friends rob my sister and her husband, killing my brother-in-law and one of their children, and I thought I was constantly being grabbed by people under my bed. It was not fun.
+
+I cant say that I knew I was in a coma or anything. I am usually one of those people that when I have a bad dream, I can tell myself it is just a dream and wake myself up in order to end it. This was not like that. I was convinced it was all really happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170868.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Dunno. I was in a coma for 11 days, severe brain injury. I don’t remember being in a coma or waking up from a coma. I lost several years of memories prior to the coma, and my brain didn’t really start to “retain” information again until ~6 weeks after I came out of the coma.
+
+I’m told that my personality changed afterwards. I had to rebuild most areas of my life. It sucked, but it was probably a good thing.
+
+Although I’d be lying if I said I never wondered what my life would be like if I’d never had the coma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170869.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Dont forget songs about exs and trucks, country folk love bad relationships and getting terrible mpgs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170682.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I was out for 45 days, no white light, no tunnel, nothing. Woke up and couldnt remember who I was. For six months, never really fully recovered so I just started life again. Turns out Im a completely different person than I was and that is a really good thing. I get memories now and then, they arent pleasant. A woman came and sat by my bed for six weeks, turns out she was my ex lover. I couldnt remember her. Didnt recognize my mother.
+
+*** Afterward** This is the second time in my life I have related this much about my life publicly and it has been good and at the same time really painful. Thanks to everyone for being kind. I wrote this story seven months ago and published it in the lounge and I really hurt my self doing it. This time I wanted to share about the life afterwards and I hope it has been of some benefit to others that struggle with mental issues. This place saves lives, gives hope and guidance to millions of people and i feel lucky to be part of the community.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170870.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170683.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. After being in a really bad accident that left one of my good friends (the driver) brain dead, they put me into a chemically induced coma for under a week to prevent brain damage due to swelling.
+
+When I first woke up, my memory was much better than it was as it gradually faded in the days to come. I have a journal my mother recorded things in, and I recalled many things I shouldn’t have been able to immediately after waking up. Today, I have very little memory of it all, but I can definitely say that having positive people around you definitely helps when you’re in a situation like that.
+
+If you have a friend in this situation, don’t disregard them. Even though your life has moved on, they may wake up one day, and in their mind, not a day has passed since the last conversation they had with you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170871.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Yes it me, the hacker, trying to delete all these spam emails. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170684.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Im a burn survivor — I was in an explosion in my backyard when I was seven years old. Whilst I was in the hospital, I was in a medically induced coma to make my chances of surviving higher. I do remember a few things that happened while I was in said coma; I remember my father reading the seventh book of the Magic Tree House series to me, and I remember hearing the screams of new patients that would come in, but I couldnt move my body at all, nor could I give any signs that I could hear my family or medical staff.
+
+I spent two weeks in the coma and another 48 days. Today, Im a happy, healthy 17-year-old. If I can say anything about what happened that day, its that it changed my life for the better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170872.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170685.png" style="width:100%"><br>
+<span style="font-size:4em">15. I was in a medically induced coma following a self-inflicted gunshot wound. I dont remember much but my family described moments of me appearing to be awake. Most notable, an apparent attempt at humor. Apparently they put these mits on my hands to prevent me from ripping my ventilation tubes out over and over but I pretended they were my lobster claws. I have no recollection but its a real me move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170874.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This meme gave me brain damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170686.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. 3 month coma here. I did know I was in a coma, but had no sense of time. I had some minor awareness of what was going on around me, sort of the inverse of a dream. Speaking of dreaming, I learned lucid dreaming. I remember using Legos to build walls against the pain. I remember alternating between feeling like I was freezing and on fire and used my newfound lucid dreaming powers to try to mitigate those feelings. I remember writing a book in my mind, and visualising it like a movie as I wrote it. I remember feeling the tears of my wife and hearing her cry, and talking about how she was running out of strength. I remember wanting to comfort her, I remember wanting to tell her about the book I was working on.
+
+When I came out of it the next 6 months were hell. I had no appetite but somehow gained 40 pounds pretty quickly. I felt like my whole nervous system was off by a millimeter and had to relearn touch typing. Ive never recovered the energy I had before. I lost the ability to lucid dream. Itll happen sometimes, but very rarely. I held onto to the details of the book in my mind for about two days, which wasnt nearly long enough to write it all down, especially since I had to relearn touch typing. There were times in that first six months I wished I was back in the coma.
+
+That was three years ago but I only have about $30k of debt left. Ill never be able to buy a house. Due to the debt I lost my security clearance, which cut off my entire career track. I still feel bad for my family having to go through that but I think it made us closer. Im happier with what I have, and grateful for the small things in life, which is fortunate because beforehand I was very driven and ambitious. Now Im more cautious and reserved. Me of three years ago wouldnt like me now. Hed think I gave up and should work harder for more tangible success. Current me is happy with the love and loyalty of my family.
+
+Sometimes though I miss the ability to create fully fleshed out worlds in my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170875.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170687.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. I was in a coma for about two weeks following a cardiac arrest as a teen. I was technically dead for over an hour, in fact. People often ask me if I could hear my family talking to me or if I was dreaming. The answer is No.
+
+There is a huge hole in my memory beginning about two weeks before the coma through a week after waking up. And waking up is in quotes because I would wake up, ask a bunch of semi-incoherent questions, fall back under, then wake up again and ask the *exact* same questions, in the exact same order. Repeat six or seven times.
+
+The coma was not even blackness. It just does not exist. I remember having the hardest time believing it was actually mid-October when the last day I remembered was late-September.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170876.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170688.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. I was in a medically induced coma for several months after a car accident. I dont remember much. But i do recall coming out of the coma briefly a few times. The first time i started flailing around and had to be tired back down to the bed till i was put back to sleep. A second time i woke to see some of my organs out on trays sitting on my body (still attached, but just being held out of the way) i also had a dream about being locked to a couch in cuba and could only watch tv in Spanish (i think it was). I say locked because i was able to get up and move, but only to a certain distance. Like after 10ft id hit an imaginary wall. Like when in a video game and you reach the end of the map.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170877.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Some of us are just built different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170689.png" style="width:100%"><br>
+<span style="font-size:4em">19. My mom was in an induced coma for three months. When she woke up, she thought the hospital was trying to kill her. She tried to get out of bed, and she fell on the floor because she couldnt walk. She was mostly freaked about how her feet had lost their form. They were humped over from not being used. Every muscle, she had to learn again. She couldn’t talk well or write at all. She has different handwriting after re-learning. She said she hated how perfect her hands looked. Her nails and cuticles were perfect and clean from not being used. I remember trying to brush her hair after she woke up, and almost all of it fell out. And she almost died pretty much every day she was in her coma.
+
+She had sepsis from a diverticulitis surgery gone wrong. A lot of her hair has grown back, and she can walk but has brain damage that makes her seem very drunk. She is always dizzy. But it’s been five years now, and her recovery has been miraculous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170878.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170690.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Back in the 90s, my great grandfather had a stroke. He was in a coma for three weeks, and when he woke up, he could not speak English — all he could speak was the Choctaw language. He had learned it when he was a kid, because his family lived right near a Choctaw reserve, and he played with a lot of those kids. He spoke it fluently at that time, but forgot it over his life to where he couldnt remember any of it by this time. This went on for around 10 days, and then he woke up from a nights sleep and could suddenly speak only English again, not remembering a word of Choctaw.
+
+He was also able to repeat verbatim every conversation that had been held in the room that he was in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170879.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170691.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. When I was considered medically dead I couldnt hear anyone, I was in a huge white room with no walls, just a floor. The floor would occasionally sparkle far off. I could not move, I could just look around, it was completely empty. I could still feel emotions, I had a heavy feeling of being nervous/worried. It felt like I was sneaking into a place where I did not belong, like a part of the house that was off limits to me as a kid. Time went by so slowly, I felt every second of it. It was only for 4ish minutes but it definitely felt that long. I could not think, I just felt. It was the most terrifying experience of my life. I felt helpless, everything was out of my control, I felt trapped. I dont remember but when I was revived I screamed for minutes, I just screamed and cried.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170880.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Show this to someone who is your opposite. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170692.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. My girlfriend of 6 years and sort of fiance was in a severe car crash when she was 16. Both of her best friends died instantly. She was the only survivor but they didnt think she would make it. She was in a coma for 9 months. She was in what is called a waking coma. She retained normal periods of sleep and open eyed wakefulness, but no higher brain functions.
+
+Here are some things about her experience.
+
+She doesnt have any memories of the year prior or the year and a halfish after her coma and obviously no memories of the car crash.
+
+She suffered a TBI and when she first got out of the coma she would get naked and sexual with people and anger very easily. These are common problems of people who suffer a TBI.
+
+She went back to school after the coma, but her brain was still healing a lot. She was held back another year because her brain was still not retaining anything.
+
+Today she is a wonderful, bright 30 year old with a college degree. She has a slight speech impediment, gets frustrated easier than most, and it took her a while to get driving down. Honestly, she still scares the hell out of me when she drives, but there are worse drivers out there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170881.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170693.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. I was in a coma for about 2 days when I was 22. I have Crohns and had been in a severe flare for a few weeks prior. Lots of blood loss, unable to eat dehydrated etc. I fell asleep on my parents couch. The next thing I remember is walking up in the ICU and thinking about how I needed to use the restroom. Since I had no idea what had happened or where I was I just got up (or tried to anyway) and all the machines went off and a nurse came running into the room and told me to sit down. I dont remember anything that happened during the coma, no dreams, no sense of time moving. Just like a dreamless sleep. Apparently though I was able to do basic commands in the coma. Like a doctor told me to open my eyes so they could take my contacts out. Id squeeze a hand if told to, but otherwise I didnt move or respond to anything. I dont recall any of it though. Doctors think I went into this coma as a way to preserve energy to keep me alive. I had to get 5 pints of blood and had IV drips in both arms while I was out. Its weird to think about how it happened I was there and yet I have no memories of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170882.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170694.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. You and the people around you change. A lot. I had a narcissistic sister and mom & dad used to fight on the most trivial stuff lots of raised voices. I bet that’s why my sister behaved the way she did. She was sarcastic, too. It never ended. Going home felt like a room to take a bath in and hit the sack at, with a touch of sarcasm and constant entitledness(if that’s even a word).
+
+I had a brain surgery. I was under for 5 months. The lobby lady told me, she was there every day. Never missed a day, there was no need to come visit me. But she would stay there after school till night fell. So like 5 hours.
+
+I never felt so loved ever. It swept the ground (what I thought of her) from under my feet. I was blank.
+
+When I did wake up. She was the first thing I saw. There she was, my sister. Who always hated my guts. I don’t know what made her change, I never asked but I was glad. I knew it was genuine. She wasn’t even surprised, she just looks at me and says “Took you long enough.” We cried and hugged it out.
+
+And she was a complete different person after that. I don’t know what it does to/in people that changes them. But I’m glad that it does.
+
+Then I realised why people just didn’t get up from a bedridden state and need help. Because the back is stiff. XD lolz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170883.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170695.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. I was in a coma for four days from bacterial meningitis. When I woke up, I was completely deaf! I had to communicate with my parents and doctors with a notepad and pen. Some hearing gradually returned in my left ear, but my right ear is still 100% deaf to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170884.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. What is there to say? Germans love bread. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170696.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. I was in a coma for close to six weeks. When I woke up, I had to learn everything again. I had most of my speaking abilities, but my motor control was horrid. I had to figure out how to wipe my ass as well as how to walk up and down the stairs again. That took about three weeks. I had lost a ton of weight, too — I was 63 and weighed about 145 pounds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170885.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170697.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. I was in a medically induced coma for approximately a week due to sepsis. When I was in, I thought I was a bird with my wings outstretched that was slowly freezing to the ground. When I woke up, I thought I was in Taos, but it looked like Raton (I was in Albuquerque, in a hospital that I had worked in for years). I thought I was 10 years younger. I thought I had gotten into a wreck and that my fiancé at the time was an abusive ex-boyfriend. I thought my fiancé had found me naked on the side of I-25 and had taken me to a veterinary hospital. It took another month and a half for me to understand what happened.
+
+I was in and out of surgery and died a couple times in that time. Once, they were changing out my wound vac, and I looked down and saw inside of me, then things started making a little more sense. (When I looked down and saw myself open, it resembled a cheeseburger that someone had cut in half and left in a fridge uncovered for two weeks.) I still cant eat cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170886.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Lmao, coming to an Ikea near you soon. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170698.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. I remember what put me in a coma, then I remember being unconscious but hearing my parents, hallucinations; and then nothing for 5 weeks.. my next memory is at home and my doctor visiting me.
+
+Edit: I’m not a marine (been asked this like 20 times now today)
+Sorry for the questions I haven’t answered, but my inbox just blew up too much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170887.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. God we hate kids these days, and no its not because were getting older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170699.png" style="width:100%"><br>
+<span style="font-size:4em">29. I was in a coma for 3 days following a serious cycling accident, medically induced. I woke up with zero recollection of why I was there or what was said while I was out. It is easily the scariest situation Ive found myself in, but I cant say I remember it. I woke up to my mom and dad in the hospital with me and my body in traction of some sort and that was way scarier to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170888.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170700.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. I had a seizure and was in a medically induced coma for 3 days when I was 17. To be honest I don’t remember anything. I remember fading in and out of the anesthesia trying to pull my breathing tube out and and that my hands were restrained to the bed so I couldn’t. When I woke up and was coherent I couldn’t recall anything from actually being in the coma. They had even moved me to a hospital over 100 miles away. It was really just nothing but black. No dreams, no lights, no voices, just nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170889.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170701.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">32 Pics of the Two Kinds of People</a><br>
 
-<span style="font-size:4em">21. American dollars? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170702.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. There Are 2 Types Of Girls At The Pool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170925.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. And he will go down in history as a legend for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170703.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. There Are Two Types Of Girls In A Bars Restroom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170927.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">43 Choice Randoms For Your Weekly Pleasure</a><br>
+<span style="font-size:4em">3. Me And Our Dog And My Wife And Our Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170906.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169432.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Moms vs. Dads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170909.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169433.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My Neighbor And I Have Different Lifestyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170910.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169434.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Photos I Take Of My Boyfriend vs. Photos He Takes Of Me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170911.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169435.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Two Types Of People (Artist vs. Programmer)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170912.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169436.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. There Are Two Types Of Email Checkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170913.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169437.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Two Kinds of College Protestors</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110714/87170994/people-divided-two-camps-11-6282376132959__700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169438.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Girlfriend And I Enjoyed The Illusion Museum Very Differently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170914.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169439.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My Sister And I Are Polar Opposites. Her Home vs. Mine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170907.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169440.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Two kinds of celebrities</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110703/87170993/people-divided-two-camps-1-627e5f7d4c910__700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169441.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Two Types Of Girls At Parties</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170915.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169442.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Two Very Different Valentines Nights. 12 Piece Of Fried Chicken & Whiskey vs. 12 Pink Tulips & Cupcakes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170916.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169443.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. My Sister: You Can Do The Half-Marathon With Me! Trust Me, Its Not That Bad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170917.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169444.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. There Are Two Types Of IT Techie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170918.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169445.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Two Types Of People In My Office</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170919.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169446.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The Two Types Of People Most Excited For Autumn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170920.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169447.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. What I Pack For A Weekend Away vs. My Husband</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170921.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169448.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Two Types Of Girls At A Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170908.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169449.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. There Are 2 Types Of Girls Durning Prom Season</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170922.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169450.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. There Are Two Types Of People In This World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170923.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169451.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The Difference In Me And My Twins Skin Color. He Goes Outside, I Dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170924.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169452.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. There Are Two Types Of Pie Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170926.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169453.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Hotel Room Puts Up Toilet Paper For Both Types Of People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170928.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169454.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. There Are Two Types Of Jar Openers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170929.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169455.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. Two Types Of Coworkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170930.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169456.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. There Are Two Types Of LEGO People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170931.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169457.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. Two Kinds Of Ice Cream Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170932.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169458.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. “No One Eats A Kit Kat By Biting Into It” First Of All, You Have Not Seen The Things I Have Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170933.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169459.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. Which One Are You?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170934.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169474.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. There Are 2 Types Of Girls On Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170935.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">30 Fun Facts for a Cognitive Colada</a><br>
 
@@ -559,7 +624,47 @@ Me: laughs hysterically. -Elfere</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">12. I bought some helium balloons for my sons birthday. Theyre a pretty expensive item to buy these days...Mainly due to the rise of inflation. -HugoZHackenbush2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170309.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">20 WTF Animal Facts That We Never Realized Were True</a><br>
+## <a href="#linky11" id="linky10">WTF Stock Photos That Won't Make You Go Blind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171647.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">20 WTF Animal Facts That We Never Realized Were True</a><br>
 
 <span style="font-size:4em">1. There are lizards that can literally squirt blood from their eyeballs. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014822/87171235/blood.jpg" style="width:100%"><br>
 
@@ -601,7 +706,103 @@ Me: laughs hysterically. -Elfere</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">20. Out of sheer sexual frustration, male otters will rape baby seals if there aren’t any female otters around. -Murrnath</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015320/87171262/otters.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
+## <a href="#linky13" id="linky12">22 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. Dont forget songs about exs and trucks, country folk love bad relationships and getting terrible mpgs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Yes it me, the hacker, trying to delete all these spam emails. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170685.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. This meme gave me brain damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Some of us are just built different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170689.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Show this to someone who is your opposite. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. What is there to say? Germans love bread. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Lmao, coming to an Ikea near you soon. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. God we hate kids these days, and no its not because were getting older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170699.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170701.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. American dollars? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. And he will go down in history as a legend for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170703.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">24 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171536.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171542.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171555.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
 
 <span style="font-size:4em">1. Threw acid in someones face to steal their motorbike. I was at school with him until I went to university and he was the sweetest guy you could meet. I dont know where it went wrong for him.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/042131/87169477/Motorbike.jpg" style="width:100%"><br>
 
@@ -629,127 +830,7 @@ Me: laughs hysterically. -Elfere</span><br><img src="https://cdn.ebaumsworld.com
 
 <span style="font-size:4em">13. Her parents faked her younger brothers death on the day where she had three finals back to back to back. They wanted to test whether she cared more about her family or her career, supposedly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020547/87170352/messedupthings21.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
-
-<span style="font-size:4em">1. A friend of mine works for a small luxurious hotel in London.He told me the concerge system there is absolutely absurd. Money buys everything.Anything the clients want, clients get. They are told never to say no, worst case they say I dont think this is really appropriateObviously drugs and escorts are a classic. He showed me 20 phone numbers of drug dealers in his phone to be able to get whatever drugs to the customers (he never buys though, only gets people in contact).And for harder tasks, he goes through professional concierges who charge A LOT.- You want a new Prada dress at 2AM for the party you are about to attend? Sure thing, lets wake a few people up, charge triple the price and split the benefit between people involved. Have a good night madam.- You want tickets for the Wimbledon final that takes place tomorrow? You have £20k? Enjoy the game, sir.But in some cases, they cant satisfy the customer. So when a couple of clients came back drunk asking him to have sex with the wife while the husband was watching and filming, he felt like it was a good time to say I dont think this is really appropriate. - Eco-reddit
-
-https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hotels_what_type_of/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169981.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. My husband worked at several luxury hotels and residences (rich people who live at the hotels) and besides how absolutely disgusting everything inside the rooms actually is...I was most shocked by the behavior of the ultra rich.I’m not talking businessmen and doctors. I’m talking Saudi Princes and Heirs to Dynasty families. The level of comfort and technology these people have come to expect is things we cannot imagine.“What do you mean there isn’t there access to intercoms next to the bathroom for when I need services while going potty?” “The television inside the shower is only a 40 inch and there is no gold in this room I need a better suite”. “I’m gonna need you to go out, buy me better bedding, remake my bed, and then do it again tomorrow because I won’t sleep on the same bedding twice”.And that’s just the tip of the icebergs. - SpaceCatMatingCall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169982.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I spent 10 years in the boutique and 5 star hotel world. Got stories for days. But here is my favorite that sums up hospitality (former anyways).Our concierge was Les Clefs Dor, had all the connections, this dude could get you into the French Laundry same day. He would often greet guests with sangria and sprigs of mint from his garden. Sometimes he had lemon slices from his tree too! He loved to tell guests all about his garden and they ate it up.Yeah thats all bullshit. Mint, lemon, and any other garnish we got from the local grocery store. The sangria? Cheapest boxed stuff we could find. But he sold the story like no other. At the end of the day, it worked. - Duwinayo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169983.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Used to work in one two summers ago in a remote-ish place where we lived in accommodations across the street from the hotel. A lot of us have slept with each other (not me, had a gf at the time). And the busiest days are weekends, so we usually have Mondays off. Sundays were called Sunday Funday, where we would go to town or other peoples dorms, and do way too much coke. - Yunagi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169984.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Heres one taken from the opposite end. Im really bad at rolling joints. I left the shitty joint with my stash and papers on the dresser. I come back to a nicely rolled joint. I dont know if any was missing . But thank you Hard Rock LV staff. - J_Beyonder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169985.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I am a subcontractor that works in the It business and the W hotel in Miami beach has seen some shit. One day I come in to work and there is a big scramble at the upper floors( that is were the penthouse are) Seems this kinda known millionaire, had a little too much coke and god knows what else and was destroying the room. He was actually throwing furniture out the balcony, ripped everything out of the fridge, might of even thrown a mattress out the balcony. It was a big deal at the time but they keep it hush with no police involved, a guy that’s paying 9k-13k a night is not going to be arrested. When the team finally got into the room, there was cocaine all over the tables, bottles everywhere, and a couple of high class call girls that were in true fear. Next day they book the same room to Jennifer Lopez. - vamptholem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169986.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I worked at a Ritz Carlton a few years back, its literally the same as anywhere else. The hotel staff is amazing at their job, but on their personal time theyre just as fucked as everyone else.The kitchen staff had a few folks with drug issues and had to be sent home a couple times because of it. In my time there I saw 2 waiters get fired due to embezzlement. The turnover rate for management was very high because they didnt pay enough for the area. The staff parties were WILD to say the least.We werent allowed to greet celebrities by name since they wanted to be anonymous, so we would use their alias that day. Some were greeted by prostitutes or escorts who were always super nice to everyone. A regular would rent out a room for a day, once a month, and make 30-40k that day from clients. Celebrities, business guys, you name it. Crazy. - Mubly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169987.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bedbugs. Every single hotel from run down motels to 5-star resorts has dealt with bedbugs. - Soullikeether</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169988.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My SO worked for a fancy hotel. The building owners (not the chain, the actual building itself) came to visit. He was on the Forbes billionaire list.He was a nice man who had buffet lunches everyday and tipped every staff members he saw a crisp $100, every time he saw them.House keeper walking past? $100. Bar tender setting up? $100Shift swap? 100 on the way in and out. - paperconservation101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169989.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A lot of lonely people going on vacation to end their life. Happens a lot but is never mentioned on the news. - Cool-Lemon-7662</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169990.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Worked at the high end restaurant at a ski resort that hosts a famous film festival.Lots of sex in the walk in coolers, but never the people youd want to walk in on. - johnnycakeAK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169991.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Never trust glass in rooms. GRAs are so stretched thin on time that they will clean the glasses with the same rags they clean the bathroom, after all their goal is to make the room look clean.I worked as a GRA in a five diamond for years and there was over a year period that went by where we didn’t get a clean glass delivery. We didn’t have dishwashers in the room, so management was complicit. This was in a five diamond, one of the top resorts in the world. Never trust glass in hotel rooms. - WitcherOfWallStreet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169992.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Didn’t work at one, but delivered newspapers to one.The prostitution thing was something the desk saw a lot. The best one was when the gentlemen got robbed by two young ladies and immediately demanded the front desk call the cops. When the desk asked if he wanted to call the cops and tell them he hired two hookers (illegal)... he suddenly just grunted and marched up to his room. - Who_dat_22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169993.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When we see instagram influencer on your booking, we roll our eyes. - bhs1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169994.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. At a certain Beverly Hills hotel, where I valet’d for a short amount of time, many stars cars are just left there. They come and get them whenever. There was also a code name for Justin Bieber who visited often (I can’t remember it). He picked it himself. His G-Wagon and a Bentley were just kept down there free of charge. Usher also left his bike there a few years back and has just never collected it. - Oddwrld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169995.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Dead people. In some places theres a reasonable chance somebody has died in your bed. Obviously it varies with the type of hotel and its clientele, but some places you get deaths weekly (not that the hotel is unsafe but unfit old people over exerting themselves). One place I worked maybe 40% of the beds had been died in.Bedbugs. They happen in every hotel. You might be paying $5k a night but your luggage was in the hold with everyone elses. If theres only one or two bugs and none in the adjacent rooms (diamond style, so above, below, and both sides) then you brought them in.You know what I never saw happen? Maids stealing. Everyone always points at the maids when they lose stuff but we always found it. No way the maids are risking their jobs over your used iPad or mall jewelry. With tips they make pretty decent money. - KaneMomona</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169996.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. coke. lots of coke. - explainchampagne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169997.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I worked at a 5 star hotel in England as a bartender. Hosted events and stuff. One thing that was common was my manager would just spam extra drinks onto the bill at events to make more money. Or for example if a big wedding ordered 50 bottles of champagne, they’d only give them 30 and would keep 20 back and if they ran out, they’d have to buy more. I reported this to Senior management and they just laughed saying it’s normal. I actually got told off for not taking part in this. - datguywilld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169998.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. What goes on the room next to you. This week we to evict and have arrested a couple for causing over $15K in damages to a room. This was done quietly late at night and the nearby rooms never found out. - counterslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169999.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. We don’t bat an eye at prostitution or whatever goes on in the rooms as long as it doesn’t affect other guests. Half the women that come to the bar are working girls looking for a sale. The only thing that the hotel industry ever really reports is human trafficking. There are tell tale signs and if something doesn’t add up we do report it to local authorities.I don’t know about all 5* hotels but I’m sure this happens at most of them. Front desk/reservation staff will basically stalk you online if you’re a notable VIP and your picture will be shared internally to ensure everyone recognizes you so you feel special when you arrive and everyone already knows who you are. - NaniBakaNani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170000.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. I was a valet in college at a very swanky resort. The members had a certain sticker on their car and the owners/partners have a black sticker (which I had no clue) but knew they belonged. When a guy pulled up in a very nice Benz I said, “welcome back (not knowing his name). He was so pissed that I didn’t know who he was, he was an ass to me but I couldn’t care less. Moments later another younger guy pulled up to valet and asked me what the guy said to me. I hesitantly said he was mad I had no idea who he was. The young guy (looked disappointed) and said “that’s my father and he is an a$$hole, don’t worry about him at all.” Then he gave me $20 to park his car and was extremely nice to every employee who ever interacted with him. - batmanlovespizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170001.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Not a 5 star hotel, but I worked at a Hilton in Seattle and we had a furry conventionOne of the cats pooped in the elevator - northwesthonkey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170002.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I use to work events at hotels and one time we had a guest break their wine glass inside a water refill barrel ... I left work for two weeks to go on vacation and when I came back, all the glass was still piled inside the water refill barrel. People must have been drinking out of it because there were events booked while I was gone - damien_gray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170003.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. LOTS of prostitution and all the drama/legal trouble that goes along with it. Corporate functions like conventions, parties, etc where theres an open bar almost always leads to something fucked up happening. One hotel I worked at hosted a Christmas party for an investment firm and two guys started jockeying for the affections of a female coworker. They all wound up on an elevator together and the guys started fighting, the elevator went in to safety lock down, we had to call the PD and the FD. One guy went in a squad car, one guy went in an ambulance, we had to give the woman some clothes from lost & found because he dress was covered in blood and the elevator was out of service for six hours to clean it up. Theres always a ton of back of house drama, too. Especially among the execs and the junior managers. Affairs, backstabbing, a little light fraud. You know, the usual. - weirdoldhobo1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170004.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I dont work in one anymore, but used to. This isnt really shenanigans, but: the staff is not nearly so impressed by famous or rich people as some of them seemed to think we should be. It was a fancy hotel. We had rich and famous guests all the time. And it was usually the ones nowhere near the top of the ladder who tried to be the most imperious and expected the most deference. If you have to try to convince us youre high status, you arent. Wed provide polite, professional service for all our guests and try to be helpful and accommodating, but being a C-list actor or whatever isnt going to get you a table in a full restaurant or an upgrade to the already-occupied fancier suites. And if theres a severe blizzard and the airport is closed, we cant open it for you because youre too special to have to wait to fly out. Even if youre a Very Important Businessman. - FranzLuciferdinand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170005.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">32 Pics of the Two Kinds of People</a><br>
-
-<span style="font-size:4em">1. There Are 2 Types Of Girls At The Pool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170925.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. There Are Two Types Of Girls In A Bars Restroom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170927.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Me And Our Dog And My Wife And Our Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170906.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Moms vs. Dads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170909.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My Neighbor And I Have Different Lifestyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170910.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Photos I Take Of My Boyfriend vs. Photos He Takes Of Me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170911.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Two Types Of People (Artist vs. Programmer)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170912.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. There Are Two Types Of Email Checkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170913.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Two Kinds of College Protestors</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110714/87170994/people-divided-two-camps-11-6282376132959__700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Girlfriend And I Enjoyed The Illusion Museum Very Differently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170914.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My Sister And I Are Polar Opposites. Her Home vs. Mine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170907.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Two kinds of celebrities</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110703/87170993/people-divided-two-camps-1-627e5f7d4c910__700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Two Types Of Girls At Parties</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170915.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Two Very Different Valentines Nights. 12 Piece Of Fried Chicken & Whiskey vs. 12 Pink Tulips & Cupcakes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170916.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My Sister: You Can Do The Half-Marathon With Me! Trust Me, Its Not That Bad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170917.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. There Are Two Types Of IT Techie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170918.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Two Types Of People In My Office</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170919.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The Two Types Of People Most Excited For Autumn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170920.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. What I Pack For A Weekend Away vs. My Husband</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170921.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Two Types Of Girls At A Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170908.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There Are 2 Types Of Girls Durning Prom Season</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170922.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. There Are Two Types Of People In This World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170923.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The Difference In Me And My Twins Skin Color. He Goes Outside, I Dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170924.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. There Are Two Types Of Pie Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170926.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Hotel Room Puts Up Toilet Paper For Both Types Of People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170928.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. There Are Two Types Of Jar Openers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170929.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Two Types Of Coworkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170930.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. There Are Two Types Of LEGO People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170931.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Two Kinds Of Ice Cream Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170932.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “No One Eats A Kit Kat By Biting Into It” First Of All, You Have Not Seen The Things I Have Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170933.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Which One Are You?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170934.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. There Are 2 Types Of Girls On Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170935.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">47 Dank Memes Hand Selected For You</a><br>
+## <a href="#linky16" id="linky15">47 Dank Memes Hand Selected For You</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050411/87170504/87149514.jpg" style="width:100%"><br>
 
@@ -845,7 +926,7 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168207.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">24 Strange Posts That Are Oddly Specific</a><br>
+## <a href="#linky17" id="linky16">24 Strange Posts That Are Oddly Specific</a><br>
 
 <span style="font-size:4em">1. Mrs. Maxwell clearly has some issues she needs to work out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148926.jpg" style="width:100%"><br>
 
@@ -894,4 +975,58 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148947.png" style="width:100%"><br>
 
 <span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148948.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
+
+<span style="font-size:4em">1. A friend of mine works for a small luxurious hotel in London.He told me the concerge system there is absolutely absurd. Money buys everything.Anything the clients want, clients get. They are told never to say no, worst case they say I dont think this is really appropriateObviously drugs and escorts are a classic. He showed me 20 phone numbers of drug dealers in his phone to be able to get whatever drugs to the customers (he never buys though, only gets people in contact).And for harder tasks, he goes through professional concierges who charge A LOT.- You want a new Prada dress at 2AM for the party you are about to attend? Sure thing, lets wake a few people up, charge triple the price and split the benefit between people involved. Have a good night madam.- You want tickets for the Wimbledon final that takes place tomorrow? You have £20k? Enjoy the game, sir.But in some cases, they cant satisfy the customer. So when a couple of clients came back drunk asking him to have sex with the wife while the husband was watching and filming, he felt like it was a good time to say I dont think this is really appropriate. - Eco-reddit
+
+https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hotels_what_type_of/</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169981.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. My husband worked at several luxury hotels and residences (rich people who live at the hotels) and besides how absolutely disgusting everything inside the rooms actually is...I was most shocked by the behavior of the ultra rich.I’m not talking businessmen and doctors. I’m talking Saudi Princes and Heirs to Dynasty families. The level of comfort and technology these people have come to expect is things we cannot imagine.“What do you mean there isn’t there access to intercoms next to the bathroom for when I need services while going potty?” “The television inside the shower is only a 40 inch and there is no gold in this room I need a better suite”. “I’m gonna need you to go out, buy me better bedding, remake my bed, and then do it again tomorrow because I won’t sleep on the same bedding twice”.And that’s just the tip of the icebergs. - SpaceCatMatingCall</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169982.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I spent 10 years in the boutique and 5 star hotel world. Got stories for days. But here is my favorite that sums up hospitality (former anyways).Our concierge was Les Clefs Dor, had all the connections, this dude could get you into the French Laundry same day. He would often greet guests with sangria and sprigs of mint from his garden. Sometimes he had lemon slices from his tree too! He loved to tell guests all about his garden and they ate it up.Yeah thats all bullshit. Mint, lemon, and any other garnish we got from the local grocery store. The sangria? Cheapest boxed stuff we could find. But he sold the story like no other. At the end of the day, it worked. - Duwinayo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Used to work in one two summers ago in a remote-ish place where we lived in accommodations across the street from the hotel. A lot of us have slept with each other (not me, had a gf at the time). And the busiest days are weekends, so we usually have Mondays off. Sundays were called Sunday Funday, where we would go to town or other peoples dorms, and do way too much coke. - Yunagi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Heres one taken from the opposite end. Im really bad at rolling joints. I left the shitty joint with my stash and papers on the dresser. I come back to a nicely rolled joint. I dont know if any was missing . But thank you Hard Rock LV staff. - J_Beyonder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I am a subcontractor that works in the It business and the W hotel in Miami beach has seen some shit. One day I come in to work and there is a big scramble at the upper floors( that is were the penthouse are) Seems this kinda known millionaire, had a little too much coke and god knows what else and was destroying the room. He was actually throwing furniture out the balcony, ripped everything out of the fridge, might of even thrown a mattress out the balcony. It was a big deal at the time but they keep it hush with no police involved, a guy that’s paying 9k-13k a night is not going to be arrested. When the team finally got into the room, there was cocaine all over the tables, bottles everywhere, and a couple of high class call girls that were in true fear. Next day they book the same room to Jennifer Lopez. - vamptholem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I worked at a Ritz Carlton a few years back, its literally the same as anywhere else. The hotel staff is amazing at their job, but on their personal time theyre just as fucked as everyone else.The kitchen staff had a few folks with drug issues and had to be sent home a couple times because of it. In my time there I saw 2 waiters get fired due to embezzlement. The turnover rate for management was very high because they didnt pay enough for the area. The staff parties were WILD to say the least.We werent allowed to greet celebrities by name since they wanted to be anonymous, so we would use their alias that day. Some were greeted by prostitutes or escorts who were always super nice to everyone. A regular would rent out a room for a day, once a month, and make 30-40k that day from clients. Celebrities, business guys, you name it. Crazy. - Mubly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bedbugs. Every single hotel from run down motels to 5-star resorts has dealt with bedbugs. - Soullikeether</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My SO worked for a fancy hotel. The building owners (not the chain, the actual building itself) came to visit. He was on the Forbes billionaire list.He was a nice man who had buffet lunches everyday and tipped every staff members he saw a crisp $100, every time he saw them.House keeper walking past? $100. Bar tender setting up? $100Shift swap? 100 on the way in and out. - paperconservation101</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A lot of lonely people going on vacation to end their life. Happens a lot but is never mentioned on the news. - Cool-Lemon-7662</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Worked at the high end restaurant at a ski resort that hosts a famous film festival.Lots of sex in the walk in coolers, but never the people youd want to walk in on. - johnnycakeAK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Never trust glass in rooms. GRAs are so stretched thin on time that they will clean the glasses with the same rags they clean the bathroom, after all their goal is to make the room look clean.I worked as a GRA in a five diamond for years and there was over a year period that went by where we didn’t get a clean glass delivery. We didn’t have dishwashers in the room, so management was complicit. This was in a five diamond, one of the top resorts in the world. Never trust glass in hotel rooms. - WitcherOfWallStreet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Didn’t work at one, but delivered newspapers to one.The prostitution thing was something the desk saw a lot. The best one was when the gentlemen got robbed by two young ladies and immediately demanded the front desk call the cops. When the desk asked if he wanted to call the cops and tell them he hired two hookers (illegal)... he suddenly just grunted and marched up to his room. - Who_dat_22</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When we see instagram influencer on your booking, we roll our eyes. - bhs1987</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. At a certain Beverly Hills hotel, where I valet’d for a short amount of time, many stars cars are just left there. They come and get them whenever. There was also a code name for Justin Bieber who visited often (I can’t remember it). He picked it himself. His G-Wagon and a Bentley were just kept down there free of charge. Usher also left his bike there a few years back and has just never collected it. - Oddwrld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Dead people. In some places theres a reasonable chance somebody has died in your bed. Obviously it varies with the type of hotel and its clientele, but some places you get deaths weekly (not that the hotel is unsafe but unfit old people over exerting themselves). One place I worked maybe 40% of the beds had been died in.Bedbugs. They happen in every hotel. You might be paying $5k a night but your luggage was in the hold with everyone elses. If theres only one or two bugs and none in the adjacent rooms (diamond style, so above, below, and both sides) then you brought them in.You know what I never saw happen? Maids stealing. Everyone always points at the maids when they lose stuff but we always found it. No way the maids are risking their jobs over your used iPad or mall jewelry. With tips they make pretty decent money. - KaneMomona</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169996.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. coke. lots of coke. - explainchampagne</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I worked at a 5 star hotel in England as a bartender. Hosted events and stuff. One thing that was common was my manager would just spam extra drinks onto the bill at events to make more money. Or for example if a big wedding ordered 50 bottles of champagne, they’d only give them 30 and would keep 20 back and if they ran out, they’d have to buy more. I reported this to Senior management and they just laughed saying it’s normal. I actually got told off for not taking part in this. - datguywilld</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. What goes on the room next to you. This week we to evict and have arrested a couple for causing over $15K in damages to a room. This was done quietly late at night and the nearby rooms never found out. - counterslave</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87169999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. We don’t bat an eye at prostitution or whatever goes on in the rooms as long as it doesn’t affect other guests. Half the women that come to the bar are working girls looking for a sale. The only thing that the hotel industry ever really reports is human trafficking. There are tell tale signs and if something doesn’t add up we do report it to local authorities.I don’t know about all 5* hotels but I’m sure this happens at most of them. Front desk/reservation staff will basically stalk you online if you’re a notable VIP and your picture will be shared internally to ensure everyone recognizes you so you feel special when you arrive and everyone already knows who you are. - NaniBakaNani</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. I was a valet in college at a very swanky resort. The members had a certain sticker on their car and the owners/partners have a black sticker (which I had no clue) but knew they belonged. When a guy pulled up in a very nice Benz I said, “welcome back (not knowing his name). He was so pissed that I didn’t know who he was, he was an ass to me but I couldn’t care less. Moments later another younger guy pulled up to valet and asked me what the guy said to me. I hesitantly said he was mad I had no idea who he was. The young guy (looked disappointed) and said “that’s my father and he is an a$$hole, don’t worry about him at all.” Then he gave me $20 to park his car and was extremely nice to every employee who ever interacted with him. - batmanlovespizza</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Not a 5 star hotel, but I worked at a Hilton in Seattle and we had a furry conventionOne of the cats pooped in the elevator - northwesthonkey</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170002.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I use to work events at hotels and one time we had a guest break their wine glass inside a water refill barrel ... I left work for two weeks to go on vacation and when I came back, all the glass was still piled inside the water refill barrel. People must have been drinking out of it because there were events booked while I was gone - damien_gray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. LOTS of prostitution and all the drama/legal trouble that goes along with it. Corporate functions like conventions, parties, etc where theres an open bar almost always leads to something fucked up happening. One hotel I worked at hosted a Christmas party for an investment firm and two guys started jockeying for the affections of a female coworker. They all wound up on an elevator together and the guys started fighting, the elevator went in to safety lock down, we had to call the PD and the FD. One guy went in a squad car, one guy went in an ambulance, we had to give the woman some clothes from lost & found because he dress was covered in blood and the elevator was out of service for six hours to clean it up. Theres always a ton of back of house drama, too. Especially among the execs and the junior managers. Affairs, backstabbing, a little light fraud. You know, the usual. - weirdoldhobo1978</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170004.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I dont work in one anymore, but used to. This isnt really shenanigans, but: the staff is not nearly so impressed by famous or rich people as some of them seemed to think we should be. It was a fancy hotel. We had rich and famous guests all the time. And it was usually the ones nowhere near the top of the ladder who tried to be the most imperious and expected the most deference. If you have to try to convince us youre high status, you arent. Wed provide polite, professional service for all our guests and try to be helpful and accommodating, but being a C-list actor or whatever isnt going to get you a table in a full restaurant or an upgrade to the already-occupied fancier suites. And if theres a severe blizzard and the airport is closed, we cant open it for you because youre too special to have to wait to fly out. Even if youre a Very Important Businessman. - FranzLuciferdinand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170005.jpg" style="width:100%"><br>
 
