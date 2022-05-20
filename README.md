@@ -1,71 +1,105 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/19/2022-19:11:31
+Last updated: 05/19/2022-20:11:31
 <br>
-## <a href="#linky2" id="linky1">31 Dank Memes We Found inside a Mesopotamian Tomb</a><br>
+## <a href="#linky2" id="linky1">22 Fun Facts That are Completely Wrong</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170731.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Sharks cant get cancer. Yes they can.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/013726/87171201/wrongfacts1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170732.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. That the Mayan calendar ended in 2012. No, it didnt. All that happened was that the Fifth Great Cycle of that calendar ended. The current piktun, however, will not end before 4772.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/013754/87171204/wrongfacts5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170733.jpeg" style="width:100%"><br>
+<span style="font-size:4em">3. People still believe the 10% of your brain gag.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/013805/87171205/wrongfacts7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170734.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. The medieval torture device “The Iron Maiden” is completely fake and made up in the 1800’s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014117/87171207/wrongfacts2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170735.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. People believed that the Romans would eat to excess and then purge their food in a Vomitorium. This isnt true, the latin root of the word vomit means to spew forth and a Vomitorium was really a large passage where large crowds could exit an amphitheater.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014128/87171208/wrongfacts3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170736.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Duck quacks do echo.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014440/87171232/wrongfacts6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170737.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. People say you’re supposed to run zig zag from an alligator, but thatll only slow you down and theres no way in hell its gonna run in the zig zag with you. They can run up to 25mph, so your best bet is to turn around and run straight as fast as you can, sooner or later itll give up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014648/87171233/file-photo-alligator.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170738.jpeg" style="width:100%"><br>
+<span style="font-size:4em">8. Punching a shark in the nose isnt as effective as youd think, if you really thought you were in danger jab it in the eyes or pull on the fin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015216/87171255/wrongfacts8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170739.jpeg" style="width:100%"><br>
+<span style="font-size:4em">9. That NASA spent several thousand dollars each on pens that could work in space, while the Soviets just used a pencil. In reality NASA bought the pens at about $7 a piece. And using pencils in a zero gravity contained vessel will leave the pencil shavings and graphite crumbs floating as you try to work and breathe, so the Soviets wound up making similar pens too.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015220/87171256/wrongfacts10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170740.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Not all cacti hold drinkable water, so dont rely on them to supply you water when traveling in the desserts. In fact, many cacti hold liquids that will do a nasty number on you if consumed.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015227/87171257/wrongfacts11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170741.jpeg" style="width:100%"><br>
+<span style="font-size:4em">11. Gold fish actually have pretty good memories.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015230/87171258/wrongfacts12.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170742.jpeg" style="width:100%"><br>
+<span style="font-size:4em">12. That Elephants see us the way that we see dogs. They absolutely do not. They approach humans with caution at best and aggression at worst and will not hesitate to flatten you if even the tiniest thought that you might be a threat comes across their minds.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015238/87171259/wrongfacts9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170743.jpeg" style="width:100%"><br>
+<span style="font-size:4em">13. A dog’s mouth is cleaner than a human’s. They have similar bacteria levels.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015241/87171260/wrongfacts13.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170744.jpeg" style="width:100%"><br>
+<span style="font-size:4em">14. You need 8 glasses of water a day. We need a certain amount of water but we can get water from all sorts of sources. Fruits and vegetables are full of water.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015250/87171261/wrongfacts14.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170745.jpeg" style="width:100%"><br>
+<span style="font-size:4em">15. That Albert Einstein failed high school math. He didnt. Einstein was a brilliant mathematician and was doing graduate level math when he was a young teen.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015430/87171263/wrongfacts17.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170746.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Lightning never strikes the same spot twice.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015440/87171264/wrongfacts15.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170747.jpeg" style="width:100%"><br>
+<span style="font-size:4em">17. Contrary to popular belief, not one person accused of witchcraft during the Salem Witch Trials was burned at the stake.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015453/87171265/wrongfacts18.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170748.jpeg" style="width:100%"><br>
+<span style="font-size:4em">18. That Michael Jordan didnt make his high school basketball team. He did. However he was put on the Jr. varsity team, which is quite common for new players.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015500/87171266/wrongfacts16.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170749.jpeg" style="width:100%"><br>
+<span style="font-size:4em">19. That you taste different tastes on separate places of your tongue.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015505/87171267/wrongfacts19.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170750.jpeg" style="width:100%"><br>
+<span style="font-size:4em">20. That deoxygenated blood is blue.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015512/87171268/wrongfacts20.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170751.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. That bulls get angry with the color red. No they dont. Bulls are colorblind. They get angry from an idiot waving a flag in their face just to get the bulls to charge.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015515/87171269/wrongfacts22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170752.jpeg" style="width:100%"><br>
+<span style="font-size:4em">22. Shaving hair makes your hair thicker. It just makes the end of the hair all jagged and harder to push out of the pore it stays in. If you pull the hair out completely then it comes out as a new hair follicle so it’s less irritating on the way out.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015522/87171270/wrongfacts21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170753.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170754.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170755.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170756.png" style="width:100%"><br>
+<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170757.jpeg" style="width:100%"><br>
+<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170758.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170759.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170760.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170761.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">23 People Who Think They're Way More Tough Than They Are</a><br>
+<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">23 People Who Think They're Way More Tough Than They Are</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169031.jpg" style="width:100%"><br>
 
@@ -113,123 +147,7 @@ Last updated: 05/19/2022-19:11:31
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169042.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">43 Choice Randoms For Your Weekly Pleasure</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169439.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169441.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169442.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169443.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169468.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169470.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169471.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169472.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169473.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169474.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
-
-<span style="font-size:4em">1. Threw acid in someones face to steal their motorbike. I was at school with him until I went to university and he was the sweetest guy you could meet. I dont know where it went wrong for him.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/042131/87169477/Motorbike.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I know a dude who shit down a chimney. Impressive as it was messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044934/87169483/badthings3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. He slept with his sons long-term girlfriend. Like his sons first love. Told his son like it was no big deal. He told us about it at work, and said his son was being a bit of a bitch about it. We then watched his life fall apart as both his kids cut him out of their lives. Dude found out he became a grandpa from his older daughter via an email with no pictures.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044941/87169484/badthings5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My ex best friend slept with a coworker that was freshly married & had a newborn. In the wife’s car. Twice.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044953/87169486/badthings6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I know someone who was doing a semester abroad in China during college. She let her boyfriend at the time fly out from the US for a week+ visit, knowing she was going to dump him the second she saw him. She did it because it would have been “too hard” to dump him over the phone.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044957/87169487/badthings8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. There’s a lot to pick from, but one of my ex-coworkers euthanized her two cats because she was getting a new couch and didn’t want them to ruin it. She told us this at work and didn’t get why she got a bunch of blank stares back.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045004/87169488/badthings9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My dad ran a small but successful business for over a decade but when my eldest brother started working with him he ruined us to the point that he almost made us homeless. After he left us high & dry, my dad had spent 3-4 years trying to do damage control but ultimately had to sell the business for less than half its worth.To this day my eldest brother has never apologized nor has taken any responsibility for his actions. I have zero respect for that scumbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045010/87169489/badthings10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My best friend at the time had depression and drinking issues. One night he got really drunk and I think drugs were in the mix and he stole a gun out of his neighbors barn and shot one of his toes off on purpose. He’s doing better now thankfully.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045016/87169490/badthings11.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I was getting out of the army and had put back over $70k for a home for my family. My mother got my banking information and took every penny for drugs. When I tried suing my family disowned me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020517/87170348/messedupthings22.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A coworker took another coworkers insulin out of the fridge because he made the other coworker check out late when they didnt come in.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020528/87170349/messedupthings24.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. My friend told a guy she was sleeping with that she’d had a miscarriage so that he would come back from Australia (he’d left three weeks before for an extended stay, probably to get away from her because she was a psychopath).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020542/87170350/messedupthings23.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. My uncle ran a Ponzi scheme and stole millions of dollars from his clients, including $200,000 from my grandfather. In terms of people I know personally, that’s gotta be up there.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020545/87170351/messedupthings25.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Her parents faked her younger brothers death on the day where she had three finals back to back to back. They wanted to test whether she cared more about her family or her career, supposedly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020547/87170352/messedupthings21.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">30 Fun Facts for a Cognitive Colada</a><br>
+## <a href="#linky5" id="linky4">30 Fun Facts for a Cognitive Colada</a><br>
 
 <span style="font-size:4em">1. that the new Rolls-Royce Ghost soundproofing was so overengineered that occupants in the car found the near-total silence disorienting, and some felt sick. Acoustic engineers had to go back and work on harmonizing various sounds in the car to add a continuous soft whisper</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169944.jpg" style="width:100%"><br>
 
@@ -291,95 +209,7 @@ Last updated: 05/19/2022-19:11:31
 
 <span style="font-size:4em">30. that January is the first month of the Gregorian calendar because it is named after the roman god of all beginnings, Janus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169966.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Dank Memes We Hid From the Tax Man</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169710.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169711.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169712.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169714.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169730.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012036/87169363/babes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  Or anything to the effect of young people cant have back pain (or any other physical disability). Like, dude, I wish being in my twenties made me immune to being injured. But thats literally just not how the human body works. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014452/87169380/ForSales.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011322/87169324/phone.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  Im bloody well trying Karen. Just cause you bought your house in the 60s for 40k and a blueberry, off your husbands salary, whilst you were a stay at home mom, then sold it for 600k this year to retire off of- Doesnt mean that its the same for this generation, right now. Far from it in fact. Just. Shut up.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012235/87169364/work.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124936/87169282/kidsplayg.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">You kids and these damn phones... My parents are on their phones more than I am by a lot. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011554/87169361/wed.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Yup and its always facebook and facebook videos blaring at full volume too. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014111/87169379/gaming3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125056/87169283/colegedring.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> First of all no one ever wanted to work. Thats why its called, work, and not fun. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013529/87169374/sswww.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Second of all, maybe its that no one wants to work at your job that lists itself as entry level but wants 5 years of experience and a masters degree along with being able to work 12 hour days at minimum wage. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011052/87169318/emo.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013755/87169376/wers.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">I do love the complaints about kids not playing outside anymore nowadays. Especially by people from the generation who did everything in their power to make just being outside aggressively terrible. Either through a large decrease in the number of places kids can play, an increase in the number of cars and just vehicles in general or by making laws against things like simply hanging out. Of course, were going to prefer being on the phone over that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011804/87169362/home.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124814/87169281/old-person-using-pc-18-1455793035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em"> Just had someone the other day ask me so why arent you married? Im like.. if i met someone worth marrying, then I would! Best response to this is “Supply chain issues”</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012735/87169365/older.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013234/87169368/LargeFamily.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  Says the boomer sitting on the couch, sitting on his phone with Fox News playing in the background.   </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125224/87169284/Cars.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">  My retired dad has been so nasty to my husband because my husband enjoys playing video games. He tells him hes addicted and one time told him to get a job instead of playing video games even though my husband did already have a job. At the same time, my dad has no friends, hates spending time with his family, and spends his entire day every day watching tv from the moment he wakes up until he goes to bed at night.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014944/87169382/earth.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
+## <a href="#linky6" id="linky5">25 People Expose 5-Star Hotels' Dirtiest Secrets</a><br>
 
 <span style="font-size:4em">1. A friend of mine works for a small luxurious hotel in London.He told me the concerge system there is absolutely absurd. Money buys everything.Anything the clients want, clients get. They are told never to say no, worst case they say I dont think this is really appropriateObviously drugs and escorts are a classic. He showed me 20 phone numbers of drug dealers in his phone to be able to get whatever drugs to the customers (he never buys though, only gets people in contact).And for harder tasks, he goes through professional concierges who charge A LOT.- You want a new Prada dress at 2AM for the party you are about to attend? Sure thing, lets wake a few people up, charge triple the price and split the benefit between people involved. Have a good night madam.- You want tickets for the Wimbledon final that takes place tomorrow? You have £20k? Enjoy the game, sir.But in some cases, they cant satisfy the customer. So when a couple of clients came back drunk asking him to have sex with the wife while the husband was watching and filming, he felt like it was a good time to say I dont think this is really appropriate. - Eco-reddit
 
@@ -433,111 +263,127 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">25. I dont work in one anymore, but used to. This isnt really shenanigans, but: the staff is not nearly so impressed by famous or rich people as some of them seemed to think we should be. It was a fancy hotel. We had rich and famous guests all the time. And it was usually the ones nowhere near the top of the ladder who tried to be the most imperious and expected the most deference. If you have to try to convince us youre high status, you arent. Wed provide polite, professional service for all our guests and try to be helpful and accommodating, but being a C-list actor or whatever isnt going to get you a table in a full restaurant or an upgrade to the already-occupied fancier suites. And if theres a severe blizzard and the airport is closed, we cant open it for you because youre too special to have to wait to fly out. Even if youre a Very Important Businessman. - FranzLuciferdinand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87170005.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">25 Things We Were Hyped For That Completely Flopped</a><br>
+## <a href="#linky7" id="linky6">13 People Share The Most F**ed Up Thing They've Ever Seen</a><br>
 
-<span style="font-size:4em">1. Power Glove. It sucked and Ill never forget it. -u/Ekh0es</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170174.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Threw acid in someones face to steal their motorbike. I was at school with him until I went to university and he was the sweetest guy you could meet. I dont know where it went wrong for him.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/042131/87169477/Motorbike.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Google Plus. They made us wait for a very long time with the invite-only feature. People forgot about it when it was released. -u/introvertboyme</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170175.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I know a dude who shit down a chimney. Impressive as it was messed up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044934/87169483/badthings3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Dark Tower movie with Idris Elba. -u/urchisilver</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170176.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. He slept with his sons long-term girlfriend. Like his sons first love. Told his son like it was no big deal. He told us about it at work, and said his son was being a bit of a bitch about it. We then watched his life fall apart as both his kids cut him out of their lives. Dude found out he became a grandpa from his older daughter via an email with no pictures.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044941/87169484/badthings5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Sim City 5. Good god what a horrid mess. First week or more of the release you were lucky to play because you could only play it online on their servers that were constantly full. Then once you hit like 50k people in your city the game was uncontrollable. You would literally run out of water and no matter what you did, traffic took the shortest path so constant traffic and thus emergency vehicles couldnt move so everything went to hell fast. -u/InsertBluescreenHere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170177.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My ex best friend slept with a coworker that was freshly married & had a newborn. In the wife’s car. Twice.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044953/87169486/badthings6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Google Glass: futuristic smart glasses. -u/SuvenPan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170178.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. I know someone who was doing a semester abroad in China during college. She let her boyfriend at the time fly out from the US for a week+ visit, knowing she was going to dump him the second she saw him. She did it because it would have been “too hard” to dump him over the phone.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/044957/87169487/badthings8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. M. Night Shyamalans Avatar movie. He broke my heart. -u/Suspicious-Elk-3631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170179.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. There’s a lot to pick from, but one of my ex-coworkers euthanized her two cats because she was getting a new couch and didn’t want them to ruin it. She told us this at work and didn’t get why she got a bunch of blank stares back.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045004/87169488/badthings9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. The Zune. Larger capacity, color screen, could play movies, and cost less than an iPod. Personally, I think it was an awesome device, but ultimately it failed. :( -u/TSwizzlesNipples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170189.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. My dad ran a small but successful business for over a decade but when my eldest brother started working with him he ruined us to the point that he almost made us homeless. After he left us high & dry, my dad had spent 3-4 years trying to do damage control but ultimately had to sell the business for less than half its worth.To this day my eldest brother has never apologized nor has taken any responsibility for his actions. I have zero respect for that scumbag.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045010/87169489/badthings10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Yandere simulator years ago. -u/grossjuice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170180.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My best friend at the time had depression and drinking issues. One night he got really drunk and I think drugs were in the mix and he stole a gun out of his neighbors barn and shot one of his toes off on purpose. He’s doing better now thankfully.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/045016/87169490/badthings11.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. When Geraldo Rivera opened Al Capones vault. -u/miurabucho</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170181.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I was getting out of the army and had put back over $70k for a home for my family. My mother got my banking information and took every penny for drugs. When I tried suing my family disowned me.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020517/87170348/messedupthings22.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Being an adult. -u/marr318</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170182.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. A coworker took another coworkers insulin out of the fridge because he made the other coworker check out late when they didnt come in.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020528/87170349/messedupthings24.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Anthem. I didnt even find the flying that great. It was kinda fun, but the gunplay was so insanely boring and the world-building was so poorly executed. And holy Christ was the writing trash. I played it with a friend and had low expectations, but it failed to meet even those. -u/NobilisUltima</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170183.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. My friend told a guy she was sleeping with that she’d had a miscarriage so that he would come back from Australia (he’d left three weeks before for an extended stay, probably to get away from her because she was a psychopath).</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020542/87170350/messedupthings23.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Second go around of Arrested Development. Deep inside I knew they’d never be able to capture that magic. Still, told myself they could. Narrator: They couldn’t. -u/AreaGuy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170184.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. My uncle ran a Ponzi scheme and stole millions of dollars from his clients, including $200,000 from my grandfather. In terms of people I know personally, that’s gotta be up there.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020545/87170351/messedupthings25.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Every New Year’s Eve party ever. -u/PollyWentlightly</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170185.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Her parents faked her younger brothers death on the day where she had three finals back to back to back. They wanted to test whether she cared more about her family or her career, supposedly.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/020547/87170352/messedupthings21.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. The PS Vita. I wouldn’t say it was a total flop but it deserved so much more support and a better life than it had. -u/GhostRN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170188.jpg" style="width:100%"><br>
+## <a href="#linky8" id="linky7">17 Things Young People Are Sick Of Hearing Old People Complain About</a><br>
 
-<span style="font-size:4em">15. 3D TV. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170186.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012036/87169363/babes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Pacific Rim 2. What the f*ck was that? -u/Accurate_Western_346</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170191.jpg" style="width:100%"><br>
+<span style="font-size:4em">  Or anything to the effect of young people cant have back pain (or any other physical disability). Like, dude, I wish being in my twenties made me immune to being injured. But thats literally just not how the human body works. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014452/87169380/ForSales.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. I remember being hyped for the Suicide Squad movie back then and left the cinema severely disappointed. -u/mj-gaia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170187.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011322/87169324/phone.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Having a career. Our whole life built up to this….and its just mediocre, and NOBODY knows what they are really doing. -u/SnooPandas1674</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170192.jpg" style="width:100%"><br>
+<span style="font-size:4em">  Im bloody well trying Karen. Just cause you bought your house in the 60s for 40k and a blueberry, off your husbands salary, whilst you were a stay at home mom, then sold it for 600k this year to retire off of- Doesnt mean that its the same for this generation, right now. Far from it in fact. Just. Shut up.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012235/87169364/work.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. The Segway. Mind you, it was billed as something that would change mankind. -u/Setthescene</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170193.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124936/87169282/kidsplayg.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Last season of GOT. -deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170190.jpg" style="width:100%"><br>
+<span style="font-size:4em">You kids and these damn phones... My parents are on their phones more than I am by a lot. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011554/87169361/wed.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Fallout 76. Was happy to finally have a Fallout with multiplayer, but was too buggy to have any fun at launch. -u/KrogtDK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170194.jpg" style="width:100%"><br>
+<span style="font-size:4em"> Yup and its always facebook and facebook videos blaring at full volume too. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014111/87169379/gaming3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Mobile gaming. -u/xx_DEADND_xx</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170195.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125056/87169283/colegedring.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The Hobbit movies. Im a huge LOTR fan and they are just meh. The magic was gone. They should have made one film closely following the book. -u/feta_morgana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170196.jpg" style="width:100%"><br>
+<span style="font-size:4em"> First of all no one ever wanted to work. Thats why its called, work, and not fun. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013529/87169374/sswww.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. The Fantastic Beasts films. -u/kukukele</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170197.jpg" style="width:100%"><br>
+<span style="font-size:4em"> Second of all, maybe its that no one wants to work at your job that lists itself as entry level but wants 5 years of experience and a masters degree along with being able to work 12 hour days at minimum wage. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011052/87169318/emo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Mass Effect Andromeda. That was when I learned my lesson not to pre-order. -u/scruffy_beerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170198.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013755/87169376/wers.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 Comedic Actors Who Became Fantastic Dramatic Actors</a><br>
+<span style="font-size:4em">I do love the complaints about kids not playing outside anymore nowadays. Especially by people from the generation who did everything in their power to make just being outside aggressively terrible. Either through a large decrease in the number of places kids can play, an increase in the number of cars and just vehicles in general or by making laws against things like simply hanging out. Of course, were going to prefer being on the phone over that. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/011804/87169362/home.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. John Goodman His performance in 10 Cloverfield Lane was nothing short of perfection. The look of pure evil in his eyes when he killed that guy was horror at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170240.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/124814/87169281/old-person-using-pc-18-1455793035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Cranston did a spectacular job in Breaking Bad. I was never a big fan of Malcolm in the Middle (it was just ok), but going back through old Seinfelds on Netflix and Cranston as the dentist is hilarious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170241.jpeg" style="width:100%"><br>
+<span style="font-size:4em"> Just had someone the other day ask me so why arent you married? Im like.. if i met someone worth marrying, then I would! Best response to this is “Supply chain issues”</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/012735/87169365/older.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Gene Wilder to me is special. He’s what my model of a complex sensitive man was growing up. Somehow not conventionally good-looking but sexy in that 70s way. Tender, sometimes furious, frantic, sophisticated, intelligent— and sings and dances. I loved him so much. And with Pryor, forget it. Even their mediocre films had such beautiful chemistry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170242.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/013234/87169368/LargeFamily.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bob OdenkirkHe seems kinda surprised about it, watching his interviews. But damn he does both well in the same role.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170243.jpg" style="width:100%"><br>
+<span style="font-size:4em">  Says the boomer sitting on the couch, sitting on his phone with Fox News playing in the background.   </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/125224/87169284/Cars.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Kurt Russell was a Disney comedy actor for about 10 years until he did a TV movie about a mass shooter then hooked up with John Carpenter.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170244.jpg" style="width:100%"><br>
+<span style="font-size:4em">  My retired dad has been so nasty to my husband because my husband enjoys playing video games. He tells him hes addicted and one time told him to get a job instead of playing video games even though my husband did already have a job. At the same time, my dad has no friends, hates spending time with his family, and spends his entire day every day watching tv from the moment he wakes up until he goes to bed at night.  </span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/014944/87169382/earth.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Olivia Coleman. Loved her in Hot Fuzz but was pleasantly surprised by her in the Favourite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170245.jpg" style="width:100%"><br>
+## <a href="#linky9" id="linky8">Three-Word Pieces of Advice We’d Give to Our 13-Year-Old Selves </a><br>
 
-<span style="font-size:4em">7. Hugh Laurie. Went from A bit of Fry and Laurie to Blackadder and then out of nowhere, House MD and then again with Night Manager.That man knows acting!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170246.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Brush your teeth. -mynameisusama</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053921/87169554/brush.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. John Lithgow. Seeing him in Dexter was a decent mindf*ck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170247.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Dont trade Charizard. -facepwnage</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053954/87169557/charizard.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Bill Hader has been good in Barry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170248.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wash your a**. -imk</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054354/87169578/wash.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Woody Harrelson. Great on Cheers and now has had several Oscar nominations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170249.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Save up money. -JugOfVoodoo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053838/87169550/allowance.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Tom Hanks, if you remember him from his early career in the early 1980s, he was a talented comedy actor... but no way would I have imagined him doing dramas, let alone starring in them, let alone a string of hits.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170250.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. WEAR A CONDOM. -NicksterPro</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054017/87169559/condom.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Robin Williams. His performance in One Hour Photo is creepy as hell. The dude was absolutely a phenomenal actor no matter the genre. Insomnia has another great performance of his as well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170251.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Stay off ATVs. -Cloudkicker91</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053859/87169552/atv.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Joseph Gordon-Levitt has come a long way from his “3rd Rock from the Sun” days.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170252.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Choose Art School. -Bryans-Ghost</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053847/87169551/artschool.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Steve Carell. I loved him in Little Miss Sunshine!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170253.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Alcohol. Bad. Don’t. -Seaniebeebop</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053910/87169553/booze.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Steve Buscemi. His performance in Boardwalk Empire was superb. Definitely disappoints me that he doesnt get more dramatic roles. Shook.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170254.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. You were abused. -Bepis_drinker_cum</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053837/87169549/abuse.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Jason Bateman. He has this way of making an insult sound like a compliment. F*cking gold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170255.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Love dad more. -RealLifeHaxor</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053932/87169555/catch.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Katey Sagal. From Peggy Bundy to Gemma Teller.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170256.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Dont ever change. -emzyyx</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053943/87169556/change.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Jeff Daniels. Dumb & Dumber vs. The Newsroom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170257.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Don’t f**king smoke. -whateverathrowaway00</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054005/87169558/cigs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Jim Carrey. I actually don’t like his comedy, but I love The Eternal Sunshine of the Spotless Mind and The Truman Show.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170258.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. It gets better. -PiltoversFinest62</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054028/87169560/depress.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Steve Martin transcends acting. He is a great comedian, comedy actor, and dramatic actor, yes. But, he’s also a great musician, artist, writer, and I assume some kind of scientist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170259.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Dont date _______. -Confianca1970</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054039/87169561/dontdate.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Jackie Gleason, from his own entertainment show, to the Honeymooners, to the Sherriff in Cannonball Express, has done some fantastic roles, Minnesota Fats, but one you might have seen is the 1986 film Nothing in Common with Tom Hanks.Gleason is so good, you can sense Hanks soaking up all the acting chops.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170260.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. DONT FORGET ABOUT... -netohh323</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054050/87169562/dontforget.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Donald Glover.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170261.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Drugs ruined you. -GizmoTheLion</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054102/87169563/drugs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Sacha Baron CohenI wanted to see him as Freddie Mercury so bad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170262.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Never trust farts. -LaurensOfSuburbia</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054113/87169564/fart.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Emma Stone. She went from Superbad and Zombieland to winning an Oscar for best actress.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170263.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Never start gambling. -ElegantBullfrog2417</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054125/87169565/gamble.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Jonah Hill. So he and the director of 21 Jump Street basically had to bully Channing Tatum into reading for that movie, because Channing had never done a comedy before and didnt think he could pull it off. Turns out he was so funny that Jonah Hill was almost offended, because the short fat guy is supposed to be the funny one, not the big tall handsome guy. Jonah thought it was just a little unfair that a guy who looked like Channing could also be a natural comedic talent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87170264.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Leave Jehovahs Witnesses. -from_dust</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054159/87169568/jehovah.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">47 Dank Memes Hand Selected For You</a><br>
+<span style="font-size:4em">20. Happiness isn’t linear. -Evangelion-02</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054136/87169566/happy.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Enjoy your childhood. -OnuAjiNo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054211/87169569/kidsplaying.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I love you. -a-rabid-cupcake</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054234/87169571/love.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Keep making music. -douglas_yancie</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054245/87169572/music.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. You aren’t fat. -Boinkysamm</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054257/87169573/notfat.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Stay in school. -Julie-Andrews</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054308/87169574/school.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. No student loans. -TravelingGleeman87</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054332/87169576/studentloans.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Go to therapy. -cornygiraffe</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054343/87169577/therapy.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">47 Dank Memes Hand Selected For You</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/050411/87170504/87149514.jpg" style="width:100%"><br>
 
@@ -633,179 +479,147 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87168207.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">24 Strange Posts That Are Oddly Specific</a><br>
+## <a href="#linky11" id="linky10">43 Choice Randoms For Your Weekly Pleasure</a><br>
 
-<span style="font-size:4em">1. Mrs. Maxwell clearly has some issues she needs to work out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148926.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169432.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Nobody wants to fish these days. And were starting to think its a bigger problem then the media will admit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148927.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169433.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Whats the deal? If you do this shame on you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148928.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169434.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. This guy needs a piano speedrun lesson. Any takers? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148929.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169435.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Hes right you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148930.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169436.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. What the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148949.jpeg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169437.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. 21, its 21! Most of my traumatic experiences can be traced to learning my times tables. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148931.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169438.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148932.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169439.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148933.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169440.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148934.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169441.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148941.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169442.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148935.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169443.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148936.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169444.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148937.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169445.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148938.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169446.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148939.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169447.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148940.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169448.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148942.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169449.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148943.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169450.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148944.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169451.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148945.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169452.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148946.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169453.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148947.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169454.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148948.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169455.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">32 Pics of the Two Kinds of People</a><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169456.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. There Are 2 Types Of Girls At The Pool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170925.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169457.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. There Are Two Types Of Girls In A Bars Restroom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170927.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169458.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Me And Our Dog And My Wife And Our Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170906.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169459.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Moms vs. Dads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170909.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169460.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. My Neighbor And I Have Different Lifestyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170910.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169461.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Photos I Take Of My Boyfriend vs. Photos He Takes Of Me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170911.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169462.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Two Types Of People (Artist vs. Programmer)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170912.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169463.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. There Are Two Types Of Email Checkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170913.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169464.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Two Kinds of College Protestors</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110714/87170994/people-divided-two-camps-11-6282376132959__700.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169465.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Girlfriend And I Enjoyed The Illusion Museum Very Differently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170914.jpg" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169466.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. My Sister And I Are Polar Opposites. Her Home vs. Mine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170907.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169467.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Two kinds of celebrities</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110703/87170993/people-divided-two-camps-1-627e5f7d4c910__700.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169468.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Two Types Of Girls At Parties</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170915.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169469.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Two Very Different Valentines Nights. 12 Piece Of Fried Chicken & Whiskey vs. 12 Pink Tulips & Cupcakes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170916.jpg" style="width:100%"><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169470.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. My Sister: You Can Do The Half-Marathon With Me! Trust Me, Its Not That Bad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170917.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. There Are Two Types Of IT Techie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170918.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Two Types Of People In My Office</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170919.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. The Two Types Of People Most Excited For Autumn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170920.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87169474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. What I Pack For A Weekend Away vs. My Husband</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170921.jpg" style="width:100%"><br>
+## <a href="#linky12" id="linky11">25 Dank Memes We Hid From the Tax Man</a><br>
 
-<span style="font-size:4em">20. Two Types Of Girls At A Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170908.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169707.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. There Are 2 Types Of Girls Durning Prom Season</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170922.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169708.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. There Are Two Types Of People In This World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170923.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169709.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The Difference In Me And My Twins Skin Color. He Goes Outside, I Dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170924.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169710.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. There Are Two Types Of Pie Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170926.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169711.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Hotel Room Puts Up Toilet Paper For Both Types Of People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170928.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169712.png" style="width:100%"><br>
 
-<span style="font-size:4em">26. There Are Two Types Of Jar Openers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170929.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169713.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Two Types Of Coworkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170930.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169714.png" style="width:100%"><br>
 
-<span style="font-size:4em">28. There Are Two Types Of LEGO People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170931.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169715.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. Two Kinds Of Ice Cream Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170932.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169716.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. “No One Eats A Kit Kat By Biting Into It” First Of All, You Have Not Seen The Things I Have Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170933.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169717.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. Which One Are You?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170934.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169718.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. There Are 2 Types Of Girls On Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170935.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169719.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Three-Word Pieces of Advice We’d Give to Our 13-Year-Old Selves </a><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169720.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Brush your teeth. -mynameisusama</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053921/87169554/brush.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169721.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Dont trade Charizard. -facepwnage</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053954/87169557/charizard.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169722.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Wash your a**. -imk</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054354/87169578/wash.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169723.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Save up money. -JugOfVoodoo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053838/87169550/allowance.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169724.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. WEAR A CONDOM. -NicksterPro</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054017/87169559/condom.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169725.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Stay off ATVs. -Cloudkicker91</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053859/87169552/atv.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169726.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Choose Art School. -Bryans-Ghost</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053847/87169551/artschool.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169727.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Alcohol. Bad. Don’t. -Seaniebeebop</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053910/87169553/booze.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169728.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. You were abused. -Bepis_drinker_cum</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053837/87169549/abuse.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169729.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Love dad more. -RealLifeHaxor</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053932/87169555/catch.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169730.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Dont ever change. -emzyyx</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/053943/87169556/change.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87169731.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Don’t f**king smoke. -whateverathrowaway00</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054005/87169558/cigs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. It gets better. -PiltoversFinest62</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054028/87169560/depress.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Dont date _______. -Confianca1970</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054039/87169561/dontdate.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. DONT FORGET ABOUT... -netohh323</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054050/87169562/dontforget.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Drugs ruined you. -GizmoTheLion</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054102/87169563/drugs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Never trust farts. -LaurensOfSuburbia</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054113/87169564/fart.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never start gambling. -ElegantBullfrog2417</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054125/87169565/gamble.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Leave Jehovahs Witnesses. -from_dust</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054159/87169568/jehovah.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Happiness isn’t linear. -Evangelion-02</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054136/87169566/happy.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Enjoy your childhood. -OnuAjiNo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054211/87169569/kidsplaying.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. I love you. -a-rabid-cupcake</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054234/87169571/love.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Keep making music. -douglas_yancie</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054245/87169572/music.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. You aren’t fat. -Boinkysamm</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054257/87169573/notfat.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Stay in school. -Julie-Andrews</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054308/87169574/school.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. No student loans. -TravelingGleeman87</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054332/87169576/studentloans.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Go to therapy. -cornygiraffe</span><br><img src="https://cdn.ebaumsworld.com/2022/05/17/054343/87169577/therapy.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">55 Radical Randoms and Magnificent Memes Anyone Can Enjoy</a><br>
+## <a href="#linky13" id="linky12">55 Radical Randoms and Magnificent Memes Anyone Can Enjoy</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/124703/87170206/87033382.jpg" style="width:100%"><br>
 
@@ -917,7 +731,57 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/18/125057/87170236/87169529.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">20 WTF Animal Facts That We Never Realized Were True</a><br>
+## <a href="#linky14" id="linky13">24 Strange Posts That Are Oddly Specific</a><br>
+
+<span style="font-size:4em">1. Mrs. Maxwell clearly has some issues she needs to work out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Nobody wants to fish these days. And were starting to think its a bigger problem then the media will admit. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Whats the deal? If you do this shame on you. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. This guy needs a piano speedrun lesson. Any takers? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Hes right you know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. What the hell happened here? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148949.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. 21, its 21! Most of my traumatic experiences can be traced to learning my times tables. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148941.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148935.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148936.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148937.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148938.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148939.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148940.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148942.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148943.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148944.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148945.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148946.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148947.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87148948.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">20 WTF Animal Facts That We Never Realized Were True</a><br>
 
 <span style="font-size:4em">1. There are lizards that can literally squirt blood from their eyeballs. -Ducky935</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/014822/87171235/blood.jpg" style="width:100%"><br>
 
@@ -958,4 +822,134 @@ https://www.reddit.com/r/AskReddit/comments/nq9fjc/people_who_work_at_5_star_hot
 <span style="font-size:4em">19. Tasmanian devils live in burrows. A male will break into a females burrow and attack her. He will hold her hostage for days, biting and clawing at her refusing to let her leave her burrow until he wears her down and lets him mate with her. -c-est-magnifique</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015021/87171254/taz.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">20. Out of sheer sexual frustration, male otters will rape baby seals if there aren’t any female otters around. -Murrnath</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/015320/87171262/otters.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">31 Dank Memes We Found inside a Mesopotamian Tomb</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170731.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170732.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170733.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170734.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170736.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170737.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170738.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170739.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170741.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170742.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170743.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170744.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170745.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170746.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170747.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170748.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170749.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170750.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170752.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170754.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170755.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170756.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170757.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170759.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170760.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87170761.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">32 Pics of the Two Kinds of People</a><br>
+
+<span style="font-size:4em">1. There Are 2 Types Of Girls At The Pool</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170925.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. There Are Two Types Of Girls In A Bars Restroom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170927.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Me And Our Dog And My Wife And Our Cat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170906.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Moms vs. Dads</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170909.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My Neighbor And I Have Different Lifestyles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170910.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Photos I Take Of My Boyfriend vs. Photos He Takes Of Me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170911.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Two Types Of People (Artist vs. Programmer)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170912.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. There Are Two Types Of Email Checkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170913.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Two Kinds of College Protestors</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110714/87170994/people-divided-two-camps-11-6282376132959__700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Girlfriend And I Enjoyed The Illusion Museum Very Differently</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170914.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. My Sister And I Are Polar Opposites. Her Home vs. Mine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170907.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Two kinds of celebrities</span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/110703/87170993/people-divided-two-camps-1-627e5f7d4c910__700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Two Types Of Girls At Parties</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170915.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Two Very Different Valentines Nights. 12 Piece Of Fried Chicken & Whiskey vs. 12 Pink Tulips & Cupcakes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170916.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My Sister: You Can Do The Half-Marathon With Me! Trust Me, Its Not That Bad</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170917.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. There Are Two Types Of IT Techie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170918.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Two Types Of People In My Office</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The Two Types Of People Most Excited For Autumn</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. What I Pack For A Weekend Away vs. My Husband</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170921.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Two Types Of Girls At A Party</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170908.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There Are 2 Types Of Girls Durning Prom Season</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. There Are Two Types Of People In This World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170923.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The Difference In Me And My Twins Skin Color. He Goes Outside, I Dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170924.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. There Are Two Types Of Pie Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170926.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Hotel Room Puts Up Toilet Paper For Both Types Of People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. There Are Two Types Of Jar Openers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170929.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Two Types Of Coworkers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170930.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. There Are Two Types Of LEGO People</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170931.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Two Kinds Of Ice Cream Eaters</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170932.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “No One Eats A Kit Kat By Biting Into It” First Of All, You Have Not Seen The Things I Have Seen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170933.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Which One Are You?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170934.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. There Are 2 Types Of Girls On Halloween</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170935.jpg" style="width:100%"><br>
 
