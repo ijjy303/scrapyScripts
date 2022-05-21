@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/21/2022-13:11:33
+Last updated: 05/21/2022-14:11:31
 <br>
 ## <a href="#linky2" id="linky1">49 Fun Randoms to Spice up the Day</a><br>
 
@@ -101,151 +101,105 @@ Last updated: 05/21/2022-13:11:33
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171800.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">47 Memes and Fails to Make You Feel Better About Yourself</a><br>
+## <a href="#linky3" id="linky2">22 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171146.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Dont forget songs about exs and trucks, country folk love bad relationships and getting terrible mpgs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171147.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171148.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Yes it me, the hacker, trying to delete all these spam emails. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171149.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170685.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171150.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. This meme gave me brain damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171151.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171152.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171153.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Some of us are just built different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170689.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171154.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171155.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171156.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Show this to someone who is your opposite. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171157.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171158.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170694.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171160.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170695.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171161.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. What is there to say? Germans love bread. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170696.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171163.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170697.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171164.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Lmao, coming to an Ikea near you soon. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170698.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171165.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. God we hate kids these days, and no its not because were getting older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170699.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171166.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170700.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171167.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170701.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171169.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. American dollars? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170702.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171170.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. And he will go down in history as a legend for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170703.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171171.jpg" style="width:100%"><br>
+## <a href="#linky4" id="linky3">20 People Who Became the Thing They Swore to Destroy</a><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171172.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Always hated the fact my mother was an addict when I was growing up. Few months back I found myself doing a line of coke with my morning cup of tea - the revelation did not make me feel great, but it did give me a kick up the a**. -eruditemoth</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112842/87171839/addict.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171173.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I make commercials for a living. I f**king hate commercials to the core of my soul. -JhymnMusic</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112853/87171840/commercial.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171174.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I started my own company to fight the system and avoid a corporate bullsh*t job. Then raised money, hired tons of people and my life is literally nothing but corporate bullsh*t. -j54t</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112907/87171841/corp.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171175.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. When I was 16 I wanted to be in a famous band like Blink 182, have my own art studio, and destroy the concept of the 9-5. I have my own art studio in my home but now I work for a bank and process loans in a 9-5. I was at work today realizing how I have become the Sith. -Archersinthedark12</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112913/87171842/band.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171176.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Whenever I go through a drive thru. I work a drive thru and I know how painful it is, so I feel a sense of guilt and hypocrisy when I’m on the other side of the speaker. -n4wfr4m30fm1nd</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112918/87171843/drivethru.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171177.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Recently I got into a tiff with my boyfriend and felt very irritated and irrationally upset. I entered the kitchen and started to aggressively wash the dishes, making sure they made extra noise banging on the sink…Just like my mother used to do when she dove into an unexplained bad mood and took it out on me. I straightened up and worked through my feelings pretty quickly and apologized to my boyfriend. -tenderfoot1914
+
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112924/87171844/dishes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171178.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I teach at my old high school lol. Literally have coworkers that have sent me to the principal’s office before. -Watchtwentytwo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113030/87171855/teach.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171179.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Two years ago I was an electricians apprentice. The safety guy would always get on to me about being unsafe and Id hate it I always thought of him as an overpaid under worked dickhead. Turns out I was right now Im an over paid under worked dickhead and its awesome the checks are amazing and the work is light as hell. -HardcaseHondo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112929/87171845/electric.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171180.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Young teenager me was big on hating ‘the man’. Question everything. Don’t conform. Be weird. Hate the government. F**k everyone and everything.
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112937/87171846/govt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171182.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112940/87171847/military.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171183.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+40 year old me celebrating 2 years working for the government. -hamtronn</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112948/87171848/mother.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171184.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I joined the military as a straight edge Christian and left a gay, beer drinking, pot smoking, atheist. -ansteve1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112951/87171849/pantry.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171185.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I told my friends kids they could have a toy if they didnt fight over it, and if they fought I would take it back. They agreed, then proceeded immediately fight over it when I turned around. Without any conscious input from my brain I spun back and heard myself exclaim, What did I just say?!
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112959/87171850/pillows.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171186.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113003/87171851/polo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171187.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+And suddenly I was my mother. -ttnl35</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113010/87171852/relax.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171188.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I spent a full year living with four roommates, one of whom left every pantry door open. I spent months and months trying to catch her in the act.
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113019/87171853/stayingin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171190.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113024/87171854/suburbs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171191.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Moved out to my own place, found out it was me all along! -stephowl</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113036/87171856/thermo.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171192.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. My couch has no less than 8 decorative pillows on it. I am a monster. -MargotFenring</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113042/87171857/videogames.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171199.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">24 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171532.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171533.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171534.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171535.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171536.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171537.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171538.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171539.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171540.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171541.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171542.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171543.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171544.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171545.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171546.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171547.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171548.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171549.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171550.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171551.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171552.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171553.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171554.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171555.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. I hated wearing polos because my mom always talked about how nice this other persons son looked wearing polos.
+</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113048/87171858/webblock.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">18 Really Cool Things People Found</a><br>
 
@@ -415,61 +369,281 @@ Last updated: 05/21/2022-13:11:33
 
 <span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172118.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">20 People Who Became the Thing They Swore to Destroy</a><br>
+## <a href="#linky8" id="linky7">47 Memes and Fails to Make You Feel Better About Yourself</a><br>
 
-<span style="font-size:4em">1. Always hated the fact my mother was an addict when I was growing up. Few months back I found myself doing a line of coke with my morning cup of tea - the revelation did not make me feel great, but it did give me a kick up the a**. -eruditemoth</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112842/87171839/addict.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. I make commercials for a living. I f**king hate commercials to the core of my soul. -JhymnMusic</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112853/87171840/commercial.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171147.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. I started my own company to fight the system and avoid a corporate bullsh*t job. Then raised money, hired tons of people and my life is literally nothing but corporate bullsh*t. -j54t</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112907/87171841/corp.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. When I was 16 I wanted to be in a famous band like Blink 182, have my own art studio, and destroy the concept of the 9-5. I have my own art studio in my home but now I work for a bank and process loans in a 9-5. I was at work today realizing how I have become the Sith. -Archersinthedark12</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112913/87171842/band.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Whenever I go through a drive thru. I work a drive thru and I know how painful it is, so I feel a sense of guilt and hypocrisy when I’m on the other side of the speaker. -n4wfr4m30fm1nd</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112918/87171843/drivethru.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Recently I got into a tiff with my boyfriend and felt very irritated and irrationally upset. I entered the kitchen and started to aggressively wash the dishes, making sure they made extra noise banging on the sink…Just like my mother used to do when she dove into an unexplained bad mood and took it out on me. I straightened up and worked through my feelings pretty quickly and apologized to my boyfriend. -tenderfoot1914
-
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112924/87171844/dishes.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I teach at my old high school lol. Literally have coworkers that have sent me to the principal’s office before. -Watchtwentytwo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113030/87171855/teach.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Two years ago I was an electricians apprentice. The safety guy would always get on to me about being unsafe and Id hate it I always thought of him as an overpaid under worked dickhead. Turns out I was right now Im an over paid under worked dickhead and its awesome the checks are amazing and the work is light as hell. -HardcaseHondo</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112929/87171845/electric.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Young teenager me was big on hating ‘the man’. Question everything. Don’t conform. Be weird. Hate the government. F**k everyone and everything.
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112937/87171846/govt.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171154.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112940/87171847/military.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-40 year old me celebrating 2 years working for the government. -hamtronn</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112948/87171848/mother.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I joined the military as a straight edge Christian and left a gay, beer drinking, pot smoking, atheist. -ansteve1</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112951/87171849/pantry.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I told my friends kids they could have a toy if they didnt fight over it, and if they fought I would take it back. They agreed, then proceeded immediately fight over it when I turned around. Without any conscious input from my brain I spun back and heard myself exclaim, What did I just say?!
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/112959/87171850/pillows.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171158.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113003/87171851/polo.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171160.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-And suddenly I was my mother. -ttnl35</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113010/87171852/relax.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171161.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I spent a full year living with four roommates, one of whom left every pantry door open. I spent months and months trying to catch her in the act.
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113019/87171853/stayingin.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171163.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113024/87171854/suburbs.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171164.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Moved out to my own place, found out it was me all along! -stephowl</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113036/87171856/thermo.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171165.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. My couch has no less than 8 decorative pillows on it. I am a monster. -MargotFenring</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113042/87171857/videogames.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171166.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I hated wearing polos because my mom always talked about how nice this other persons son looked wearing polos.
-</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/113048/87171858/webblock.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171167.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">25 Pics That Technically Aren’t Wrong</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171169.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171170.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171171.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171172.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171173.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171174.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171175.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171176.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171177.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171178.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171179.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171180.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171182.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171183.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171184.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171185.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171186.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171187.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171188.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171199.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">17 People Who Asked to Get Roasted and Got Scorched</a><br>
+
+<span style="font-size:4em">1. Just turned 18. Make me feel special lol. Roast away.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122640/87171923/roastme2.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122746/87171934/roastme14.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122844/87171945/roastme24.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Just got told I look like Danny Gonzales in a bad disguise, you cant hurt me anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122723/87171930/roastme9.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122930/87171954/roastme33.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Tired and bored in my finals, give me your best of the worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122651/87171925/roastme4.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122757/87171936/roastme16.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Im 18 and I live in Ontario Canada, Im still in high school, thats all you get to work with. Do. Your. Worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122700/87171926/roastme5.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122637/87171922/roastme1.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Let’s see what you losers can muster up. 28 year old business graduate 6ft4 so already better than most of you.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122703/87171927/roastme6.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122648/87171924/roastme3.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. Colorado IT Trio - We can feel the RoastMe flames a burnin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122714/87171929/roastme8.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122712/87171928/roastme7.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122800/87171937/roastme17.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. 30 y.o. No girlfriend in 11 years. Been living at home with my mom. Work at Geico. Got this weird contraption on my head. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122724/87171931/roastme10.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122734/87171932/roastme11.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. Obviously like button downs, Italian/Peruvian, self employed for 2 years now but made a bad move recently and lost a lot of money this week. I need to get roasted do be ruthless.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122747/87171935/roastme13.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122736/87171933/roastme12.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122809/87171939/roastme18.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122920/87171952/roastme31.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. 18 Male. Working on an inn reception, love books and games and surprisingly I have a girlfriend. Im also Brazilian, so life has already roasted me a lot.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122833/87171943/roastme22.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122812/87171940/roastme19.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122822/87171942/roastme20.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124312/87171960/roastme38.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122847/87171946/roastme25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122807/87171938/roastme15.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. It’s his 24th birthday, and he doesn’t think anything can bring him down. Prove him wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122855/87171947/roastme26.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122858/87171948/roastme27.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. Go on lets hear it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122918/87171951/roastme30.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122909/87171950/roastme28.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122908/87171949/roastme29.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. 23 y.o. college dropout. Unemployed. Hardcore video game addict. Havent left my apartment in over a week. Make me feel something again.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122929/87171953/roastme32.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122822/87171941/roastme21.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. Me and the GF feeling bored, give us your best!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122942/87171956/roastme35.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122940/87171955/roastme34.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. Lost at bowling so he thinks hes un-roastable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122953/87171958/roastme37.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122951/87171957/roastme36.png" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Charts Filled With Random Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171439.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">24 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171532.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171533.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171534.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171535.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171536.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171537.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171538.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171539.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171540.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171541.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171542.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171543.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171544.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171545.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171546.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171547.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171548.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171549.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171550.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171551.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171552.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171553.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171554.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87171555.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Pics That Technically Aren’t Wrong</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/19/040036/87171404/additions2.png" style="width:100%"><br>
 
@@ -521,7 +695,7 @@ Moved out to my own place, found out it was me all along! -stephowl</span><br><i
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171229.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 People Describe What a Coma is Like</a><br>
+## <a href="#linky13" id="linky12">30 People Describe What a Coma is Like</a><br>
 
 <span style="font-size:4em">1. I was in a coma for three days after a car accident where I hit my head. Pretty much, I was driving then I saw the color purple, and then I woke up three days later. There really was nothing. Its not even like sleeping because when you wake up from sleeping, you know you were asleep. It is like blinking; one second you are doing something, then the next something totally different. I do have a vague memory of being on a table with a cute guy wiping my nose and it hurting really bad. I remember saying, You are super cute, but thats all.
 
@@ -653,178 +827,4 @@ Sorry for the questions I haven’t answered, but my inbox just blew up too much
 <span style="font-size:4em">29. I was in a coma for 3 days following a serious cycling accident, medically induced. I woke up with zero recollection of why I was there or what was said while I was out. It is easily the scariest situation Ive found myself in, but I cant say I remember it. I woke up to my mom and dad in the hospital with me and my body in traction of some sort and that was way scarier to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170888.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. I had a seizure and was in a medically induced coma for 3 days when I was 17. To be honest I don’t remember anything. I remember fading in and out of the anesthesia trying to pull my breathing tube out and and that my hands were restrained to the bed so I couldn’t. When I woke up and was coherent I couldn’t recall anything from actually being in the coma. They had even moved me to a hospital over 100 miles away. It was really just nothing but black. No dreams, no lights, no voices, just nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170889.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">22 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. Dont forget songs about exs and trucks, country folk love bad relationships and getting terrible mpgs. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Yes it me, the hacker, trying to delete all these spam emails. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170685.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. This meme gave me brain damage. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Some of us are just built different. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170689.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Show this to someone who is your opposite. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. What is there to say? Germans love bread. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Lmao, coming to an Ikea near you soon. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. God we hate kids these days, and no its not because were getting older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170699.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170701.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. American dollars? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. And he will go down in history as a legend for it. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87170703.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 Charts Filled With Random Knowledge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171439.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">17 People Who Asked to Get Roasted and Got Scorched</a><br>
-
-<span style="font-size:4em">1. Just turned 18. Make me feel special lol. Roast away.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122640/87171923/roastme2.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122746/87171934/roastme14.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122844/87171945/roastme24.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Just got told I look like Danny Gonzales in a bad disguise, you cant hurt me anymore.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122723/87171930/roastme9.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122930/87171954/roastme33.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Tired and bored in my finals, give me your best of the worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122651/87171925/roastme4.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122757/87171936/roastme16.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Im 18 and I live in Ontario Canada, Im still in high school, thats all you get to work with. Do. Your. Worst.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122700/87171926/roastme5.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122637/87171922/roastme1.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Let’s see what you losers can muster up. 28 year old business graduate 6ft4 so already better than most of you.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122703/87171927/roastme6.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122648/87171924/roastme3.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Colorado IT Trio - We can feel the RoastMe flames a burnin.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122714/87171929/roastme8.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122712/87171928/roastme7.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122800/87171937/roastme17.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. 30 y.o. No girlfriend in 11 years. Been living at home with my mom. Work at Geico. Got this weird contraption on my head. Do your worst!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122724/87171931/roastme10.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122734/87171932/roastme11.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Obviously like button downs, Italian/Peruvian, self employed for 2 years now but made a bad move recently and lost a lot of money this week. I need to get roasted do be ruthless.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122747/87171935/roastme13.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122736/87171933/roastme12.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122809/87171939/roastme18.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122920/87171952/roastme31.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. 18 Male. Working on an inn reception, love books and games and surprisingly I have a girlfriend. Im also Brazilian, so life has already roasted me a lot.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122833/87171943/roastme22.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122812/87171940/roastme19.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122822/87171942/roastme20.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124312/87171960/roastme38.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122847/87171946/roastme25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122807/87171938/roastme15.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. It’s his 24th birthday, and he doesn’t think anything can bring him down. Prove him wrong.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122855/87171947/roastme26.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122858/87171948/roastme27.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. Go on lets hear it.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122918/87171951/roastme30.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122909/87171950/roastme28.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122908/87171949/roastme29.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. 23 y.o. college dropout. Unemployed. Hardcore video game addict. Havent left my apartment in over a week. Make me feel something again.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122929/87171953/roastme32.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122822/87171941/roastme21.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. Me and the GF feeling bored, give us your best!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122942/87171956/roastme35.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122940/87171955/roastme34.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. Lost at bowling so he thinks hes un-roastable.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122953/87171958/roastme37.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122951/87171957/roastme36.png" style="width:100%"><br>
 
