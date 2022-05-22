@@ -1,45 +1,45 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/21/2022-18:11:31
+Last updated: 05/21/2022-19:11:31
 <br>
-## <a href="#linky2" id="linky1">20 Stock Photos We Can't Imagine a Business Would Need</a><br>
+## <a href="#linky2" id="linky1">20 Comments That Nailed It</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171629.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171819.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171630.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171813.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171631.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171807.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171632.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171810.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171633.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171811.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171634.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171812.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171635.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171815.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171636.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171817.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171637.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171818.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171638.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171809.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171639.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171808.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171640.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171814.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171641.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171820.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171642.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171821.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171643.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171822.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171644.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171823.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171645.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171824.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171646.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171825.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171647.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171826.png" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">25 Pics That Technically Aren’t Wrong</a><br>
 
@@ -93,59 +93,7 @@ Last updated: 05/21/2022-18:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171229.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Charts Filled With Random Knowledge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171435.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171436.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171437.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171438.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171439.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">Star Wars Set Photos You Probably Haven't Seen Before</a><br>
+## <a href="#linky4" id="linky3">Star Wars Set Photos You Probably Haven't Seen Before</a><br>
 
 <span style="font-size:4em">1. Apparently, no movie set was complete without at least a few shirtless guys wearing tiny shorts. Seems to us that its a big part of the so-called movie magic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216230.jpg" style="width:100%"><br>
 
@@ -169,7 +117,7 @@ Last updated: 05/21/2022-18:11:31
 
 <span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216239.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">52 Funny Tweets and Memes Spotted on Twitter</a><br>
+## <a href="#linky5" id="linky4">52 Funny Tweets and Memes Spotted on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172078.jpg" style="width:100%"><br>
 
@@ -275,7 +223,7 @@ Last updated: 05/21/2022-18:11:31
 
 <span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172118.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">49 Fun Randoms to Spice up the Day</a><br>
+## <a href="#linky6" id="linky5">49 Fun Randoms to Spice up the Day</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171752.jpg" style="width:100%"><br>
 
@@ -375,7 +323,7 @@ Last updated: 05/21/2022-18:11:31
 
 <span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171800.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">26 Disasters That Happened To People's Homes</a><br>
+## <a href="#linky7" id="linky6">26 Disasters That Happened To People's Homes</a><br>
 
 <span style="font-size:4em">1. Was getting ready for bed, walked into my bedroom to this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169144.jpg" style="width:100%"><br>
 
@@ -428,6 +376,46 @@ Last updated: 05/21/2022-18:11:31
 <span style="font-size:4em">25. Left our totally normal house to run errands. Came back an hour and a half later to this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169160.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">26. Found out why my house started to smell every time the water heater kicked on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169161.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">20 Stock Photos We Can't Imagine a Business Would Need</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171636.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171637.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171638.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171647.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">17 People Who Asked to Get Roasted and Got Scorched</a><br>
 
@@ -505,140 +493,7 @@ Last updated: 05/21/2022-18:11:31
 
 <span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/122951/87171957/roastme36.png" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">30 People Describe What a Coma is Like</a><br>
-
-<span style="font-size:4em">1. I was in a coma for three days after a car accident where I hit my head. Pretty much, I was driving then I saw the color purple, and then I woke up three days later. There really was nothing. Its not even like sleeping because when you wake up from sleeping, you know you were asleep. It is like blinking; one second you are doing something, then the next something totally different. I do have a vague memory of being on a table with a cute guy wiping my nose and it hurting really bad. I remember saying, You are super cute, but thats all.
-
-I believe that was before I went into the coma after the accident. I had a brain bruise or something like that, and it caused speech problems for about six months after.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170873.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. A friend of mine was in a 6 month coma after an accident. Afterwards he made sure to tell everyone around him to talk to people in a coma because they can hear you. BUT he noted that they should always tell the person in a coma what happened, where they are and whats happening to them because he said that his moments of lucidity were mixed with some truly horrifying dreams and he had trouble distinguishing between what was real and what were dreams. He said he just wanted to be told what was real and what was happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170860.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I spent eight days in a coma last year after a particularly traumatic surgery, my waking thoughts were wondering if I had died or made it. I couldnt open my eyes, and I was on a medical air mattress, so I felt like I was floating; this lead me to think that I had died, and I remember thinking it wasnt so bad and wondering if my dad would come find me. Once I realized that I was still alive, I thought I had been injured fighting in a war and worried that my wife might not know I was still alive. Trying to communicate with the nurses while intubated and drugged was very difficult.
-
-What I learned later from my wife is that she was there the whole time and while I was fighting against the doctors and nurses, I would immediately calm down and cooperate when she held my hand and sang to me. It still brings tears to my eyes to think of the love and devotion she has shown to me during this time.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170861.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. I was in a coma for four days. When I woke up, everyone was talking about the baby boy I had. I had lost my long-term memory and didnt even remember being pregnant. My son was at the childrens hospital in the NICU. I delivered him via C-section at 29 wks. All this was due to me having Crohns disease (which I found out after I woke up); my colon had ruptured during my pregnancy. My husband said I was talking like a child when I first woke up.
-
-When I woke up, I felt super tired, but then the next few days, kinda restless. I remembered one conversation my mom had with a nurse while I was under. After a couple of days, I got my long-term memory back and remembered everything up until my second surgery then nothing until I woke up. My son was my third surgery. So, my son was what surprised me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170862.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. A friend of ours fell into a coma at age 25 (around 1992) and woke up at age 36 (around 2002). She was a Rhodes Scholar nominee (I think, second-hand information) and quite brilliant. She was still 25 mentally — as if everything was just on pause. Her body was really well-preserved; shes really fun and cool and sort of the ultimate cougar. Plus, she totally woke up to the internet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170863.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This is really bizarre, but my uncle — a very serious, strict, and rather dry man — had an accident and went into a coma a few years back. He never believed anything he couldnt touch, no talks about souls, or anything similar. But he was in a coma for a few weeks until he woke up and had this crazy AF story. He said he saw himself in a bubble, floating around in a white place, and it was peaceful and beautiful. But then, he said there were other bubbles he could see around him, and they had other people in them. He distinctly remembered a black-haired woman singing in the bubble closest to his, until one day, her bubble burst, and she disappeared. When he woke up, he could give a very clear description of her body, age, and all that. Now heres the wild part...
-
-There was a woman, one floor below him, in a coma who sadly had passed away before he woke up. You guessed it — black hair, age, body all correct. He had never met or seen this woman in his life. His whole idea of life changed after this. It still makes me think sometimes... Where was he? He thinks all the people in bubbles around him were patients in the same hospital. Could it be? Well probably never know.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. My friend was in a coma about ten years ago for roughly three weeks. Car accident. When he woke up we visited him and when I was alone with him he told me it was like a lucid dream. The real world was gone and he felt like he was in a world he could create himself for years. He was dead serious too, he talked on and on about how he had a slight understanding that he was not in the real world anymore and that he thought he might be in heaven. About how he felt like he was actually dying and his last few second just stretched on and on forever. He said thats what it felt like. He mentioned that he could fly (in the coma dream) and that it was amazing. He spent a little while in the hospital, then went home, did physical therapy for about two weeks before killing himself with pain pills and vodka. People thought the pain was too much, that it was an accidental overdose, or that the therapy and the accident made him feel helpless and depressed. Honestly, I think he wanted back into his lucid dream world. The way he talked about it was like the best thing he ever experienced.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170865.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I was in a coma for nine days. When I woke up, I was still on a ventilator. When they took me off the ventilator, my body didnt remember to breathe on its own. I literally had to relearn how to breathe. It took me a few days; I had no natural sense for how deeply to inhale, how long to hold it, how long to exhale. I had to put all my mental focus on breathing. It was really weird.
-
-For all the people wondering how I slept, I didnt for the first couple of days. If I dozed off, my blood O2 monitor would start beeping and wake me up, then a nurse would yell at me from across the ICU to remember to breathe. I couldnt talk because Id had the tubes down my nose and throat, but I remember one time I woke up, really exhausted, to that damn beeping. So, I started focusing on breathing again, but I was really angry about it. My nurse came running over yelling at me to breathe. I glared at her, and screamed in my non-existent voice, I. AM. She must have read my lips and felt the rage because she just put her hands up and said, All right. All right. Good job, then walked away. My ability to breathe normally was back within a month or so, and my health is good nowadays, so I wouldnt say it had any permanent effects.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. I was in a medically induced coma (with induced, full-body paralysis) for six weeks. There were a handful of times that I distinctly remember where I woke up in my head. What was the experience like? It sucked.
-
-When I would wake up in my head, I had no idea as to what had happened. So, Im fully conscious, I know that Im me, but I cant open my eyes, I cant move a muscle and I cant speak. The first time it happened was terrifying. I started to panic and for a minute there, I thought I might be dead. Then I realized that I was thinking, so that didnt seem right. I tried to move and couldnt. I tried to speak and couldnt. I tried to scream and couldnt.
-
-The next time it happened was when my best friend came to see me. Again, I cant move, I cant see, and I cant talk. But when I woke up in my head, I could feel her holding my hand and asking me to squeeze if I could hear her talking. I tried as hard as I could to squeeze my hand, and I could feel it doing absolutely nothing. When she let go to walk away, I was completely devastated. I tried to scream for her to stay, but obviously, nothing happened. However, I was so glad that people I knew were there wherever I was and that I was getting help (even though I felt completely helpless). That kind of helped. I had to calm myself down again so that I could drift off again.
-
-When I was finally brought out of the coma, my parents were there and that didnt make any sense because my parents lived two states away at the time. I eventually learned that they had been there the entire time. They dropped everything in their lives and came to be with me and stayed there throughout the entire ordeal. After a couple of days (I think), some doctors came in and asked me a bunch of questions. The first question was what year it was — that I knew because I remembered getting sick on New Years Eve, so I knew it was 2000. Next was who the president was. I answered Clinton, so I got that right. Then they asked if I knew where I was. I assuredly said, Honolulu because in my dreams, I had been in Honolulu. When all of their faces had that confused Scooby Doo look is when I realized that wasnt quite right, so I figured that I must have been back in Salt Lake City (somehow). They appeared quite relieved when I came up with that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170867.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Ooh I can answer this one! I was in a medically induced coma for two weeks, about 3 months ago. I had open heart surgery, it didnt go well, had trouble coming off the ventilator so they just put me in a come to try to give me time to heal.
-
-I had nightmares the entire time from the medicine they were using to knock me out. I thought I had been kidnapped by a nurse and was a victim of sex trafficking. I thought my drug addict aunt had her friends rob my sister and her husband, killing my brother-in-law and one of their children, and I thought I was constantly being grabbed by people under my bed. It was not fun.
-
-I cant say that I knew I was in a coma or anything. I am usually one of those people that when I have a bad dream, I can tell myself it is just a dream and wake myself up in order to end it. This was not like that. I was convinced it was all really happening.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170868.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dunno. I was in a coma for 11 days, severe brain injury. I don’t remember being in a coma or waking up from a coma. I lost several years of memories prior to the coma, and my brain didn’t really start to “retain” information again until ~6 weeks after I came out of the coma.
-
-I’m told that my personality changed afterwards. I had to rebuild most areas of my life. It sucked, but it was probably a good thing.
-
-Although I’d be lying if I said I never wondered what my life would be like if I’d never had the coma.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170869.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I was out for 45 days, no white light, no tunnel, nothing. Woke up and couldnt remember who I was. For six months, never really fully recovered so I just started life again. Turns out Im a completely different person than I was and that is a really good thing. I get memories now and then, they arent pleasant. A woman came and sat by my bed for six weeks, turns out she was my ex lover. I couldnt remember her. Didnt recognize my mother.
-
-*** Afterward** This is the second time in my life I have related this much about my life publicly and it has been good and at the same time really painful. Thanks to everyone for being kind. I wrote this story seven months ago and published it in the lounge and I really hurt my self doing it. This time I wanted to share about the life afterwards and I hope it has been of some benefit to others that struggle with mental issues. This place saves lives, gives hope and guidance to millions of people and i feel lucky to be part of the community.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. After being in a really bad accident that left one of my good friends (the driver) brain dead, they put me into a chemically induced coma for under a week to prevent brain damage due to swelling.
-
-When I first woke up, my memory was much better than it was as it gradually faded in the days to come. I have a journal my mother recorded things in, and I recalled many things I shouldn’t have been able to immediately after waking up. Today, I have very little memory of it all, but I can definitely say that having positive people around you definitely helps when you’re in a situation like that.
-
-If you have a friend in this situation, don’t disregard them. Even though your life has moved on, they may wake up one day, and in their mind, not a day has passed since the last conversation they had with you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170871.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Im a burn survivor — I was in an explosion in my backyard when I was seven years old. Whilst I was in the hospital, I was in a medically induced coma to make my chances of surviving higher. I do remember a few things that happened while I was in said coma; I remember my father reading the seventh book of the Magic Tree House series to me, and I remember hearing the screams of new patients that would come in, but I couldnt move my body at all, nor could I give any signs that I could hear my family or medical staff.
-
-I spent two weeks in the coma and another 48 days. Today, Im a happy, healthy 17-year-old. If I can say anything about what happened that day, its that it changed my life for the better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. I was in a medically induced coma following a self-inflicted gunshot wound. I dont remember much but my family described moments of me appearing to be awake. Most notable, an apparent attempt at humor. Apparently they put these mits on my hands to prevent me from ripping my ventilation tubes out over and over but I pretended they were my lobster claws. I have no recollection but its a real me move.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170874.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 3 month coma here. I did know I was in a coma, but had no sense of time. I had some minor awareness of what was going on around me, sort of the inverse of a dream. Speaking of dreaming, I learned lucid dreaming. I remember using Legos to build walls against the pain. I remember alternating between feeling like I was freezing and on fire and used my newfound lucid dreaming powers to try to mitigate those feelings. I remember writing a book in my mind, and visualising it like a movie as I wrote it. I remember feeling the tears of my wife and hearing her cry, and talking about how she was running out of strength. I remember wanting to comfort her, I remember wanting to tell her about the book I was working on.
-
-When I came out of it the next 6 months were hell. I had no appetite but somehow gained 40 pounds pretty quickly. I felt like my whole nervous system was off by a millimeter and had to relearn touch typing. Ive never recovered the energy I had before. I lost the ability to lucid dream. Itll happen sometimes, but very rarely. I held onto to the details of the book in my mind for about two days, which wasnt nearly long enough to write it all down, especially since I had to relearn touch typing. There were times in that first six months I wished I was back in the coma.
-
-That was three years ago but I only have about $30k of debt left. Ill never be able to buy a house. Due to the debt I lost my security clearance, which cut off my entire career track. I still feel bad for my family having to go through that but I think it made us closer. Im happier with what I have, and grateful for the small things in life, which is fortunate because beforehand I was very driven and ambitious. Now Im more cautious and reserved. Me of three years ago wouldnt like me now. Hed think I gave up and should work harder for more tangible success. Current me is happy with the love and loyalty of my family.
-
-Sometimes though I miss the ability to create fully fleshed out worlds in my mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170875.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. I was in a coma for about two weeks following a cardiac arrest as a teen. I was technically dead for over an hour, in fact. People often ask me if I could hear my family talking to me or if I was dreaming. The answer is No.
-
-There is a huge hole in my memory beginning about two weeks before the coma through a week after waking up. And waking up is in quotes because I would wake up, ask a bunch of semi-incoherent questions, fall back under, then wake up again and ask the *exact* same questions, in the exact same order. Repeat six or seven times.
-
-The coma was not even blackness. It just does not exist. I remember having the hardest time believing it was actually mid-October when the last day I remembered was late-September.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. I was in a medically induced coma for several months after a car accident. I dont remember much. But i do recall coming out of the coma briefly a few times. The first time i started flailing around and had to be tired back down to the bed till i was put back to sleep. A second time i woke to see some of my organs out on trays sitting on my body (still attached, but just being held out of the way) i also had a dream about being locked to a couch in cuba and could only watch tv in Spanish (i think it was). I say locked because i was able to get up and move, but only to a certain distance. Like after 10ft id hit an imaginary wall. Like when in a video game and you reach the end of the map.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170877.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My mom was in an induced coma for three months. When she woke up, she thought the hospital was trying to kill her. She tried to get out of bed, and she fell on the floor because she couldnt walk. She was mostly freaked about how her feet had lost their form. They were humped over from not being used. Every muscle, she had to learn again. She couldn’t talk well or write at all. She has different handwriting after re-learning. She said she hated how perfect her hands looked. Her nails and cuticles were perfect and clean from not being used. I remember trying to brush her hair after she woke up, and almost all of it fell out. And she almost died pretty much every day she was in her coma.
-
-She had sepsis from a diverticulitis surgery gone wrong. A lot of her hair has grown back, and she can walk but has brain damage that makes her seem very drunk. She is always dizzy. But it’s been five years now, and her recovery has been miraculous.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170878.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Back in the 90s, my great grandfather had a stroke. He was in a coma for three weeks, and when he woke up, he could not speak English — all he could speak was the Choctaw language. He had learned it when he was a kid, because his family lived right near a Choctaw reserve, and he played with a lot of those kids. He spoke it fluently at that time, but forgot it over his life to where he couldnt remember any of it by this time. This went on for around 10 days, and then he woke up from a nights sleep and could suddenly speak only English again, not remembering a word of Choctaw.
-
-He was also able to repeat verbatim every conversation that had been held in the room that he was in.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When I was considered medically dead I couldnt hear anyone, I was in a huge white room with no walls, just a floor. The floor would occasionally sparkle far off. I could not move, I could just look around, it was completely empty. I could still feel emotions, I had a heavy feeling of being nervous/worried. It felt like I was sneaking into a place where I did not belong, like a part of the house that was off limits to me as a kid. Time went by so slowly, I felt every second of it. It was only for 4ish minutes but it definitely felt that long. I could not think, I just felt. It was the most terrifying experience of my life. I felt helpless, everything was out of my control, I felt trapped. I dont remember but when I was revived I screamed for minutes, I just screamed and cried.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My girlfriend of 6 years and sort of fiance was in a severe car crash when she was 16. Both of her best friends died instantly. She was the only survivor but they didnt think she would make it. She was in a coma for 9 months. She was in what is called a waking coma. She retained normal periods of sleep and open eyed wakefulness, but no higher brain functions.
-
-Here are some things about her experience.
-
-She doesnt have any memories of the year prior or the year and a halfish after her coma and obviously no memories of the car crash.
-
-She suffered a TBI and when she first got out of the coma she would get naked and sexual with people and anger very easily. These are common problems of people who suffer a TBI.
-
-She went back to school after the coma, but her brain was still healing a lot. She was held back another year because her brain was still not retaining anything.
-
-Today she is a wonderful, bright 30 year old with a college degree. She has a slight speech impediment, gets frustrated easier than most, and it took her a while to get driving down. Honestly, she still scares the hell out of me when she drives, but there are worse drivers out there.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170881.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I was in a coma for about 2 days when I was 22. I have Crohns and had been in a severe flare for a few weeks prior. Lots of blood loss, unable to eat dehydrated etc. I fell asleep on my parents couch. The next thing I remember is walking up in the ICU and thinking about how I needed to use the restroom. Since I had no idea what had happened or where I was I just got up (or tried to anyway) and all the machines went off and a nurse came running into the room and told me to sit down. I dont remember anything that happened during the coma, no dreams, no sense of time moving. Just like a dreamless sleep. Apparently though I was able to do basic commands in the coma. Like a doctor told me to open my eyes so they could take my contacts out. Id squeeze a hand if told to, but otherwise I didnt move or respond to anything. I dont recall any of it though. Doctors think I went into this coma as a way to preserve energy to keep me alive. I had to get 5 pints of blood and had IV drips in both arms while I was out. Its weird to think about how it happened I was there and yet I have no memories of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170882.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. You and the people around you change. A lot. I had a narcissistic sister and mom & dad used to fight on the most trivial stuff lots of raised voices. I bet that’s why my sister behaved the way she did. She was sarcastic, too. It never ended. Going home felt like a room to take a bath in and hit the sack at, with a touch of sarcasm and constant entitledness(if that’s even a word).
-
-I had a brain surgery. I was under for 5 months. The lobby lady told me, she was there every day. Never missed a day, there was no need to come visit me. But she would stay there after school till night fell. So like 5 hours.
-
-I never felt so loved ever. It swept the ground (what I thought of her) from under my feet. I was blank.
-
-When I did wake up. She was the first thing I saw. There she was, my sister. Who always hated my guts. I don’t know what made her change, I never asked but I was glad. I knew it was genuine. She wasn’t even surprised, she just looks at me and says “Took you long enough.” We cried and hugged it out.
-
-And she was a complete different person after that. I don’t know what it does to/in people that changes them. But I’m glad that it does.
-
-Then I realised why people just didn’t get up from a bedridden state and need help. Because the back is stiff. XD lolz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. I was in a coma for four days from bacterial meningitis. When I woke up, I was completely deaf! I had to communicate with my parents and doctors with a notepad and pen. Some hearing gradually returned in my left ear, but my right ear is still 100% deaf to this day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170884.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I was in a coma for close to six weeks. When I woke up, I had to learn everything again. I had most of my speaking abilities, but my motor control was horrid. I had to figure out how to wipe my ass as well as how to walk up and down the stairs again. That took about three weeks. I had lost a ton of weight, too — I was 63 and weighed about 145 pounds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170885.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I was in a medically induced coma for approximately a week due to sepsis. When I was in, I thought I was a bird with my wings outstretched that was slowly freezing to the ground. When I woke up, I thought I was in Taos, but it looked like Raton (I was in Albuquerque, in a hospital that I had worked in for years). I thought I was 10 years younger. I thought I had gotten into a wreck and that my fiancé at the time was an abusive ex-boyfriend. I thought my fiancé had found me naked on the side of I-25 and had taken me to a veterinary hospital. It took another month and a half for me to understand what happened.
-
-I was in and out of surgery and died a couple times in that time. Once, they were changing out my wound vac, and I looked down and saw inside of me, then things started making a little more sense. (When I looked down and saw myself open, it resembled a cheeseburger that someone had cut in half and left in a fridge uncovered for two weeks.) I still cant eat cheeseburgers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170886.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. I remember what put me in a coma, then I remember being unconscious but hearing my parents, hallucinations; and then nothing for 5 weeks.. my next memory is at home and my doctor visiting me.
-
-Edit: I’m not a marine (been asked this like 20 times now today)
-Sorry for the questions I haven’t answered, but my inbox just blew up too much.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170887.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. I was in a coma for 3 days following a serious cycling accident, medically induced. I woke up with zero recollection of why I was there or what was said while I was out. It is easily the scariest situation Ive found myself in, but I cant say I remember it. I woke up to my mom and dad in the hospital with me and my body in traction of some sort and that was way scarier to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170888.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. I had a seizure and was in a medically induced coma for 3 days when I was 17. To be honest I don’t remember anything. I remember fading in and out of the anesthesia trying to pull my breathing tube out and and that my hands were restrained to the bed so I couldn’t. When I woke up and was coherent I couldn’t recall anything from actually being in the coma. They had even moved me to a hospital over 100 miles away. It was really just nothing but black. No dreams, no lights, no voices, just nothing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170889.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">18 Really Cool Things People Found</a><br>
+## <a href="#linky10" id="linky9">18 Really Cool Things People Found</a><br>
 
 <span style="font-size:4em">1. “My grandpa lost his finger 50 years ago. A few years ago, my uncle found the ring with a metal detector.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170857.jpg" style="width:100%"><br>
 
@@ -676,7 +531,7 @@ Sorry for the questions I haven’t answered, but my inbox just blew up too much
 
 <span style="font-size:4em">18. “My boyfriend proposed last night! He put the ring on Orly’s Kiss the Bride. How could I say no?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170856.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">47 Memes and Fails to Make You Feel Better About Yourself</a><br>
+## <a href="#linky11" id="linky10">47 Memes and Fails to Make You Feel Better About Yourself</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171146.jpg" style="width:100%"><br>
 
@@ -771,6 +626,58 @@ Sorry for the questions I haven’t answered, but my inbox just blew up too much
 <span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171198.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2391127/87171199.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">25 Charts Filled With Random Knowledge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171435.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171436.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171437.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171438.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171439.jpg" style="width:100%"><br>
 
 ## <a href="#linky13" id="linky12">24 Fresh Memes of the Dankest Kind</a><br>
 
