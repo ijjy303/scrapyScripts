@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/23/2022-01:11:33
+Last updated: 05/23/2022-02:11:31
 <br>
 ## <a href="#linky2" id="linky1">48 Pics That Are Oddly Specific</a><br>
 
@@ -255,67 +255,105 @@ Last updated: 05/23/2022-01:11:33
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168798.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">30 One-in-a-Million Things That Happened To People</a><br>
+## <a href="#linky7" id="linky6">49 Fun Randoms to Spice up the Day</a><br>
 
-<span style="font-size:4em">1. My father and I went to a casino for the first time. I had $50 in my pocket, with the intention of that being the only money wed spend. We played roulette and quickly lost 45 bucks. As I had a $5 chip, I placed it on the number 5. The ball started spinning and actually landed on that number. We cheered. I decided to leave the whole bet on 5 again. Rinse and repeat. The ball fell on number 5 FOUR times in a row. We walked out with almost $43,000 in the bag after taxes. Never went in a casino again in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162782.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171752.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. My mom has been struck by lightning. Twice. She was INSIDE her house both times and in two different houses!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162792.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171753.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Way back in college, my car got stolen. It was a crappy bright green Ford Pinto (yeah, that far back) but it was mine, and I needed it for classes and getting to work.Later that day a friend gives me a ride to the police station to make a report. We stop at a light, and my Pinto pulls up right next to us! I look at her, she looks at me, when the light changes we follow the car.The car goes about three blocks and pulls into a liquor store. Guy gets out, leaves the car running for the a/c. She pulls up, I get out, open the Pintos door and drive my stolen car home.Never even made the police report.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162780.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171754.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My dads cousin was an activist in the 80s against the neo-Nazis. One night he was in bed, but a family member had a bad feeling and decided to call him to see if he was okay. He got up to answer the phone, which was in the kitchen, and while he was on the call, a bomb went off in his bedroom. That phone call saved his life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162783.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171755.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. My now-husband was in a terrible car accident as a teen. He was found dead on the scene but was revived. His sister was the random EMT who was called, the defibrillator that was used to revive him was recently donated by the company his mom worked for, and a doctor who heard the car accident from his house and came to assist was the obstetrician who delivered him when he was born. So freaky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162784.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171756.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. My family and I live in Canada. When I was a child, we went to Disneyland, and I somehow got separated from my parents in the theme park. Panicked, I started to look around for them and couldn’t believe that our next-door neighbors (from Canada!) were sitting on the bench right in front of me!!! I was able to sit with them until my parents found me. Talk about a weird coincidence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162785.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171757.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I grew up in Luxembourg, Europe. When I was seven years old, I had a neighbor named Will. He and I were best friends until one day his family moved. He told me he was moving to the US, but I was too young to understand what that really meant and we ended up losing touch pretty fast.Roughly 9-10 years later, Im 17 and I go to a theatre camp in the states. There are 20 students for a 5 week intensive theatre program. There were only four other guys in the program and one of them was named Brandon. We started casually talking/hanging out until I added him on Facebook and realized we had one mutual friend, my old neighbor, Will. I thought this was crazy and when I asked him about it, he said: Dude, Wills my neighbor.So somehow, when I was 7 years old, my neighbor Will moved to the states, became this kid Brandons neighbor, and 10 years down the road, I happen to meet Brandon independently of Will. This was without a doubt the smallest world moment Ive ever experienced. The likelihood of me running into Brandon and having that mutual connection just felt like one-in-a-million. I mean how many different houses/cities/neighbors/streets are there in the US. The likelihood of Will moving next door to Brandon, and Brandon and I meeting 10 years down the line seems very very very very slim. Im 23 now and Brandon and I are best friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162786.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171758.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. I was cutting vegetables in my kitchen, and a fly was buzzing around my head, so I swung around with the knife in my hand and somehow managed to slice the fly clean in half.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162787.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171759.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. I worked in a contact center in Wisconsin, which had about 40 of us working at any given time. I was helping a woman place an order, and when I took down her address, I realized she lived in the same exact house I did when I was 10...in Texas...1,320 miles away</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162788.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171760.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. I was talking with a girl on Tinder when I was out of town for a baseball trip. When I asked for her number, she responded with my number, except a different area code. I thought maybe she Facebook stalked me and got my phone number from there and was just messing with me, but nope. She had the same phone number as me, just different area code.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162789.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171761.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In college (1965-ish), my dad worked at a liquor store. He was supposed to work that Friday night, but his girlfriend (now-wife/my mom) insisted he take her to some event, so he switched shifts with a coworker. That night the store was robbed, and the guy who took my dad’s shift was shot five times and died. My dad has major survivors guilt to this day and will rarely talk about it, but it’s so wild because if he had gone to work, I wouldnt be alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162790.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171762.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I have the rarest type of synesthesia, which means I can actually taste words. Its called lexical-gustatory, and less than .2% of the population has it. I have to physically say the words out loud to taste them (so reading silently to myself wont do it). When I was younger, Id always repeat words that tasted good in my head, and Id avoid saying words that tasted bad. Now I can mostly ignore it. It only happens if I speak, so I dont taste from other people during conversations. For example, Sam tastes like lemon juice mixed with salt, almost like a chili-lime flavor without the spiciness; Jon tastes like raisins; and Noah tastes like avocado.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162791.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171763.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. The first time I ever went gambling in Niagara Falls, I was trying all the penny slots and just losing everything. I was down to my last quarter and used it to play a machine with these rubber duckies on top and won the $400 jackpot! The ducks were all quacking and the lights were binging and making a ruckus - it was quite overstimulating. Then the next day before we left I put a quarter in the same machine and won another $400 jackpot! I havent gambled since, because I feel like Ive used up all the gambling luck Ive been allotted in this life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162793.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171764.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. I survived a nonsurvivable plane crash. I was on an old Po-2 (famous for being very safe and uncrashable) on a tour of the desert in western China when I was 7. My father’s friend who piloted the plane didn’t survive, but somehow I got out with only a concussion. I apparently passed out for almost a day in the wreckage on the edge of the desert, 50 kilometers from the town/airport. The people who found me were some tree planters. (They plant greens in the desert to protect towns from sandstorms — a lot of people who live in these desert towns in China do this.) They found me while they were picking up a shipment, and the only reason they looked was that they were making a bet to see how quickly an egg could cook in the sand, and they went off the road to test it.According to my dads, I survived because the plane was mostly made out of fabrics and wood, so when the plane crashed, the front half collapsed and took the majority of the impact. I was knocked out and was luckily covered under the wreckage and in the shade, so that cooled me off enough to survive for a day or so</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162794.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171765.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. My husband was grilling outside and cut into the meat to check if it was done. The knife slipped out of his hand and hit the cement right on its rubber handle. The darn thing somehow bounced all the way back up, and the blade hit my husband in the eyeglasses. He became white as a ghost and showed me his glasses (which he never wears but needed to because hed JUST run out of contact lenses), and they had a big, deep scratch on them. Had he been wearing his contacts like normal, he would have lost his eye! Scary stuff!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162795.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171766.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. When my nana was just a teen, she escaped a Satanic cult and rescued four teen girls whod been kidnapped and were being hidden in the attic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162796.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171767.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. In 2016, my family and I went on a small excursion of fewer than 15 people to a village in Portugal called Nazaré. We ended up meeting and having lunch with a man who was on the excursion by himself. We parted ways when the bus dropped us off, and that was that. A year later, our family was traveling out of state in our country (Brazil). We were checking in at our hotel when I saw someone in line who looked awfully familiar. Well, it was the man from the excursion! We randomly met again, unplanned, on a whole different continent, a year later!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162797.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171768.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. I stuck my hand out the window for half a second to see if it was still raining, and a bird shat right on it. What the hell are the chances? Never doing that again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162798.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171769.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. I once caught a housefly with a pair of chopsticks like Daniel-San.My friend was there & was the only one that saw it. Ive told the story many times to lots of people over the last couple of decades since it happened, but I usually get the same, dismissive Oh, really? Wow, cool.But screw em. I did it. And it was bad-a*s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162799.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171770.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Im allergic to the cold. Like, literally. I get intense hives and swelling, I pass out, and I throw up. It doesn’t even have to be freezing. If its below 45 degrees Fahrenheit and Im without a jacket, I can’t do it. I have to carry an EpiPen with me in the event that I drink something too cold or have a severe reaction</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162800.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171771.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Worked at the World Trade Center and missed both the 93 bombing and the 9/11 attacks because I happened to be out of the building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162801.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171772.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. I didnt meet my husband until we worked together just a few cubicles apart as adults. It turned out we actually grew up one street away from each other, only we hadnt met because he went to the public elementary school and I went to a private one. Id trick-or-treated at his house and even rode my bike by it a million times as a kid, but we never knew each other</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162802.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171773.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. I was kidnapped while leaving work one day and was held captive for 18 months, along with two other girls. The guy who took us claimed himself to be an ineffable lower god, and he used cult tactics, manipulation, and control to have us be his family. I was allowed to leave to go to the grocery store as an errand, but I knew if I didn’t come back, the others would receive my punishment. I finally got away by stabbing my captor when I believed he was going to kill me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162803.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171774.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. I went on a trip to Europe by myself during college. While there, I ran into my high school crush. She sat down next to me for a concert in a cathedral - and from there we toured together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162804.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171775.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. In my astronomy course we were reviewing sig figs as an introductory topic. Our instructor brought out these models to help us grasp just how big 1 million was.These models were plastic tubs (think UTZ cheese balls, but smaller diameter) filled with 1 million microbeads of assorted colors. I dont remember exactly how many of each color there were, so the math is most likely not going to add up.Anyways there were something along the lines of 250k red beads, 100k green beads, 50k blue, 10k teal, 5k yellow, etc, and a singular black bead. Ms. Instructor told us that nobody in her classes had ever found the black dot.I looked over at it scanned it for a few seconds, and found the black bead, stuck to the wall of the just by static electricity. My lab partner was in disbelief, so he shook it up and started looking again.I found it a second time. So I suppose it was a one in a trillion. Regardless I bought a bunch of lottery tickets that day at the recommendation of my astronomy instructor.TL;DR Playing with jugs that had 999,999 colored microbeads and a singular black bead. Found black bead twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162805.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171776.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. I went to a Chinese restaurant and got a fortune cookie, but it didnt have a fortune in it, I thought that was kind of a ripoff so I asked the waitress for another cookie. She gave me a new one and it had two fortunes in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162806.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171777.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. A girl I was dating was going through high school photos when I turned up in two of them, from two separate locations. Which was strange, because at the time that those photos were taken, we lived on opposite sides of the country.We apparently met twice in our freshman years of high school, before my family moved across the country and before her family moved to the same city across the state. She was on a choir trip for Disney when they stopped at a cafe that my friends and I hung out at. We ended up hanging out with the other kids and a few photos were taken. Second photo was from when my mom and I went to visit my soon to be step dad. I went to the mall with my soon to be cousins and we were messing around in Hot Topic when future girlfriend and her friends came in. They were taking pictures and they caught me in one photobombing them. It didnt end happily ever after, but its still a weird coincidence I like to have.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162807.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171778.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. I dropped a coin in a convenience store. It hit the wall, bounced off, and landed on its edge. After two seconds of rolling, it came to a stop. On its edge.I looked around but no one saw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162808.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171779.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. I was at a gas station two Christmas seasons ago. My kids were in the car. A cop car was there and two cops were standing outside the car. As I was pumping gas, they are just watching me. Finally, one says something to the other and the other cop comes walking over to me. I am like Sh*t, they saw my expired tag! The cop peers into the window, waves to my kids and then comes over to me and hands me $100. He says they decided to help a family out for Christmas and they saw my minivan with three kids inside and guessed I could use a little financial assistance. I was flabbergasted and gave them a hug and had a smile on my face the rest of the day. I never have luck like that!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162781.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. I hit the recessive gene lottery. both of my parents have dark brown eyes and dark brown hair. i came out with light blue eyes and blonde/reddish hair and some freckles. i also got some other genetic features that require two recessive genes to pair up. on top of that i inheirited a nuerological disorder that results in slight deformities to the toes. also yes, i know my parents are genetically my parents. none of these are rare on their own, but to see them all in one person is pretty uncommon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162809.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171800.jpg" style="width:100%"><br>
 
 ## <a href="#linky8" id="linky7">27 Times Sh*t Hit the Proverbial Fan</a><br>
 
@@ -603,107 +641,7 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">49 Fun Randoms to Spice up the Day</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171752.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171793.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87171800.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">19 Stock Photos We Can't Imagine a Business Would Need</a><br>
+## <a href="#linky12" id="linky11">19 Stock Photos We Can't Imagine a Business Would Need</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171629.jpg" style="width:100%"><br>
 
@@ -743,7 +681,71 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87171647.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">52 Funny Tweets and Memes Spotted on Twitter</a><br>
+## <a href="#linky13" id="linky12">Star Wars Set Photos You Probably Haven't Seen Before</a><br>
+
+<span style="font-size:4em">1. Apparently, no movie set was complete without at least a few shirtless guys wearing tiny shorts. Seems to us that its a big part of the so-called movie magic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216230.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. No green screen here folks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216232.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216229.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216233.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216234.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216231.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Here is Mr Solo himself with a nice big fish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216235.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216236.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216237.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216238.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216239.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">20 Comments That Nailed It</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171819.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171813.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171807.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171810.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171811.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171812.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171815.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171817.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171818.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171809.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171808.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171814.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171820.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171821.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171822.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171823.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171824.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171825.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171826.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">52 Funny Tweets and Memes Spotted on Twitter</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172078.jpg" style="width:100%"><br>
 
@@ -849,46 +851,6 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172118.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">20 Comments That Nailed It</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171819.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171813.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171807.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171810.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171811.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171812.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171815.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171817.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171818.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171809.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171808.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171814.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171820.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171821.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171822.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171823.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171824.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171825.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171826.png" style="width:100%"><br>
-
 ## <a href="#linky16" id="linky15">26 Disasters That Happened To People's Homes</a><br>
 
 <span style="font-size:4em">1. Was getting ready for bed, walked into my bedroom to this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169144.jpg" style="width:100%"><br>
@@ -943,27 +905,65 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">26. Found out why my house started to smell every time the water heater kicked on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169161.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">Star Wars Set Photos You Probably Haven't Seen Before</a><br>
+## <a href="#linky17" id="linky16">30 One-in-a-Million Things That Happened To People</a><br>
 
-<span style="font-size:4em">1. Apparently, no movie set was complete without at least a few shirtless guys wearing tiny shorts. Seems to us that its a big part of the so-called movie magic. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216230.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. My father and I went to a casino for the first time. I had $50 in my pocket, with the intention of that being the only money wed spend. We played roulette and quickly lost 45 bucks. As I had a $5 chip, I placed it on the number 5. The ball started spinning and actually landed on that number. We cheered. I decided to leave the whole bet on 5 again. Rinse and repeat. The ball fell on number 5 FOUR times in a row. We walked out with almost $43,000 in the bag after taxes. Never went in a casino again in my life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162782.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. No green screen here folks. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216232.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. My mom has been struck by lightning. Twice. She was INSIDE her house both times and in two different houses!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162792.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216229.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Way back in college, my car got stolen. It was a crappy bright green Ford Pinto (yeah, that far back) but it was mine, and I needed it for classes and getting to work.Later that day a friend gives me a ride to the police station to make a report. We stop at a light, and my Pinto pulls up right next to us! I look at her, she looks at me, when the light changes we follow the car.The car goes about three blocks and pulls into a liquor store. Guy gets out, leaves the car running for the a/c. She pulls up, I get out, open the Pintos door and drive my stolen car home.Never even made the police report.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162780.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216233.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My dads cousin was an activist in the 80s against the neo-Nazis. One night he was in bed, but a family member had a bad feeling and decided to call him to see if he was okay. He got up to answer the phone, which was in the kitchen, and while he was on the call, a bomb went off in his bedroom. That phone call saved his life</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162783.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216234.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. My now-husband was in a terrible car accident as a teen. He was found dead on the scene but was revived. His sister was the random EMT who was called, the defibrillator that was used to revive him was recently donated by the company his mom worked for, and a doctor who heard the car accident from his house and came to assist was the obstetrician who delivered him when he was born. So freaky</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162784.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216231.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. My family and I live in Canada. When I was a child, we went to Disneyland, and I somehow got separated from my parents in the theme park. Panicked, I started to look around for them and couldn’t believe that our next-door neighbors (from Canada!) were sitting on the bench right in front of me!!! I was able to sit with them until my parents found me. Talk about a weird coincidence</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162785.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Here is Mr Solo himself with a nice big fish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216235.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I grew up in Luxembourg, Europe. When I was seven years old, I had a neighbor named Will. He and I were best friends until one day his family moved. He told me he was moving to the US, but I was too young to understand what that really meant and we ended up losing touch pretty fast.Roughly 9-10 years later, Im 17 and I go to a theatre camp in the states. There are 20 students for a 5 week intensive theatre program. There were only four other guys in the program and one of them was named Brandon. We started casually talking/hanging out until I added him on Facebook and realized we had one mutual friend, my old neighbor, Will. I thought this was crazy and when I asked him about it, he said: Dude, Wills my neighbor.So somehow, when I was 7 years old, my neighbor Will moved to the states, became this kid Brandons neighbor, and 10 years down the road, I happen to meet Brandon independently of Will. This was without a doubt the smallest world moment Ive ever experienced. The likelihood of me running into Brandon and having that mutual connection just felt like one-in-a-million. I mean how many different houses/cities/neighbors/streets are there in the US. The likelihood of Will moving next door to Brandon, and Brandon and I meeting 10 years down the line seems very very very very slim. Im 23 now and Brandon and I are best friends.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162786.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216236.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. I was cutting vegetables in my kitchen, and a fly was buzzing around my head, so I swung around with the knife in my hand and somehow managed to slice the fly clean in half.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162787.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216237.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. I worked in a contact center in Wisconsin, which had about 40 of us working at any given time. I was helping a woman place an order, and when I took down her address, I realized she lived in the same exact house I did when I was 10...in Texas...1,320 miles away</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162788.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216238.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. I was talking with a girl on Tinder when I was out of town for a baseball trip. When I asked for her number, she responded with my number, except a different area code. I thought maybe she Facebook stalked me and got my phone number from there and was just messing with me, but nope. She had the same phone number as me, just different area code.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162789.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2404597/86216239.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. In college (1965-ish), my dad worked at a liquor store. He was supposed to work that Friday night, but his girlfriend (now-wife/my mom) insisted he take her to some event, so he switched shifts with a coworker. That night the store was robbed, and the guy who took my dad’s shift was shot five times and died. My dad has major survivors guilt to this day and will rarely talk about it, but it’s so wild because if he had gone to work, I wouldnt be alive</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I have the rarest type of synesthesia, which means I can actually taste words. Its called lexical-gustatory, and less than .2% of the population has it. I have to physically say the words out loud to taste them (so reading silently to myself wont do it). When I was younger, Id always repeat words that tasted good in my head, and Id avoid saying words that tasted bad. Now I can mostly ignore it. It only happens if I speak, so I dont taste from other people during conversations. For example, Sam tastes like lemon juice mixed with salt, almost like a chili-lime flavor without the spiciness; Jon tastes like raisins; and Noah tastes like avocado.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The first time I ever went gambling in Niagara Falls, I was trying all the penny slots and just losing everything. I was down to my last quarter and used it to play a machine with these rubber duckies on top and won the $400 jackpot! The ducks were all quacking and the lights were binging and making a ruckus - it was quite overstimulating. Then the next day before we left I put a quarter in the same machine and won another $400 jackpot! I havent gambled since, because I feel like Ive used up all the gambling luck Ive been allotted in this life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162793.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I survived a nonsurvivable plane crash. I was on an old Po-2 (famous for being very safe and uncrashable) on a tour of the desert in western China when I was 7. My father’s friend who piloted the plane didn’t survive, but somehow I got out with only a concussion. I apparently passed out for almost a day in the wreckage on the edge of the desert, 50 kilometers from the town/airport. The people who found me were some tree planters. (They plant greens in the desert to protect towns from sandstorms — a lot of people who live in these desert towns in China do this.) They found me while they were picking up a shipment, and the only reason they looked was that they were making a bet to see how quickly an egg could cook in the sand, and they went off the road to test it.According to my dads, I survived because the plane was mostly made out of fabrics and wood, so when the plane crashed, the front half collapsed and took the majority of the impact. I was knocked out and was luckily covered under the wreckage and in the shade, so that cooled me off enough to survive for a day or so</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My husband was grilling outside and cut into the meat to check if it was done. The knife slipped out of his hand and hit the cement right on its rubber handle. The darn thing somehow bounced all the way back up, and the blade hit my husband in the eyeglasses. He became white as a ghost and showed me his glasses (which he never wears but needed to because hed JUST run out of contact lenses), and they had a big, deep scratch on them. Had he been wearing his contacts like normal, he would have lost his eye! Scary stuff!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. When my nana was just a teen, she escaped a Satanic cult and rescued four teen girls whod been kidnapped and were being hidden in the attic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. In 2016, my family and I went on a small excursion of fewer than 15 people to a village in Portugal called Nazaré. We ended up meeting and having lunch with a man who was on the excursion by himself. We parted ways when the bus dropped us off, and that was that. A year later, our family was traveling out of state in our country (Brazil). We were checking in at our hotel when I saw someone in line who looked awfully familiar. Well, it was the man from the excursion! We randomly met again, unplanned, on a whole different continent, a year later!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. I stuck my hand out the window for half a second to see if it was still raining, and a bird shat right on it. What the hell are the chances? Never doing that again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I once caught a housefly with a pair of chopsticks like Daniel-San.My friend was there & was the only one that saw it. Ive told the story many times to lots of people over the last couple of decades since it happened, but I usually get the same, dismissive Oh, really? Wow, cool.But screw em. I did it. And it was bad-a*s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Im allergic to the cold. Like, literally. I get intense hives and swelling, I pass out, and I throw up. It doesn’t even have to be freezing. If its below 45 degrees Fahrenheit and Im without a jacket, I can’t do it. I have to carry an EpiPen with me in the event that I drink something too cold or have a severe reaction</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Worked at the World Trade Center and missed both the 93 bombing and the 9/11 attacks because I happened to be out of the building.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. I didnt meet my husband until we worked together just a few cubicles apart as adults. It turned out we actually grew up one street away from each other, only we hadnt met because he went to the public elementary school and I went to a private one. Id trick-or-treated at his house and even rode my bike by it a million times as a kid, but we never knew each other</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I was kidnapped while leaving work one day and was held captive for 18 months, along with two other girls. The guy who took us claimed himself to be an ineffable lower god, and he used cult tactics, manipulation, and control to have us be his family. I was allowed to leave to go to the grocery store as an errand, but I knew if I didn’t come back, the others would receive my punishment. I finally got away by stabbing my captor when I believed he was going to kill me</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. I went on a trip to Europe by myself during college. While there, I ran into my high school crush. She sat down next to me for a concert in a cathedral - and from there we toured together.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. In my astronomy course we were reviewing sig figs as an introductory topic. Our instructor brought out these models to help us grasp just how big 1 million was.These models were plastic tubs (think UTZ cheese balls, but smaller diameter) filled with 1 million microbeads of assorted colors. I dont remember exactly how many of each color there were, so the math is most likely not going to add up.Anyways there were something along the lines of 250k red beads, 100k green beads, 50k blue, 10k teal, 5k yellow, etc, and a singular black bead. Ms. Instructor told us that nobody in her classes had ever found the black dot.I looked over at it scanned it for a few seconds, and found the black bead, stuck to the wall of the just by static electricity. My lab partner was in disbelief, so he shook it up and started looking again.I found it a second time. So I suppose it was a one in a trillion. Regardless I bought a bunch of lottery tickets that day at the recommendation of my astronomy instructor.TL;DR Playing with jugs that had 999,999 colored microbeads and a singular black bead. Found black bead twice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I went to a Chinese restaurant and got a fortune cookie, but it didnt have a fortune in it, I thought that was kind of a ripoff so I asked the waitress for another cookie. She gave me a new one and it had two fortunes in it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A girl I was dating was going through high school photos when I turned up in two of them, from two separate locations. Which was strange, because at the time that those photos were taken, we lived on opposite sides of the country.We apparently met twice in our freshman years of high school, before my family moved across the country and before her family moved to the same city across the state. She was on a choir trip for Disney when they stopped at a cafe that my friends and I hung out at. We ended up hanging out with the other kids and a few photos were taken. Second photo was from when my mom and I went to visit my soon to be step dad. I went to the mall with my soon to be cousins and we were messing around in Hot Topic when future girlfriend and her friends came in. They were taking pictures and they caught me in one photobombing them. It didnt end happily ever after, but its still a weird coincidence I like to have.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. I dropped a coin in a convenience store. It hit the wall, bounced off, and landed on its edge. After two seconds of rolling, it came to a stop. On its edge.I looked around but no one saw</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. I was at a gas station two Christmas seasons ago. My kids were in the car. A cop car was there and two cops were standing outside the car. As I was pumping gas, they are just watching me. Finally, one says something to the other and the other cop comes walking over to me. I am like Sh*t, they saw my expired tag! The cop peers into the window, waves to my kids and then comes over to me and hands me $100. He says they decided to help a family out for Christmas and they saw my minivan with three kids inside and guessed I could use a little financial assistance. I was flabbergasted and gave them a hug and had a smile on my face the rest of the day. I never have luck like that!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. I hit the recessive gene lottery. both of my parents have dark brown eyes and dark brown hair. i came out with light blue eyes and blonde/reddish hair and some freckles. i also got some other genetic features that require two recessive genes to pair up. on top of that i inheirited a nuerological disorder that results in slight deformities to the toes. also yes, i know my parents are genetically my parents. none of these are rare on their own, but to see them all in one person is pretty uncommon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87162809.jpg" style="width:100%"><br>
 
