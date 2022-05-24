@@ -1,7 +1,103 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/24/2022-07:11:31
+Last updated: 05/24/2022-08:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+## <a href="#linky2" id="linky1">26 Dank Memes For Humor Enthusiasts </a><br>
+
+<span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I cant explain. You need to see it for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173198.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I need this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173199.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Send this to the nosy person in your group chat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173200.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Oh man we almost feel bad for this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173201.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sharks makes everything cooler, but talking sharks are undefeated. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173202.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. What a waste -  my fat a** </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173203.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173205.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You know youre getting older when you use subtitles. Sorry we dont make the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173206.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173207.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ramasy from the top rope, what is that in his hands, a braised lamb? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173208.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. And down this way he have the department of proctology. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173210.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173211.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. hes got a point ya know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173212.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Okay, but what is this picture? What is it taken from? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173213.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Oh right, the mistake is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173214.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173215.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. And Im moving out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173216.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Whats your favorite club? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173217.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Who? Little old me? Oh, youre being too nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173218.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173219.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173220.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Now this is what we call a glow-up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173221.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173222.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. His wife is going to be so pissed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173223.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
+
+<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Totally Innocent Activities That Feel Super Creepy</a><br>
 
 <span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
@@ -54,545 +150,51 @@ Last updated: 05/24/2022-07:11:31
 
 <span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">48 Pics That Are Oddly Specific</a><br>
+## <a href="#linky5" id="linky4">21 Fascinating Pics From Way Back When </a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171108.png" style="width:100%"><br>
+<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171084.png" style="width:100%"><br>
+<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171068.png" style="width:100%"><br>
+<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171069.png" style="width:100%"><br>
+<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171070.png" style="width:100%"><br>
+<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171071.png" style="width:100%"><br>
+<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171075.png" style="width:100%"><br>
+<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171074.png" style="width:100%"><br>
+<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171066.png" style="width:100%"><br>
+<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171067.png" style="width:100%"><br>
+<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171076.png" style="width:100%"><br>
+<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171077.png" style="width:100%"><br>
+<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171078.png" style="width:100%"><br>
+<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171079.png" style="width:100%"><br>
+<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171080.png" style="width:100%"><br>
+<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171081.png" style="width:100%"><br>
+<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171082.png" style="width:100%"><br>
+<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171083.png" style="width:100%"><br>
+<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171085.png" style="width:100%"><br>
+<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171086.png" style="width:100%"><br>
+<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171087.png" style="width:100%"><br>
+<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171088.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171089.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171090.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171091.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171092.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171093.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171094.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171095.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171096.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171097.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171098.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171099.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171100.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171101.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171102.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171103.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171104.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171105.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171106.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171107.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171109.png" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171110.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171111.png" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171112.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171113.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171114.png" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171115.png" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
-
-<span style="font-size:4em">1. Cant imagine what his circle of friends looks like now.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042846/87173788/markhaynes2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I dont even understand what he was going for with this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013804/87173511/asian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Referring to yourself as Da Champ after giving the worst take possible is really some flat-out narcissistic sh*t to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043002/87173789/markhaynes3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Im guessing they feel the exact same way about you, Mark.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013815/87173513/commercial.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Who is this even for? Twitter? The internet in general? Leave it in the drafts bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013821/87173514/dad.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Theres so much going on in this tweet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042717/87173787/markhaynes.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Im at a loss for words.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013938/87173528/rape.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This tweet alone should end this mans entire career. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043125/87173790/markhaynes4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Again, Im very confused. Did he just make up a new racist stereotype? WTF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013837/87173517/drugs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. When historians look back on the annals of the internet, this tweet is the one that totally encapsulates 2010 Twitter. Holy god.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043300/87173791/markhaynes5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Was is really worth the 33 likes you got? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043509/87173792/markhaynes6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Clearly he was TRYING to be funny but like all of his jokes, this one didnt land.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013853/87173520/indian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Who even thinks about this kind of sh*t?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013859/87173521/ladygaga.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Calling out one of the greatest rap artists to ever do it, and making fun of his sexuality (while also admitting that hes rich.) Make it make sense.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013905/87173522/lilwayne.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Wow. Congratulations, Mark. Pwnd. I guess that makes me gay. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013910/87173523/mall.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 60% of the time it works...every time. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013944/87173529/women.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. And the award for most the unfunny tweet in the history of Twitter goes to...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013916/87173524/mexican.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. This tweet got 1 like. Enough said.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013927/87173526/oprah.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Is he just talking to himself? Again who is this tweet for? And why was it necessary?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013921/87173525/nba.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My only retort to this garbage is, I hope he has a daughter and she marries a white dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013933/87173527/porn.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
-
-<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
-
-<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">23 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. This would break all the box offers records in a single weekend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Its simple as that. Im always hungry and my patience is nonexistent. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. It can end like this. I must. Hold. On. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173108.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. my left sock: *This is my moment* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. And hes doing an amazing job. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Hey, what gives? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The worst superhero of all time, Inflation Man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dont you just love a warm rainy night? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Bro, we are trying to eat here, not uncover the great mysterious of the universe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173115.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. There is no winning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Hes looks great in both images honestly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hey bro, you better waterfall that sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173121.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Good thing he didnt try it with #2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173124.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">34 Things You Might Really Want to Own</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">28 People Who Clearly Missed the Joke</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">25 Times Nature Was Downright Scary </a><br>
-
-<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">35 Interesting Charts About Food</a><br>
-
-<span style="font-size:4em">1. How To Test If A Plant Is Edible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173308.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. How Old Are Your Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The Ultimate Banana Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Know Your Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. This Is How To Measure Rice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The Life Cycle Of A Strawberry Is Neat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173301.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. All The Ways To Screw Up A Chocolate Chip Cookie...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The Only Wine Chart Youll Ever Need</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Evolution Of Pepsi Bottles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Was Just Finding Information On When To Harvest My Peppers And Found This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173305.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Nestlé Wont Be Leaving Russia. Heres A Guide To The Product Brands That Nestlé Owns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173306.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Not A Healthy Snack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Can My Dog Eat This?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173307.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Common Foods Before Humans Domesticated Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Apples On A Scale From Most Tart To Most Sweet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173309.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. How To Open A Lime!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173310.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. British & American Words</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173311.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Types Of Sandwiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173312.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A Cheese Melting Guide!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173313.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Percentage Of Air In Chip Bags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173314.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Vertical Foods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Birdy Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. At A Burger Joint In My Town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Macaroon Or Macaron?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173318.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Donut & Wine Pairings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Brownies-How To Mix Them Up!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Onion Use Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. A Quick Guide To Tea!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. How To Pick The Right Watermelon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Spice Combos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173324.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Cold Cut Guide I Saw At The Deli Section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173325.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. You Want Lots Of Potatoes? This Is How You Get Loads Of Potatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173326.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Tuna Sushi And Sashimi Cut Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. Yogurts Of The World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Preserves Are Probably My Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173329.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">Monday Morning Randomness User Edition - Mizuka</a><br>
+## <a href="#linky6" id="linky5">Monday Morning Randomness User Edition - Mizuka</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032505/87173041/87146660.jpg" style="width:100%"><br>
 
@@ -710,105 +312,7 @@ Last updated: 05/24/2022-07:11:31
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032720/87173062/87172679.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Wild Facts People Find Hard To Believe</a><br>
-
-<span style="font-size:4em">1. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created. - Regnes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Tarantulas keep tiny frogs as pets. - JimminyBean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world. - Handsprime
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms. - Strange-Listen8048</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep - Angry_Elk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket... he won the lottery again on camera - YeahYeahButNah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Dragonflies accelerate at up to 4G and corner at up to 9G - automatorsassemble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.) - thebyron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Michael Jacksons hair caught fire on 27 Jan 1984 which was the exact midpoint of his life. - Inquisitive_Muscrat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do - Punny-Aggron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 1/6 of the world’s living languages are only spoken in New Guinea. - Mr_Taviro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else. - AnnigidWilliams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun. - SaturnRocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Every human could fit into a cubic mile. - Chalkyteton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War. - Bma1500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 2/3 of Canada’s population lives south of Seattle. https://tobysimkin.com/49th-parallel/  - never_mind___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. 105 billion people have lived so far. 7.9 billion of us are currently alive. - Figurinitoutfornow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Oxford university is older than the Aztec empire. - didijxk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland - TrumpsNeckSmegma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That dolphins can kill, rape, and injure people(and they have) it’s just hard to believe that an animal that looks innocent can kill you. - beatafurry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10. - TyroneMings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh. - dang_dude_dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun. - PretzylPower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A moose can dive underwater down to nearly twenty feet in search of food - ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass. - AJCLEG98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167694.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">21 Fascinating Pics From Way Back When </a><br>
-
-<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">15 Attention Seekers Sharing Their Lies Online </a><br>
+## <a href="#linky7" id="linky6">15 Attention Seekers Sharing Their Lies Online </a><br>
 
 <span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
 
@@ -840,7 +344,7 @@ Last updated: 05/24/2022-07:11:31
 
 <span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">30 Things Professionals Wish Their Customers Knew</a><br>
+## <a href="#linky8" id="linky7">30 Things Professionals Wish Their Customers Knew</a><br>
 
 <span style="font-size:4em">1. Nuclear engineer here, and if you think radiation is the devil incarnate then buckle in for a quick second as I tell you that:1) No one from Fukushima died from radiation exposure. You saw pictures of the horrific devastation from the earthquake and tsunami. Flooding a nuclear plant doesnt topple buildings.2) Nuclear is one of the safest, renewable, and cleanest energy sources that exist. Second cleanest only to water (and air if you count that).3) Unless we start growing energy and picking it off the vine, oil and coal will run out in the very foreseeable future and nuclear is the way to go.4) You get more radiation from eating a banana than anyone ever did from 3 Mile Island. The most radiation I get everyday is from my morning fruit and I play with radioactive sources and crystals all day.5) Nuclear is actually really cool and by making it to the bottom of the list youre pretty cool too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168271.jpg" style="width:100%"><br>
 
@@ -901,4 +405,456 @@ Last updated: 05/24/2022-07:11:31
 <span style="font-size:4em">29. Research chemists spend the vast majority of their time readings journal article PDFs at 2:30 AM and generally dont pour vials of liquids into each other regularly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168296.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">30. When your town spends money to fix the road down the street from you but not your road, its not out of spite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168297.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
+
+<span style="font-size:4em">1. Cant imagine what his circle of friends looks like now.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042846/87173788/markhaynes2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I dont even understand what he was going for with this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013804/87173511/asian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Referring to yourself as Da Champ after giving the worst take possible is really some flat-out narcissistic sh*t to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043002/87173789/markhaynes3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Im guessing they feel the exact same way about you, Mark.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013815/87173513/commercial.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Who is this even for? Twitter? The internet in general? Leave it in the drafts bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013821/87173514/dad.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Theres so much going on in this tweet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042717/87173787/markhaynes.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Im at a loss for words.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013938/87173528/rape.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This tweet alone should end this mans entire career. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043125/87173790/markhaynes4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Again, Im very confused. Did he just make up a new racist stereotype? WTF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013837/87173517/drugs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. When historians look back on the annals of the internet, this tweet is the one that totally encapsulates 2010 Twitter. Holy god.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043300/87173791/markhaynes5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Was is really worth the 33 likes you got? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043509/87173792/markhaynes6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Clearly he was TRYING to be funny but like all of his jokes, this one didnt land.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013853/87173520/indian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Who even thinks about this kind of sh*t?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013859/87173521/ladygaga.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Calling out one of the greatest rap artists to ever do it, and making fun of his sexuality (while also admitting that hes rich.) Make it make sense.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013905/87173522/lilwayne.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Wow. Congratulations, Mark. Pwnd. I guess that makes me gay. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013910/87173523/mall.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. 60% of the time it works...every time. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013944/87173529/women.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. And the award for most the unfunny tweet in the history of Twitter goes to...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013916/87173524/mexican.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. This tweet got 1 like. Enough said.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013927/87173526/oprah.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Is he just talking to himself? Again who is this tweet for? And why was it necessary?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013921/87173525/nba.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My only retort to this garbage is, I hope he has a daughter and she marries a white dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013933/87173527/porn.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">25 Wild Facts People Find Hard To Believe</a><br>
+
+<span style="font-size:4em">1. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created. - Regnes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Tarantulas keep tiny frogs as pets. - JimminyBean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world. - Handsprime
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms. - Strange-Listen8048</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep - Angry_Elk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket... he won the lottery again on camera - YeahYeahButNah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Dragonflies accelerate at up to 4G and corner at up to 9G - automatorsassemble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.) - thebyron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Michael Jacksons hair caught fire on 27 Jan 1984 which was the exact midpoint of his life. - Inquisitive_Muscrat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do - Punny-Aggron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. 1/6 of the world’s living languages are only spoken in New Guinea. - Mr_Taviro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else. - AnnigidWilliams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun. - SaturnRocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Every human could fit into a cubic mile. - Chalkyteton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War. - Bma1500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. 2/3 of Canada’s population lives south of Seattle. https://tobysimkin.com/49th-parallel/  - never_mind___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. 105 billion people have lived so far. 7.9 billion of us are currently alive. - Figurinitoutfornow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Oxford university is older than the Aztec empire. - didijxk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland - TrumpsNeckSmegma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. That dolphins can kill, rape, and injure people(and they have) it’s just hard to believe that an animal that looks innocent can kill you. - beatafurry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10. - TyroneMings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh. - dang_dude_dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun. - PretzylPower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A moose can dive underwater down to nearly twenty feet in search of food - ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass. - AJCLEG98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167694.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">34 Things You Might Really Want to Own</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
+
+<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">28 People Who Clearly Missed the Joke</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">23 Fresh Memes of the Dankest Kind</a><br>
+
+<span style="font-size:4em">1. This would break all the box offers records in a single weekend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Its simple as that. Im always hungry and my patience is nonexistent. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. It can end like this. I must. Hold. On. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173108.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. my left sock: *This is my moment* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. And hes doing an amazing job. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Hey, what gives? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The worst superhero of all time, Inflation Man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Dont you just love a warm rainy night? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Bro, we are trying to eat here, not uncover the great mysterious of the universe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173115.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. There is no winning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Hes looks great in both images honestly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hey bro, you better waterfall that sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173121.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Good thing he didnt try it with #2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173124.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">35 Interesting Charts About Food</a><br>
+
+<span style="font-size:4em">1. How To Test If A Plant Is Edible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How Old Are Your Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Ultimate Banana Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Know Your Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This Is How To Measure Rice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Life Cycle Of A Strawberry Is Neat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. All The Ways To Screw Up A Chocolate Chip Cookie...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The Only Wine Chart Youll Ever Need</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Evolution Of Pepsi Bottles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Was Just Finding Information On When To Harvest My Peppers And Found This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Nestlé Wont Be Leaving Russia. Heres A Guide To The Product Brands That Nestlé Owns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Not A Healthy Snack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Can My Dog Eat This?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Common Foods Before Humans Domesticated Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Apples On A Scale From Most Tart To Most Sweet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How To Open A Lime!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. British & American Words</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Types Of Sandwiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Cheese Melting Guide!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Percentage Of Air In Chip Bags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Vertical Foods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Birdy Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. At A Burger Joint In My Town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Macaroon Or Macaron?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Donut & Wine Pairings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Brownies-How To Mix Them Up!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Onion Use Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. A Quick Guide To Tea!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. How To Pick The Right Watermelon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Spice Combos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Cold Cut Guide I Saw At The Deli Section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. You Want Lots Of Potatoes? This Is How You Get Loads Of Potatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Tuna Sushi And Sashimi Cut Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Yogurts Of The World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Preserves Are Probably My Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173329.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">25 Times Nature Was Downright Scary </a><br>
+
+<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
 
