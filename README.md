@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/23/2022-22:11:31
+Last updated: 05/23/2022-23:11:31
 <br>
 ## <a href="#linky2" id="linky1">25 Times Nature Was Downright Scary </a><br>
 
@@ -143,87 +143,67 @@ Last updated: 05/23/2022-22:11:31
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124858/87171981/87169887.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Odd Items With Simple Explanations</a><br>
+## <a href="#linky4" id="linky3">30 Things Professionals Wish Their Customers Knew</a><br>
 
-<span style="font-size:4em">1. Found this behind a commercial freezer while doing renovations. Plastic casing, plastic-looking balls, metal shroud, about 1.5 inches in length. Wall anchor? Cyanide capsule?
-Pretty sure this is a scent/pheromone capsule for a moth glue trap
-
- </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170390.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Nuclear engineer here, and if you think radiation is the devil incarnate then buckle in for a quick second as I tell you that:1) No one from Fukushima died from radiation exposure. You saw pictures of the horrific devastation from the earthquake and tsunami. Flooding a nuclear plant doesnt topple buildings.2) Nuclear is one of the safest, renewable, and cleanest energy sources that exist. Second cleanest only to water (and air if you count that).3) Unless we start growing energy and picking it off the vine, oil and coal will run out in the very foreseeable future and nuclear is the way to go.4) You get more radiation from eating a banana than anyone ever did from 3 Mile Island. The most radiation I get everyday is from my morning fruit and I play with radioactive sources and crystals all day.5) Nuclear is actually really cool and by making it to the bottom of the list youre pretty cool too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168271.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-100% this is the answer as a former pest control technician I have handled many of these. They are usually stuck into a glue trap to get them to fly in there and get stuck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170377.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. We are not in the habit of intentionally hurting children.It makes me absolutely insane when a new parent asks, about everything, if its safe for the baby.Guys. Im assuming you came to the hospital because you decided it was the safest place to deliver a baby. Why not trust us once you get here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why do these window grills have a bulge? Seen in Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170399.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. As someone in the movie/tv business, most people dont realize that doctoring and altering footage is really really really easy for someone with the right software. I see my old relatives falling for obviously fake footage all the time because they trust all video to be real.This problem is only going to get worse as the software gets better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168272.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-They’re called “belly bars” in a lot of places. They’re designed for flower boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170378.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. A significant portion of active duty military personnel (in the U.S., at least) spend a majority of their time sitting at a desk doing basic administration work.Im technically trained in my job speciality, but since Im not exactly in a combat zone when not deployed, I spend most days at a computer answering e-mails and s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168285.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. From the antique store “junk drawer” it came in a small tin with a slip of paper that says “German Inventors Fair 1953” “Patent Applied For” “Manfred Frommberger, Nurnberg Germany”
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170379.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Unless its an actual emergency youll have to wait in the ER. It sucks, we know, but a suspected heart attack will be treated before a busted knee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168273.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Could totally be wrong here, but based on the name and shape I’d guess it’s for having a resealable tap for canned goods.
-
- </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170381.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Organically grown produce is still grown using pesticides. I stopped arguing with people when I realized the fact that I worked for the EPA and it was literally my job didnt dissuade them from arguing with me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168274.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Seconded. There used to be small cans of ‘Kondensmilch’ (evaporated milk) from companies like ‘Glücksklee’. You stabbed a hole (or better two holes) into the top to pour (or better drip – people used it carefully) the milk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170382.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Wind farms require environmental impact studies that take birds in account. Yes, they do have an impact, but so does the playground in front of your house.And trust me, if we dont put wind farms up and keep burning coal, its gonna be worse, even for the birds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168270.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Is this a shock collar? My dog was wearing it after coming home from boarding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170383.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. When youre in a hospital, not every man is a doctor and not every woman is a nurse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168275.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Yes it is a bark collar, also formerly known as a shock collar. I say formerly because they now come with vibration. The rubber tips on the collar indicate they are not using the electric shock feature. Instead if the dog barks it vibrates, scaring the dog not to bark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170384.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Doctors/healthcare workers use dark humour as a form of resilience not to be callous or flippant.A lot of traumatic events occur in a hospital on a daily basis. Sometimes a dark joke is the difference between breaking down emotionally or being able to compartmentalise and treat you with all our wits about us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168276.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Black and yellow, large bomb-shaped item, found 30 mins outside Halifax, N.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170385.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Graphic Designer here (but this applies to a lot of creative professions). Doing a job faster actually means I need to be paid *more*, not less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168277.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Don’t think it’s a bomb, it looks more like fishing net floaters used to keep huge fishing from dragging on the floor. (they’re usually at the bottom of the net to keep the net straight and not tangle up while the net is being dragged)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170386.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I work as deskside IT support for an office.Anyone could do my job if they knew how to google and read tech forums. Besides, 75% of my job is customer service, 20% knowledge, and 5% politics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168278.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Large chunk of (metal?) Weighs quite a bit in your hand and hasn’t changed in color in decades.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170387.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. As your childs teacher, I see them for 53 minutes a day for 180 days of the year. I cannot undo all of the poor habits youve taught/enabled/encourage and make your kid successful. I see people post on the book of faces about their childs [lousy] teacher because they wont do x or y when those things are the responsibility of the parent. Also, my contract says I work until 3. I will not call, text, or meet with you after hours because I need to have my own life separate from my work life which is really hard for parents to understand for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168279.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-The circled m logo is the logo of the réunion des musées nationaux, the French public museums. Probably a copy of a cuneiform tablet available as a souvenir at the Louvre, among other museums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170380.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. As a plumber replying to my customer who just hovered over me during the whole repair:Yes, you could have done this yourself.Yes, you would have saved 100s of dollars.No, I cant come down on the price because of how simple it looked to you. We are a business and I gave you the quote before I started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168269.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. I’ve seen this cane-shaped (usually) brass post at numerous bars and pubs and wondered what it is and what it is used for. l have been unable to Google the correct sequence of words to get a result.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170388.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. The more you know how the Internet really works, the more youre amazed that it still works at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168280.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-A “divider” or “service divider”. It serves to keep standing customers to one side, away from the part of the bar where servers pick up drinks. Also notice the opening under the bar, the bartender (in some designs) can lift the top and gets in and out. You don’t want customers standing there blocking access.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170389.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Writing code is not really that exciting to watch. It is very unlikely that you will have a lot of cool graphics or special effects on the screen.Its going to be some slightly color-coded words, and very little else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168281.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. On the Bed in my Hotel. Doesn’t Open or Anything. W Melbourne, Australia.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170391.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. You cannot check-in to a hotel without giving us a deposit or a working credit card to protect us from possible damages.There arent gonna be any damages.OH OK, I GUESS WE DONT NEED TO WORRY ABOUT IT THEN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168282.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-Hi OP, this piece is a nod at Ned Kelly’s helmet where the slit in the first picture is where the eyes would be. It’s been reimagined as a “playful leather and faux fur fascinator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170392.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. One teacher, plus 32 kids doesnt yield optimum results.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168283.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Pulled the plug  Magnet from my transmission pan covered it what looks like tiny (1/64” or .3mm) balls. What’s in the picture is about 1% of what was in the pan, but had to clean through the slush. Ideas? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170393.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. The pastures you drive by dont just exist on their own. Grass is an actively managed crop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168284.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-That might be casting material that was attached to the casting and is now releasing. Another possibility is steel shot peen, used in a process to finish metal parts to prevent fatigue and stress corrosion failures and prolong product life for the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170394.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. If I cared what teenagers thought of me, I wouldn’t be a high school teacher. No, I don’t go home and drink away their lame insults. They don’t bother me, they’re just hormonal kids, and I love my job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168286.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. What is this thing? The circular thing on a post in an antique place.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170395.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Different artists excel at doing different styles. I work primarily in watercolor, my website and my portfolio are almost entirely watercolor pieces, and yet I regularly field requests from clients asking if I can do oil painting, mural painting, or God Forbid, tattoo them. Just yesterday I had someone ask if Id give them a tattoo, which I have never done before, have not trained in...I try to refer people to other artists I know who work in the styles and mediums theyre looking for.But you make lots of cool things!YES. IN WATERCOLOR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168287.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-This is an Engine Order Telegraph used in older marine vessels. Allowed the Captain remote communication with the ships engine room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170396.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Solving IT problems usually is done with efficient google searches, reading support articles, and checking out forums. Very little of the information I use for fixing computers was obtained organically (trial-and-error, or training, etc). IT people just google. They consider us wizards but really we just know how to search well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168288.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Found above the door in the backseat of a 2011 Porsche Cayenne; What are the holes behind the small door used for?
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170397.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Might be a bit late but the reason you see railway workers standing around and on their phone when your train goes past is because if they were working that same train would HIT THEM.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168289.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-I drive a Volvo and these holes are for the cargo net (or a mesh fence thing meant for pets) and there are other actual hooks by the “oh sh#t” bar like your vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170398.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. If youre hiring a musician to an event you pay us for playing ofc, AND for the time it takes to rehearse and arrange the songs or pieces you want us to play.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168290.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This metal decorative floral piece, removable petals, 10” long, on a tabletop.
-Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170400.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Electricity is dangerous. Yeah getting shocked by an outlet is nothing more then a quick scare when youre dry. But when youre wet its almost certain death (a painful one at that). And when you get into some larger stuff it will literally vaporize you. If youre untrained, you should leave electrical work to the professionals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168291.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. What’s this device mounted under my office desk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170401.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. 95% of the stuff you want to tell your lawyer before arraignment is irrelevant. I know youre scared because s**t is getting real and youre being charged with a crime, and I know you see everything going on as one big interconnected tangle that has to be straightened out once and for all, but all that happens at arraignment of any consequence is the probable cause determination and conditions of release. Im not ignoring you, I know I only have about ten minutes I can spend with you before we go in front of the judge, but ten minutes is about twice what Id need if we stayed on topic. All the rest of that stuff Id be happy to take the time to carefully comb through with you in my office between now and your first pretrial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168292.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. I need details to troubleshoot your website problems.The website isnt working, can you fix it?What isnt working?? What page, what section of the page, what is it doing that its not supposed to be doing, what is it supposed to be doing instead? What device, browser are you using? What were you doing before it happened? Give me *something* to work with here. Even if words arent your forte and its just a cell phone picture you took of your monitor, I need details. The more you give, the faster your issue will get fixed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Libraries are not [vanishing]. The main reason were suffering is because idiots decide, without doing any research, that libraries are [vanishing], so they cut funding because...why fund something thats dying? Its so circular that it makes my head hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Clip your dogs toe nails. The longer you wait, the less we can clip them because the quick grows out with the nail!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Research chemists spend the vast majority of their time readings journal article PDFs at 2:30 AM and generally dont pour vials of liquids into each other regularly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. When your town spends money to fix the road down the street from you but not your road, its not out of spite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168297.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
 
@@ -667,69 +647,7 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">30 Things Professionals Wish Their Customers Knew</a><br>
-
-<span style="font-size:4em">1. Nuclear engineer here, and if you think radiation is the devil incarnate then buckle in for a quick second as I tell you that:1) No one from Fukushima died from radiation exposure. You saw pictures of the horrific devastation from the earthquake and tsunami. Flooding a nuclear plant doesnt topple buildings.2) Nuclear is one of the safest, renewable, and cleanest energy sources that exist. Second cleanest only to water (and air if you count that).3) Unless we start growing energy and picking it off the vine, oil and coal will run out in the very foreseeable future and nuclear is the way to go.4) You get more radiation from eating a banana than anyone ever did from 3 Mile Island. The most radiation I get everyday is from my morning fruit and I play with radioactive sources and crystals all day.5) Nuclear is actually really cool and by making it to the bottom of the list youre pretty cool too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. We are not in the habit of intentionally hurting children.It makes me absolutely insane when a new parent asks, about everything, if its safe for the baby.Guys. Im assuming you came to the hospital because you decided it was the safest place to deliver a baby. Why not trust us once you get here?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. As someone in the movie/tv business, most people dont realize that doctoring and altering footage is really really really easy for someone with the right software. I see my old relatives falling for obviously fake footage all the time because they trust all video to be real.This problem is only going to get worse as the software gets better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. A significant portion of active duty military personnel (in the U.S., at least) spend a majority of their time sitting at a desk doing basic administration work.Im technically trained in my job speciality, but since Im not exactly in a combat zone when not deployed, I spend most days at a computer answering e-mails and s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Unless its an actual emergency youll have to wait in the ER. It sucks, we know, but a suspected heart attack will be treated before a busted knee.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Organically grown produce is still grown using pesticides. I stopped arguing with people when I realized the fact that I worked for the EPA and it was literally my job didnt dissuade them from arguing with me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Wind farms require environmental impact studies that take birds in account. Yes, they do have an impact, but so does the playground in front of your house.And trust me, if we dont put wind farms up and keep burning coal, its gonna be worse, even for the birds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. When youre in a hospital, not every man is a doctor and not every woman is a nurse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Doctors/healthcare workers use dark humour as a form of resilience not to be callous or flippant.A lot of traumatic events occur in a hospital on a daily basis. Sometimes a dark joke is the difference between breaking down emotionally or being able to compartmentalise and treat you with all our wits about us.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Graphic Designer here (but this applies to a lot of creative professions). Doing a job faster actually means I need to be paid *more*, not less.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I work as deskside IT support for an office.Anyone could do my job if they knew how to google and read tech forums. Besides, 75% of my job is customer service, 20% knowledge, and 5% politics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. As your childs teacher, I see them for 53 minutes a day for 180 days of the year. I cannot undo all of the poor habits youve taught/enabled/encourage and make your kid successful. I see people post on the book of faces about their childs [lousy] teacher because they wont do x or y when those things are the responsibility of the parent. Also, my contract says I work until 3. I will not call, text, or meet with you after hours because I need to have my own life separate from my work life which is really hard for parents to understand for some reason.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. As a plumber replying to my customer who just hovered over me during the whole repair:Yes, you could have done this yourself.Yes, you would have saved 100s of dollars.No, I cant come down on the price because of how simple it looked to you. We are a business and I gave you the quote before I started.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. The more you know how the Internet really works, the more youre amazed that it still works at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Writing code is not really that exciting to watch. It is very unlikely that you will have a lot of cool graphics or special effects on the screen.Its going to be some slightly color-coded words, and very little else.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. You cannot check-in to a hotel without giving us a deposit or a working credit card to protect us from possible damages.There arent gonna be any damages.OH OK, I GUESS WE DONT NEED TO WORRY ABOUT IT THEN</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. One teacher, plus 32 kids doesnt yield optimum results.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The pastures you drive by dont just exist on their own. Grass is an actively managed crop.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. If I cared what teenagers thought of me, I wouldn’t be a high school teacher. No, I don’t go home and drink away their lame insults. They don’t bother me, they’re just hormonal kids, and I love my job.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Different artists excel at doing different styles. I work primarily in watercolor, my website and my portfolio are almost entirely watercolor pieces, and yet I regularly field requests from clients asking if I can do oil painting, mural painting, or God Forbid, tattoo them. Just yesterday I had someone ask if Id give them a tattoo, which I have never done before, have not trained in...I try to refer people to other artists I know who work in the styles and mediums theyre looking for.But you make lots of cool things!YES. IN WATERCOLOR.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Solving IT problems usually is done with efficient google searches, reading support articles, and checking out forums. Very little of the information I use for fixing computers was obtained organically (trial-and-error, or training, etc). IT people just google. They consider us wizards but really we just know how to search well.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Might be a bit late but the reason you see railway workers standing around and on their phone when your train goes past is because if they were working that same train would HIT THEM.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. If youre hiring a musician to an event you pay us for playing ofc, AND for the time it takes to rehearse and arrange the songs or pieces you want us to play.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Electricity is dangerous. Yeah getting shocked by an outlet is nothing more then a quick scare when youre dry. But when youre wet its almost certain death (a painful one at that). And when you get into some larger stuff it will literally vaporize you. If youre untrained, you should leave electrical work to the professionals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. 95% of the stuff you want to tell your lawyer before arraignment is irrelevant. I know youre scared because s**t is getting real and youre being charged with a crime, and I know you see everything going on as one big interconnected tangle that has to be straightened out once and for all, but all that happens at arraignment of any consequence is the probable cause determination and conditions of release. Im not ignoring you, I know I only have about ten minutes I can spend with you before we go in front of the judge, but ten minutes is about twice what Id need if we stayed on topic. All the rest of that stuff Id be happy to take the time to carefully comb through with you in my office between now and your first pretrial.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. I need details to troubleshoot your website problems.The website isnt working, can you fix it?What isnt working?? What page, what section of the page, what is it doing that its not supposed to be doing, what is it supposed to be doing instead? What device, browser are you using? What were you doing before it happened? Give me *something* to work with here. Even if words arent your forte and its just a cell phone picture you took of your monitor, I need details. The more you give, the faster your issue will get fixed.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Libraries are not [vanishing]. The main reason were suffering is because idiots decide, without doing any research, that libraries are [vanishing], so they cut funding because...why fund something thats dying? Its so circular that it makes my head hurt.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Clip your dogs toe nails. The longer you wait, the less we can clip them because the quick grows out with the nail!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Research chemists spend the vast majority of their time readings journal article PDFs at 2:30 AM and generally dont pour vials of liquids into each other regularly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. When your town spends money to fix the road down the street from you but not your road, its not out of spite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168297.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">21 Fascinating Pics From Way Back When </a><br>
+## <a href="#linky13" id="linky12">21 Fascinating Pics From Way Back When </a><br>
 
 <span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
 
@@ -773,7 +691,7 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">48 Pics That Are Oddly Specific</a><br>
+## <a href="#linky14" id="linky13">48 Pics That Are Oddly Specific</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171108.png" style="width:100%"><br>
 
@@ -871,97 +789,89 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171115.png" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">29 People With Very Regrettable Tattoos </a><br>
+## <a href="#linky15" id="linky14">25 Odd Items With Simple Explanations</a><br>
 
-<span style="font-size:4em">1. What the hell was this guy thinking? We can tell you. He wasnt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171666.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Found this behind a commercial freezer while doing renovations. Plastic casing, plastic-looking balls, metal shroud, about 1.5 inches in length. Wall anchor? Cyanide capsule?
+Pretty sure this is a scent/pheromone capsule for a moth glue trap
+
+ </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170390.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Now this is going to look sick when he gets older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171660.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+100% this is the answer as a former pest control technician I have handled many of these. They are usually stuck into a glue trap to get them to fly in there and get stuck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170377.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. What the hell am I looking at. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171661.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Why do these window grills have a bulge? Seen in Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170399.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Bravo sir, bravo. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171662.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+They’re called “belly bars” in a lot of places. They’re designed for flower boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170378.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. This makes us feel something, were just not sure exactly what that something is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171663.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. From the antique store “junk drawer” it came in a small tin with a slip of paper that says “German Inventors Fair 1953” “Patent Applied For” “Manfred Frommberger, Nurnberg Germany”
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170379.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Its time to stop right there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171664.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Could totally be wrong here, but based on the name and shape I’d guess it’s for having a resealable tap for canned goods.
+
+ </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170381.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. This poor guy. Oh this poor, poor man. What the hell people? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171680.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Seconded. There used to be small cans of ‘Kondensmilch’ (evaporated milk) from companies like ‘Glücksklee’. You stabbed a hole (or better two holes) into the top to pour (or better drip – people used it carefully) the milk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170382.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. The nipples are the cherry on the cake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171667.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Is this a shock collar? My dog was wearing it after coming home from boarding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170383.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171668.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Yes it is a bark collar, also formerly known as a shock collar. I say formerly because they now come with vibration. The rubber tips on the collar indicate they are not using the electric shock feature. Instead if the dog barks it vibrates, scaring the dog not to bark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170384.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Oh I bet you do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171665.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Black and yellow, large bomb-shaped item, found 30 mins outside Halifax, N.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170385.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171669.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+Don’t think it’s a bomb, it looks more like fishing net floaters used to keep huge fishing from dragging on the floor. (they’re usually at the bottom of the net to keep the net straight and not tangle up while the net is being dragged)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170386.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Lmao, time to find a new artist. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171659.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Large chunk of (metal?) Weighs quite a bit in your hand and hasn’t changed in color in decades.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170387.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171670.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+The circled m logo is the logo of the réunion des musées nationaux, the French public museums. Probably a copy of a cuneiform tablet available as a souvenir at the Louvre, among other museums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170380.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171672.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. I’ve seen this cane-shaped (usually) brass post at numerous bars and pubs and wondered what it is and what it is used for. l have been unable to Google the correct sequence of words to get a result.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170388.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Look what they did to my boy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171673.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+A “divider” or “service divider”. It serves to keep standing customers to one side, away from the part of the bar where servers pick up drinks. Also notice the opening under the bar, the bartender (in some designs) can lift the top and gets in and out. You don’t want customers standing there blocking access.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170389.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171674.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. On the Bed in my Hotel. Doesn’t Open or Anything. W Melbourne, Australia.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170391.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171675.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+Hi OP, this piece is a nod at Ned Kelly’s helmet where the slit in the first picture is where the eyes would be. It’s been reimagined as a “playful leather and faux fur fascinator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170392.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171676.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Pulled the plug  Magnet from my transmission pan covered it what looks like tiny (1/64” or .3mm) balls. What’s in the picture is about 1% of what was in the pan, but had to clean through the slush. Ideas? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170393.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171677.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+
+That might be casting material that was attached to the casting and is now releasing. Another possibility is steel shot peen, used in a process to finish metal parts to prevent fatigue and stress corrosion failures and prolong product life for the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170394.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171678.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. What is this thing? The circular thing on a post in an antique place.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170395.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171679.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+This is an Engine Order Telegraph used in older marine vessels. Allowed the Captain remote communication with the ships engine room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170396.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171681.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Found above the door in the backseat of a 2011 Porsche Cayenne; What are the holes behind the small door used for?
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170397.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171682.jpg" style="width:100%"><br>
+<span style="font-size:4em">
+I drive a Volvo and these holes are for the cargo net (or a mesh fence thing meant for pets) and there are other actual hooks by the “oh sh#t” bar like your vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170398.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171683.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. This metal decorative floral piece, removable petals, 10” long, on a tabletop.
+Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170400.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171684.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. What’s this device mounted under my office desk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170401.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">15 Attention Seekers Sharing Their Lies Online </a><br>
-
-<span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168371.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Holy hell, this one might take the cake for the most depraved, and imaginative lie in this list. Bravo. No notes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168373.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168372.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168374.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sure thing bud, whatever you say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168375.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168376.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168367.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168370.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168377.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168378.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168379.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Is anyone believing this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168380.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">Monday Morning Randomness User Edition - Mizuka</a><br>
+## <a href="#linky16" id="linky15">Monday Morning Randomness User Edition - Mizuka</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032505/87173041/87146660.jpg" style="width:100%"><br>
 
@@ -1078,4 +988,94 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032658/87173060/87172663.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032720/87173062/87172679.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">29 People With Very Regrettable Tattoos </a><br>
+
+<span style="font-size:4em">1. What the hell was this guy thinking? We can tell you. He wasnt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Now this is going to look sick when he gets older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. What the hell am I looking at. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bravo sir, bravo. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This makes us feel something, were just not sure exactly what that something is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Its time to stop right there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This poor guy. Oh this poor, poor man. What the hell people? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The nipples are the cherry on the cake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Oh I bet you do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lmao, time to find a new artist. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Look what they did to my boy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">15 Attention Seekers Sharing Their Lies Online </a><br>
+
+<span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168371.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Holy hell, this one might take the cake for the most depraved, and imaginative lie in this list. Bravo. No notes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168373.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168372.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168374.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sure thing bud, whatever you say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168375.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168376.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168367.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168370.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168377.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168378.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168379.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Is anyone believing this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168380.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
 
