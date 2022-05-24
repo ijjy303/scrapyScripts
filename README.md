@@ -1,179 +1,91 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/24/2022-11:11:31
+Last updated: 05/24/2022-12:11:31
 <br>
-## <a href="#linky2" id="linky1">34 Kicka** Pics to Change Your Perspective </a><br>
+## <a href="#linky2" id="linky1">20 Bosses Who Are Hard to Get Along With</a><br>
 
-<span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “My husband was promoted to his former boss’ position, and the guy left his office like this for my husband to move into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174287.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Software updates for Boeing 747-400 are carried out via floppy disk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173819.png" style="width:100%"><br>
+<span style="font-size:4em">2. “Boss gave me the keys, none of which are labeled.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. 116 Year Old Bonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173820.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Boss told me I have to come into work because they need me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174286.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Tip jars at local coffee shop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173821.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “My boss’s ’inspirational’ quote on the wall...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174288.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. $625,000 2 bedroom, 1 bathroom house in Los Angeles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173822.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “A competing company is offering us 20% more to work for them. Management’s response:” The note says: “We cerealsly appreciate you! (milk is in the refrigerator)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174289.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. A horse-drawn bus from the 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173823.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “My calculator broke so my boss got me a new one. I’m a bookkeeper — for people, not ants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174290.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Billionaire Vijay Mallya’s Mansion Atop A Skyscraper In Bangalore, India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173824.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “This week, I was told I’d be getting something that I would love and would definitely make me happy. Here’s that something.” “Been practically killing myself at work since January 3 when they laid off the one person there to help me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174291.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Robe and Axe of Giovanni Bugatti, the official executioner for the Pope from 1796 to 1864. During his tenure he executed 514 people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173825.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “This is how my boss sends me art that he wants in a flyer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174292.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. This monument in Georgia named the Georgia Guidestones has instructions in 8 different languages on how to rebuild society after an apocalyptic event. It also functions as a calendar, clock and compass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173826.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Every weekend, my employer provides something in the break room for free to show employee appreciation. This weekend: unripe bananas!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Malcom MacDonald had his penis fall off due to a blood infection. Doctors graphed a new penis on his forearm to let it gain bloodflow. Due to a variety of factors, MacDonald had the grafted penis on his arm for 6 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173827.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Yes, that’s a metal prong in that electric socket. This is at my work, near the front of the store.” “I asked management if I could block it off, so no kids end up touching it, and they said no. Really hope no one ends up in the hospital because of this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The size of an eagle’s nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173828.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “2 weeks of telling my boss the produce in the warehouse is going bad — Him: ’Don’t worry about it.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. A Prehistoric Elasmotherium. Also know as a Siberian unicorn.extinct 39000 years ago</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173829.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My boss likes to hide behind notes instead of talking to us. Today we found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174296.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. This is Göbekli Tepe; a temple complex in Turkey built around 9500BC while Britain was still connected to Europe and humans hunted mammoths in Siberia.Pottery hadn’t been invented, animals hadn’t yet been domesticated, and yet they were quarrying and transporting 5 meter limestone columns to build megalithic temples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173830.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “The way I stacked pallets for maneuverability purposes vs how my boss thinks they should be to ’save space’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Human Hive in Hong Kong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173831.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “This is how my boss puts the vacuum away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174298.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “My dog chewed through his seal squeaky toy… and found a penguin squeaky toy hiding inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173833.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “My boss’s pen holder”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “My hometown (Sioux Falls, SD) has a stretch of road that is original cobblestone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173834.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I pranked my boss today about his terrible handwriting.” “I replaced all his pens with crayons and his paper with handwriting tablets for learning your ABCs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “The difference in appearance between a silver fork (left) and a stainless steel fork (right)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173835.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “This is my boss’s motorcycle. I jokingly asked him if he stole it off Batman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174301.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “How tiny this 1859 Danish West Indies 3 cent coin is in comparison to a U.S. penny. The United States purchased the islands (now known as The U.S. Virgin Islands) from Denmark in 1917.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173836.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Friendly work environment”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “A determined tulip growing through a bush.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173837.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “We have a squirrel in the ceiling at work, and my boss keeps leaving food and water out for it instead of trying to get it out.” “Guess who gets to clean its droppings every morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Almost-palm-sized strawberries!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173838.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Boss’s dog tried to eat my co-worker’s paycheck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174305.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “The perfectly square land plots of Oklahoma as viewed from 30k feet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173839.jpg" style="width:100%"><br>
+## <a href="#linky3" id="linky2">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
 
-<span style="font-size:4em">22. A very 80’s moto radio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173840.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. “I got 3, incredibly, shiny identical quarters as change.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173841.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. “Goldfish crackers included a sheet today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173842.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “Found a jack sparrow Spider-Man in a bag of legos.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173843.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. “One of my flowers is not like the others.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173844.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. “My snake shed its head separately from its body.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173845.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. “A full human nervous system in a anatomy museum in Baylor College of Medicine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173846.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. “This China set was made in occupied Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173847.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. “Not Chicken Nugget Ice Cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173848.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">31. “Unopened 23 year old box of “Millenios” Cheerios from y2k.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173849.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">32. “The blade in my protein mixer cup is a person lifting weights.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173850.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">33. “The design of this manhole cover separated the colors of the oily water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173851.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Wild Facts People Find Hard To Believe</a><br>
+<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created. - Regnes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167678.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Tarantulas keep tiny frogs as pets. - JimminyBean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167672.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world. - Handsprime
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167670.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms. - Strange-Listen8048</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167673.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep - Angry_Elk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167675.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket... he won the lottery again on camera - YeahYeahButNah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167674.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Dragonflies accelerate at up to 4G and corner at up to 9G - automatorsassemble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.) - thebyron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Michael Jacksons hair caught fire on 27 Jan 1984 which was the exact midpoint of his life. - Inquisitive_Muscrat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do - Punny-Aggron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. 1/6 of the world’s living languages are only spoken in New Guinea. - Mr_Taviro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else. - AnnigidWilliams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun. - SaturnRocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Every human could fit into a cubic mile. - Chalkyteton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War. - Bma1500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. 2/3 of Canada’s population lives south of Seattle. https://tobysimkin.com/49th-parallel/  - never_mind___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. 105 billion people have lived so far. 7.9 billion of us are currently alive. - Figurinitoutfornow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Oxford university is older than the Aztec empire. - didijxk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland - TrumpsNeckSmegma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. That dolphins can kill, rape, and injure people(and they have) it’s just hard to believe that an animal that looks innocent can kill you. - beatafurry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10. - TyroneMings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh. - dang_dude_dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun. - PretzylPower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A moose can dive underwater down to nearly twenty feet in search of food - ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass. - AJCLEG98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167694.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">23 Fresh Memes of the Dankest Kind</a><br>
-
-<span style="font-size:4em">1. This would break all the box offers records in a single weekend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Its simple as that. Im always hungry and my patience is nonexistent. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. It can end like this. I must. Hold. On. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173108.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. my left sock: *This is my moment* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. And hes doing an amazing job. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Hey, what gives? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The worst superhero of all time, Inflation Man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173113.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Dont you just love a warm rainy night? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173114.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Bro, we are trying to eat here, not uncover the great mysterious of the universe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173115.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. There is no winning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173116.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173117.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Hes looks great in both images honestly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173118.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Hey bro, you better waterfall that sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173119.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173120.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173121.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. Good thing he didnt try it with #2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173122.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173123.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173124.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">34 Things You Might Really Want to Own</a><br>
+## <a href="#linky4" id="linky3">34 Things You Might Really Want to Own</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
 
@@ -243,7 +155,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">28 People Who Clearly Missed the Joke</a><br>
+## <a href="#linky5" id="linky4">28 People Who Clearly Missed the Joke</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
 
@@ -301,7 +213,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Times Nature Was Downright Scary </a><br>
+## <a href="#linky6" id="linky5">25 Times Nature Was Downright Scary </a><br>
 
 <span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
 
@@ -353,7 +265,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+## <a href="#linky7" id="linky6">25 Totally Innocent Activities That Feel Super Creepy</a><br>
 
 <span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
@@ -406,7 +318,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">26 Dank Memes For Humor Enthusiasts </a><br>
+## <a href="#linky8" id="linky7">26 Dank Memes For Humor Enthusiasts </a><br>
 
 <span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
 
@@ -460,7 +372,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">22 Funny Fails By Spouses</a><br>
+## <a href="#linky9" id="linky8">22 Funny Fails By Spouses</a><br>
 
 <span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
 
@@ -506,7 +418,7 @@ Last updated: 05/24/2022-11:11:31
 
 <span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">The Most Unprofessional Things Doctors Have Ever Said</a><br>
+## <a href="#linky10" id="linky9">The Most Unprofessional Things Doctors Have Ever Said</a><br>
 
 <span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
 
@@ -574,7 +486,181 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">35 Interesting Charts About Food</a><br>
+## <a href="#linky11" id="linky10">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
+
+<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">23 Famous Places That You Shouldn't Visit</a><br>
+
+<span style="font-size:4em">1. “Platfotm 9¾ in Kings Cross station, London. Stupid metal statue on a straight wall, a horrible queue to taking a photo with you on it, and another hundred-meter long queue to the small and very expensive Harry Potter shop. I was there middle of the day in off-season, dont want to even think about it on high season.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174622.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Sherlock Holmes house on Baker street in London. Of course I love Sherlock Holmes, so as a tourist I took the tour. Not far into walking around the house it dawned upon me... this is a fake set of a fictional character. What am I doing here????”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174612.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Atlantic city. Monopoly got me good”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174613.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Plymouth rock Massachusetts. Despite all the rage its still just a rock in a cage”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174614.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Llanfair­pwllgwyngyll­gogery­chwyrn­drobwll­llan­tysilio­gogo­goch in Wales. Nothing there except an Edinburgh Wollen Mills shop. Which is just silly as Edinburgh is nearly 300 miles away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174615.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Hollywood, its seedy and disappointing. Its full of entire industries (*cough scientology *cough) that take advantage of starry-eyed twits.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174616.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “Lands End, UK. Heralded as the 4th most disappointing attraction in the UK. Its not even disappointing enough to win an award.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174617.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Hollywood Walk of Fame. Its a sidewalk and outside of maybe big events where they may clean the ones around where photos may be taken, it otherwise is just covered in dirt from peoples shoes and some are barely legible because they havent been cleaned in ages.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174618.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Time Square on New Years Eve. Just forget it. It has *never* been worth it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174621.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Egypt. Its like if phone scams were a materialized location. You get there and right away the airport is going to start scamming you, take your electronics away and tell you that you need permits for them (which they will gladly sell you, and then tell you that its the wrong one and have you buy another one), the hotel you stay at will check your bags again like the airport did and again tell you that you need permits or whatever random thing they decide they can get away telling you needs one. The police will extort money from you if they think they can. Fake police will come up to you and fine you or tell you to follow them to different sites where they will charge you. Children will run up to you and ask if you want to ride their camel very aggressively (they will cut you off with their camel and not let you move forward) tell you its free, and then try to charge you insane amounts of money and call their camel pimp over to deal with you if you dont pay. If you dont get on the camel they will often even get the camel to attack you. Its all pretty wild, its not worth it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174623.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “Native Buffalonian here. The Anchor Bar, the home of the original chicken wing, does not have the best wings in Buffalo. It’s a total tourist destination.” </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174624.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Camelot. It is a silly place.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174625.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Maybe less famous than the question meant, but about fifteen years ago my friends and I took a road trip to Centralia, Pennsylvania (the abandoned town with a decades-long mine fire burning under it that the Silent Hill movie was loosely based on). We thought there would be tons of abandoned buildings to look at, creepy places to see, adventure to be had- we were so excited, and we were like six or seven hours away so it sounded like a fun trip. We got there, and there was just... nothing. All of the buildings are gone, the creepiest thing we found was a very-well-taken-care-of cemetery, and the only really abandoned thing to see was the stretch of interstate that had been routed around (which had a little bit of fun graffiti on it back then, but in years since its become just a giant paint stain). We ended up driving to Gettysburg instead and going on some ghost tours, so it was still a fun trip, but there was like... nothing to see in Centralia, at all.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174626.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Checkpoint Charlie in Berlin. It used to be the border between the US and Soviet sectors, but all thats left of it is a shack and a sign, and the only thing you can do is pay to get your photo taken with someone in uniform. Theres a frickin McDonalds next to it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174627.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “While the Louvre is amazing and can consume entire days of walking, don’t bother fighting the crowds to see the Mona Lisa. It’s tiny and has a crowd of tourists dozens deep all taking pictures. “No flash photography” be damned, so all you see is flash reflecting off the protective glass. Also, rumor has it that the real Mona Lisa is in a basement and that the one you see is just a very convincing replica.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174628.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “You can see Mt Rushmore perfectly fine from the road... No need to pay to see it”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174629.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “The Liberty Bell. You can see it just fine from the sidewalk, and thats about as close as you would get to it inside too. No need to wait in line to see it. Plus, theres tons to do in Philly besides look at a bell.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174630.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Niagara falls is a really cool site but its not worth a trip if youre staying on the American side. The Canadian side is way better and has more things to do”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174631.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Dubai is a twisted parody of everything wrong with modern society and I judge anyone who goes there for their insta pics.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174632.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Nelson Mandelas house in Soweto South Africa”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174633.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Myrtle Beach, SC. Its the arm pit of South Carolina.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174634.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Miami Beach. It’s a parade of douchebags driving flashy cars (most likely rentals) and insanely overpriced restaurants and bars.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174635.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Venice during the season. Good god, the place is crushed with people. You can hardly move at certain times and you are always bumping into folks. Other places with the same problem during the season/summer. Yellowstone, Yosemite, Zion, and any Amusement Park.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174636.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">34 Kicka** Pics to Change Your Perspective </a><br>
+
+<span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Software updates for Boeing 747-400 are carried out via floppy disk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173819.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. 116 Year Old Bonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Tip jars at local coffee shop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. $625,000 2 bedroom, 1 bathroom house in Los Angeles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A horse-drawn bus from the 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Billionaire Vijay Mallya’s Mansion Atop A Skyscraper In Bangalore, India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Robe and Axe of Giovanni Bugatti, the official executioner for the Pope from 1796 to 1864. During his tenure he executed 514 people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This monument in Georgia named the Georgia Guidestones has instructions in 8 different languages on how to rebuild society after an apocalyptic event. It also functions as a calendar, clock and compass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Malcom MacDonald had his penis fall off due to a blood infection. Doctors graphed a new penis on his forearm to let it gain bloodflow. Due to a variety of factors, MacDonald had the grafted penis on his arm for 6 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The size of an eagle’s nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Prehistoric Elasmotherium. Also know as a Siberian unicorn.extinct 39000 years ago</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is Göbekli Tepe; a temple complex in Turkey built around 9500BC while Britain was still connected to Europe and humans hunted mammoths in Siberia.Pottery hadn’t been invented, animals hadn’t yet been domesticated, and yet they were quarrying and transporting 5 meter limestone columns to build megalithic temples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Human Hive in Hong Kong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My dog chewed through his seal squeaky toy… and found a penguin squeaky toy hiding inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My hometown (Sioux Falls, SD) has a stretch of road that is original cobblestone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “The difference in appearance between a silver fork (left) and a stainless steel fork (right)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “How tiny this 1859 Danish West Indies 3 cent coin is in comparison to a U.S. penny. The United States purchased the islands (now known as The U.S. Virgin Islands) from Denmark in 1917.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “A determined tulip growing through a bush.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Almost-palm-sized strawberries!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The perfectly square land plots of Oklahoma as viewed from 30k feet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A very 80’s moto radio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I got 3, incredibly, shiny identical quarters as change.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Goldfish crackers included a sheet today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Found a jack sparrow Spider-Man in a bag of legos.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “One of my flowers is not like the others.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “My snake shed its head separately from its body.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “A full human nervous system in a anatomy museum in Baylor College of Medicine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “This China set was made in occupied Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “Not Chicken Nugget Ice Cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “Unopened 23 year old box of “Millenios” Cheerios from y2k.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “The blade in my protein mixer cup is a person lifting weights.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “The design of this manhole cover separated the colors of the oily water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">35 Interesting Charts About Food</a><br>
 
 <span style="font-size:4em">1. How To Test If A Plant Is Edible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173308.jpg" style="width:100%"><br>
 
@@ -646,7 +732,7 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">35. Preserves Are Probably My Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173329.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">30 Things Professionals Wish Their Customers Knew</a><br>
+## <a href="#linky15" id="linky14">30 Things Professionals Wish Their Customers Knew</a><br>
 
 <span style="font-size:4em">1. Nuclear engineer here, and if you think radiation is the devil incarnate then buckle in for a quick second as I tell you that:1) No one from Fukushima died from radiation exposure. You saw pictures of the horrific devastation from the earthquake and tsunami. Flooding a nuclear plant doesnt topple buildings.2) Nuclear is one of the safest, renewable, and cleanest energy sources that exist. Second cleanest only to water (and air if you count that).3) Unless we start growing energy and picking it off the vine, oil and coal will run out in the very foreseeable future and nuclear is the way to go.4) You get more radiation from eating a banana than anyone ever did from 3 Mile Island. The most radiation I get everyday is from my morning fruit and I play with radioactive sources and crystals all day.5) Nuclear is actually really cool and by making it to the bottom of the list youre pretty cool too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168271.jpg" style="width:100%"><br>
 
@@ -708,39 +794,55 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">30. When your town spends money to fix the road down the street from you but not your road, its not out of spite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168297.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">15 Attention Seekers Sharing Their Lies Online </a><br>
+## <a href="#linky16" id="linky15">23 Fresh Memes of the Dankest Kind</a><br>
 
-<span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
+<span style="font-size:4em">1. This would break all the box offers records in a single weekend. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168371.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Holy hell, this one might take the cake for the most depraved, and imaginative lie in this list. Bravo. No notes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168373.png" style="width:100%"><br>
+<span style="font-size:4em">3. Its simple as that. Im always hungry and my patience is nonexistent. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168372.png" style="width:100%"><br>
+<span style="font-size:4em">4. It can end like this. I must. Hold. On. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168374.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173108.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Sure thing bud, whatever you say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168375.png" style="width:100%"><br>
+<span style="font-size:4em">6. my left sock: *This is my moment* </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168376.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168367.png" style="width:100%"><br>
+<span style="font-size:4em">8. And hes doing an amazing job. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168370.png" style="width:100%"><br>
+<span style="font-size:4em">9. Hey, what gives? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168377.png" style="width:100%"><br>
+<span style="font-size:4em">10. The worst superhero of all time, Inflation Man. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173113.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168378.png" style="width:100%"><br>
+<span style="font-size:4em">11. Dont you just love a warm rainy night? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173114.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168379.png" style="width:100%"><br>
+<span style="font-size:4em">12. Bro, we are trying to eat here, not uncover the great mysterious of the universe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Is anyone believing this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168380.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173115.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
+<span style="font-size:4em">14. There is no winning. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173116.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173117.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
+<span style="font-size:4em">16. Hes looks great in both images honestly. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Hey bro, you better waterfall that sh*t. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173120.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173121.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. Good thing he didnt try it with #2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173122.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173123.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173124.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
 
 <span style="font-size:4em">1. Cant imagine what his circle of friends looks like now.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042846/87173788/markhaynes2.jpg" style="width:100%"><br>
 
@@ -782,101 +884,57 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">20. My only retort to this garbage is, I hope he has a daughter and she marries a white dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013933/87173527/porn.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
+## <a href="#linky18" id="linky17">25 Wild Facts People Find Hard To Believe</a><br>
 
-<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created. - Regnes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167678.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Tarantulas keep tiny frogs as pets. - JimminyBean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167672.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If a billion people from both China and India didnt exist, they would still be the #1 and #2 most populated nations in the world. - Handsprime
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. That only 6 people have survived rabies. Rabies has a 99% Mortality rate. You can have rabies for an entire year without symptoms and once you have symptoms, its already late. Youll probably die in a couple of days if you have symptoms. - Strange-Listen8048</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167673.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. There is enough water in Lake Superior to cover north and South America in water one foot deep - Angry_Elk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167675.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. An Australian man won the lottery, then on camera to re enact the winning for the news he bought another ticket... he won the lottery again on camera - YeahYeahButNah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167674.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Dragonflies accelerate at up to 4G and corner at up to 9G - automatorsassemble</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167676.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. President Jimmy Carter rappelled into a nuclear reactor that was in partial meltdown to stop the meltdown and save Ottowa. (Before he became President, of course.) - thebyron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167677.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Michael Jacksons hair caught fire on 27 Jan 1984 which was the exact midpoint of his life. - Inquisitive_Muscrat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Very few mosquito species prefer human blood, but among those that do, only 5% are deadly to humans. Those 5% though, kill more people annually than humans do - Punny-Aggron</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167679.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. 1/6 of the world’s living languages are only spoken in New Guinea. - Mr_Taviro</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167680.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. In 1995, a man named MacArthur Wheeler robbed two banks at gunpoint, he was arrested mere hours later because he didnt wear a mask. instead, he decided to coat his face in lemon juice because he read that lemon juice can be used to make invisible ink. His logic, was that it would make his face invisible. And reportedly, he said to one of the tellers dont worry, I have a face, its just invisible. The only thing he did when he was arrested was sigh dejectedly and say but I wore the juice!. His case is actually still in academic journals regarding the fact that people with low intelligence do in fact believe that theyre smarter than everyone else. - AnnigidWilliams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167681.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. From the time it was discovered to the time it lost its status as a planet, Pluto made it less than a third of the way around the sun. - SaturnRocket</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167682.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Every human could fit into a cubic mile. - Chalkyteton</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167683.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. That a spy named Joan Pujol Garcia was awarded the highest honor of service from both the Allies and Axis in the Second World War. - Bma1500</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167684.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. 2/3 of Canada’s population lives south of Seattle. https://tobysimkin.com/49th-parallel/  - never_mind___</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167685.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. 105 billion people have lived so far. 7.9 billion of us are currently alive. - Figurinitoutfornow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Oxford university is older than the Aztec empire. - didijxk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167687.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. One of Joseph Stalins granddaughters is a hipster/punk lady who runs a record shop in Portland - TrumpsNeckSmegma</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167688.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. That dolphins can kill, rape, and injure people(and they have) it’s just hard to believe that an animal that looks innocent can kill you. - beatafurry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167689.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
+<span style="font-size:4em">21. There are more trees on Earth than stars in the Milky Way. Roughly by a factor of 10. - TyroneMings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167690.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Clouds weigh hundreds of thousands of pounds, full of water, effortlessly floating above our heads. No support, No structure, just weight, floating around above us and were like, yep totally believable, because theyre clouds, duh. - dang_dude_dont</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167691.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Lightning bolts can reach temperatures 5 times hotter than the surface of the sun. - PretzylPower</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167692.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. A moose can dive underwater down to nearly twenty feet in search of food - ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167693.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass. - AJCLEG98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167694.jpg" style="width:100%"><br>
 
