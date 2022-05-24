@@ -1,60 +1,47 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/24/2022-13:11:33
+Last updated: 05/24/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
+## <a href="#linky2" id="linky1">20 Bad Bosses Who Don’t Understand the Real World</a><br>
 
-<span style="font-size:4em">1. “I was working at a hospital as an Intern. There was a woman who had a brain Tumor a while a go. She got in for a check up, six months pregnant and having depression. The doctor thought he found a new Tumor so she had another brain operation. But there was no Tumor and they cut her head open for nothing. And after she woke up they didn’t tell her this, instead acted like they removed it successfully.” -123diesdas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174485.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “My husband was promoted to his former boss’ position, and the guy left his office like this for my husband to move into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174287.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Even if you walk away with nothing on Who Wants to Be a Millionaire, you still get money for doing the show. -ItsMeTK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174471.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Boss gave me the keys, none of which are labeled.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174304.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “I did amateur porn scenes at 17. They knew my age.” -TomRossTV</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174494.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “Boss told me I have to come into work because they need me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174286.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “I worked for Equifax about 20 years ago. We were doing things with your data we werent supposed to do. I know this is going to come as a great shock to a lot of people.” -Content-From-Reddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174472.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “My boss’s ’inspirational’ quote on the wall...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174288.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “When I worked for State IT, we werent supposed to provide details of what hardware was being used or operating systems. In the nineties, I took on an old server, souped it up, and put Linux on it to run our networks. This was pretty radical at the time because everyone else was using something proprietary (Like Netware) and I was able to deliver services for free (email and samba) they were paying out the nose for. The NDA wasnt about security. It was about keeping how much money they were wasting under wraps.” -jamessavik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174474.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. “A competing company is offering us 20% more to work for them. Management’s response:” The note says: “We cerealsly appreciate you! (milk is in the refrigerator)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174289.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “I worked for a company that did screenprinting and engraving, and one of their biggest clients was the US military. They bought EVERYTHING from China. They had a person who would cut out the Made in China tags, and replace them with Made in USA tags.” -GentleLotusStudio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174475.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “My calculator broke so my boss got me a new one. I’m a bookkeeper — for people, not ants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174290.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “Never open a document with DocuSign on your phone, we took every piece of data we could get our hands on.” -TransitionImportant2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174473.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “This week, I was told I’d be getting something that I would love and would definitely make me happy. Here’s that something.” “Been practically killing myself at work since January 3 when they laid off the one person there to help me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174291.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “I worked on the Walking Dead during college. I saw a ton of main and side characters die in my few seasons I worked on. They made us sign NDAs every day we worked on set.” -Hans_Neva_Loses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174476.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “This is how my boss sends me art that he wants in a flyer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174292.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “I did data entry for a lifestyle seminar company….names, email, home addresses, credit card numbers…All being handed by underpaid, over caffeinated college students…you do the math. -deleteduser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174482.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “Every weekend, my employer provides something in the break room for free to show employee appreciation. This weekend: unripe bananas!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174293.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “I worked for a company that audited medical bills and looked for stuff that wasnt charged. If you were not billed for something they would try to collect on it and get a share of that. If you were billed for something and should not have been, well sucks to be you, moving on, no refunds.” -DroneAttack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174477.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “Yes, that’s a metal prong in that electric socket. This is at my work, near the front of the store.” “I asked management if I could block it off, so no kids end up touching it, and they said no. Really hope no one ends up in the hospital because of this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174294.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “Western Africa was where all the major oil companies were looking to drill when fracking got priced out of the market. Because of the whole Pangea thing and that having been closer to the Permian basin once upon a time. Also: if you specify a ton of security measures for companies handling your data? You should surprise audit them. Make sure that the network is isolated the way you think it is, the passwords aren’t written on post it’s in the terminals, the cameras work, physical security isn’t compromised. You know, that you’re getting what you paid for.” -cobra_mist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174478.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “2 weeks of telling my boss the produce in the warehouse is going bad — Him: ’Don’t worry about it.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174295.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “Reggie Fils-Ame said the recent issues with contractors was not the culture at Nintendo when he worked there. He’s a liar. I worked there while he was the head of NoA, it absolutely was the culture there.” -HolidayHowlett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174479.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “My boss likes to hide behind notes instead of talking to us. Today we found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174296.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Someone on the TV show I worked on tried to poison the lead actress. They got fired but the police were never involved though they probably should have been.” -solojones1138</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174480.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “The way I stacked pallets for maneuverability purposes vs how my boss thinks they should be to ’save space’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174297.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Not quite an NDA but a contract of non-competition and we had to sign we wouldnt discuss the recipes with other restaurants. That being said.... Mayonnaise, so much God damn mayonnaise. Even in other kitchens Ive worked with; the amount of mayonnaise is unholy.” -Stevesegallbladder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174481.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “This is how my boss puts the vacuum away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174298.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “I knew about The Nintendo theme park at Universal Studios before it was announced. I also got to see a lot of the animatronics get created. My favorite was the Piranha Plant.” -pmcall221</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174483.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “My boss’s pen holder”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174299.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. “I worked for Lone Star in NZ years ago. We use water injected chicken. The Dixie chicken is simmered in 2 litres of cream.” -_The_Librarian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174484.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I pranked my boss today about his terrible handwriting.” “I replaced all his pens with crayons and his paper with handwriting tablets for learning your ABCs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174300.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. “A new company took over a contract I worked on and sent everyone an email on Monday morning saying we had until Friday to accept a 20% pay cut or Friday would be our last day. I was a team lead. I had been part of the committee that hired every person on my team. They asked if I was staying. I told them that I was but it was a big pay cut and I understood if they left and would be happy to write them a letter of recommendation.
-
-
-They all stayed. I was an under an NDA that precluded me from telling them that there were about 5 of us out of the 50 that all kept our previous pay rate. They obviously assumed that I was taking a pay cut with them by staying. Im pretty sure that NDA wouldnt hold up in court, but I didnt know that at the time. It felt sleazy as fuck to treat my guys that way.” - DorkHonor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174486.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “This is my boss’s motorcycle. I jokingly asked him if he stole it off Batman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174301.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Part of Amazons associate training is literally how to lie when asked certain questions, and there was a social part of the contract that discouraged speaking poorly about Amazon with friends and on social media.” -TwoTerabyte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174495.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Friendly work environment”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174302.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Marketing companies will hire Jr. people, give them amazing titles, and then charge the client outstanding fees per position and pay those people Jr. pay, pocketing everything as profit. The time they charge on estimates is double what it actually takes.” -shawnsblog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174487.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “We have a squirrel in the ceiling at work, and my boss keeps leaving food and water out for it instead of trying to get it out.” “Guess who gets to clean its droppings every morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174303.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Not an NDA but when you buy cosmetics and personal care items (lotions, makeup, perfumes, etc.) when they have call out ingredients it only has to be in the formula and greater than 0.1%. Made with coconut oil. Stuff like that. Its bullsh*t for sales.” -Lov3I5Treacherous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174488.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Reality shows are fake and staged with actors. Maybe obvious to most, but some still believe they are real.” (Auditioned for one a few years back.) -thekronicle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174489.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Basically all donations go to operating costs.” -nelsonalgrencametome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “That video game that was terrible on release? It was terrible in beta, and alpha, and we werent allowed to warn you.” - 0110bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “I worked for a bagel shop. The co-manager told me to, instead of throwing away the tubs of cream cheese that were about to expire, replace the expiration stickers.” -YourFatherHere1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Most marijuana growers, like some of the biggest companies in the world, mix their strains together regardless of policy/SOP because people are stupid and upper management doesnt give a sh*t. Stems, seeds, they dont give a flying f**k about what makes it to the end of the line. They only care about money, not product. Thats a you problem as the consumer” -D3ATH_Follows_All</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174493.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Boss’s dog tried to eat my co-worker’s paycheck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174305.png" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">23 Fresh Memes of the Dankest Kind</a><br>
 
@@ -104,63 +91,47 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87173124.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">28 People Who Clearly Missed the Joke</a><br>
+## <a href="#linky4" id="linky3">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
+<span style="font-size:4em">1. Cant imagine what his circle of friends looks like now.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042846/87173788/markhaynes2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
+<span style="font-size:4em">2. I dont even understand what he was going for with this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013804/87173511/asian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
+<span style="font-size:4em">3. Referring to yourself as Da Champ after giving the worst take possible is really some flat-out narcissistic sh*t to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043002/87173789/markhaynes3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
+<span style="font-size:4em">4. Im guessing they feel the exact same way about you, Mark.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013815/87173513/commercial.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
+<span style="font-size:4em">5. Who is this even for? Twitter? The internet in general? Leave it in the drafts bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013821/87173514/dad.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
+<span style="font-size:4em">6. Theres so much going on in this tweet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042717/87173787/markhaynes.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
+<span style="font-size:4em">7. Im at a loss for words.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013938/87173528/rape.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
+<span style="font-size:4em">8. This tweet alone should end this mans entire career. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043125/87173790/markhaynes4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
+<span style="font-size:4em">9. Again, Im very confused. Did he just make up a new racist stereotype? WTF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013837/87173517/drugs.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
+<span style="font-size:4em">10. When historians look back on the annals of the internet, this tweet is the one that totally encapsulates 2010 Twitter. Holy god.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043300/87173791/markhaynes5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
+<span style="font-size:4em">11. Was is really worth the 33 likes you got? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043509/87173792/markhaynes6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
+<span style="font-size:4em">12. Clearly he was TRYING to be funny but like all of his jokes, this one didnt land.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013853/87173520/indian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
+<span style="font-size:4em">13. Who even thinks about this kind of sh*t?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013859/87173521/ladygaga.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
+<span style="font-size:4em">14. Calling out one of the greatest rap artists to ever do it, and making fun of his sexuality (while also admitting that hes rich.) Make it make sense.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013905/87173522/lilwayne.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
+<span style="font-size:4em">15. Wow. Congratulations, Mark. Pwnd. I guess that makes me gay. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013910/87173523/mall.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
+<span style="font-size:4em">16. 60% of the time it works...every time. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013944/87173529/women.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
+<span style="font-size:4em">17. And the award for most the unfunny tweet in the history of Twitter goes to...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013916/87173524/mexican.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
+<span style="font-size:4em">18. This tweet got 1 like. Enough said.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013927/87173526/oprah.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
+<span style="font-size:4em">19. Is he just talking to himself? Again who is this tweet for? And why was it necessary?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013921/87173525/nba.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
+<span style="font-size:4em">20. My only retort to this garbage is, I hope he has a daughter and she marries a white dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013933/87173527/porn.jpg" style="width:100%"><br>
 
 ## <a href="#linky5" id="linky4">25 Times Nature Was Downright Scary </a><br>
 
@@ -214,117 +185,60 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
+## <a href="#linky6" id="linky5">25 Totally Innocent Activities That Feel Super Creepy</a><br>
 
-<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Needing to adjust my underwear whilst outside. -u/Kalurael</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173648.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Looking in the direction of sudden movement in the locker room. -u/thisbuttonsucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173649.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. My four-year-old daughter had an accident while on vacation so I went to Wal-Mart to buy underwear. While at Wal-Mart, my wife informed me that the margarita mix she bought did not include tequila. So I, a grown-a** man on his own, went through the checkout at Wal-Mart with nothing but a package of little girls underwear and a fifth of Juarez. I’m pretty sure I was also wearing a t-shirt that said “I’m fat. Let’s party” because Florida. -u/thunderbuns2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173650.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Walking behind someone for too long but I need to go that way so theres nothing I can do about it -u/Arny520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173651.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. I work for an animal hospital and any time my hand grazes a dog’s d*ck area while giving a bath I feel like Im going to jail. -u/partyshart420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173654.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Looking at people at the pool. -u/Just_a_tired_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173653.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. My hobbies are mountain biking and dirtbike riding and I haul everything in a white van. I’m a middle-aged white guy. The other day I had lunch under a tree at a playground while sitting in the van. Parents were giving me the stink eye and started herding up their kids. I was wondering what was going on, then I realized I was the creepy guy in a van. -u/the_irish_oak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173655.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Using my binoculars to watch birds. Also, using the camera to photograph birds. -u/1mamapajama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173656.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Trying to read a womans shirt. -u/lonewanderer45631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173657.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Looking at other people working out so I can take notes on posture and technics for lifting weights. Im fairly new to it all. -u/Kingsbear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173658.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I dont like people walking behind me so I generally let people walk ahead of me in the hall at work. I was asked by another male coworker who saw this if I was looking at womens butts and that is why I let people ahead of me. I told him no and that I just dont like people behind me. He looked at me weird. Its almost better to be thought of as a pervert to some people than to be kind of weird. -u/iamacannibal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173659.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. As a man, being friendly to children I don’t know who say hi to me in public. It’s always a super friendly kid who is saying hi to everyone that they pass but I always feel like I’m being judged for saying hi back to them or giving a smile and a wave. -u/Existing-Reaction-50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173660.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. When Im at the gym and Im kind of just zoned out between sets, and someone stands so that their a** is directly in my line of sight. -u/ElToberino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173661.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Being in the womens part of a clothing store specifically the underwear section. -u/Luxray2014</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173662.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Waiting for my kids to come out of a public restroom. -u/Siracha_jizz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173652.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Getting a random erection in public. -u/DirtJade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173663.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Eating a popsicle or lollipop in public. -u/DanAxe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173664.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Putting my finger in someones butthole. Every single time. Ill never get used to it. (I am an MD.) -u/Dysp-_-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Helping the lost kid as a man. If my daughter or wife is not with me, I am very hesitant to approach an upset or clearly lost child by myself. There is such a huge fear that someone will mistake me for a kidnapper. -u/Ark3nfel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. When you just got out of the gym and youre doing that heavy mouth breathing, and you happen to be waiting in line to buy something at the gas station. Im just trying to grab a Powerade lady, Im really out of breath, and Im not a pervert. Sorry. -u/pineappledaddy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173667.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Going upstairs behind a girl thats also going up and you have to look at her a**. -u/ashirwad778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173668.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Taking my daughter into the locker room at the YMCA. It’s a different vibe for people if you’re a man. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173669.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Taking pictures or recording anything. My other friends have no issue in this, but I feel like an absolute creep. Its not like Im taking pictures for, Personal interest, it just feels wrong to video or picture other people, even accidentally. -u/PhilosopherOfficer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173670.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">26 Dank Memes For Humor Enthusiasts </a><br>
-
-<span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I cant explain. You need to see it for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173198.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I need this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173199.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Send this to the nosy person in your group chat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173200.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Oh man we almost feel bad for this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173201.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sharks makes everything cooler, but talking sharks are undefeated. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173202.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. What a waste -  my fat a** </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173203.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173205.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. You know youre getting older when you use subtitles. Sorry we dont make the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173206.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173207.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ramasy from the top rope, what is that in his hands, a braised lamb? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173208.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. And down this way he have the department of proctology. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173210.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173211.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. hes got a point ya know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173212.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Okay, but what is this picture? What is it taken from? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173213.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Oh right, the mistake is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173214.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173215.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. And Im moving out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173216.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Whats your favorite club? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173217.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Who? Little old me? Oh, youre being too nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173218.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173219.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173220.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Now this is what we call a glow-up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173221.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173222.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. His wife is going to be so pissed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173223.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">22 Funny Fails By Spouses</a><br>
+## <a href="#linky7" id="linky6">22 Funny Fails By Spouses</a><br>
 
 <span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
 
@@ -370,7 +284,7 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">The Most Unprofessional Things Doctors Have Ever Said</a><br>
+## <a href="#linky8" id="linky7">The Most Unprofessional Things Doctors Have Ever Said</a><br>
 
 <span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
 
@@ -438,7 +352,7 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">34 Kicka** Pics to Change Your Perspective </a><br>
+## <a href="#linky9" id="linky8">34 Kicka** Pics to Change Your Perspective </a><br>
 
 <span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
 
@@ -508,114 +422,250 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">United Airlines Worker Gets Wrekt after Fight with Former NFL Player</a><br>
+## <a href="#linky10" id="linky9">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
 
-<span style="font-size:4em">1. The video jumps right in. A few words are exchanged and the gentleman in the hat makes first contact after a few missed punches. That man just happens to be former NFL player, Brendan Langley. In 2017 Langley was drafted by the Denver Broncos as a cornerback. So his job was literally hitting people as hard as he possibly could.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013742/87174786/dude.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “I was working at a hospital as an Intern. There was a woman who had a brain Tumor a while a go. She got in for a check up, six months pregnant and having depression. The doctor thought he found a new Tumor so she had another brain operation. But there was no Tumor and they cut her head open for nothing. And after she woke up they didn’t tell her this, instead acted like they removed it successfully.” -123diesdas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174485.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Heres the connection. Clearly these fellas dont give a sh*t about bystanders as this old woman is fighting for goddamn life.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013401/87174779/2.png" style="width:100%"><br>
+<span style="font-size:4em">2. Even if you walk away with nothing on Who Wants to Be a Millionaire, you still get money for doing the show. -ItsMeTK</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. But our friend in the United Airlines uniform isnt going down without a fight. Bold move of him to come back with a slap. Everyone knows the sequence of events is slap, punch, kick, kiss and make up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013423/87174781/3.png" style="width:100%"><br>
+<span style="font-size:4em">3. “I did amateur porn scenes at 17. They knew my age.” -TomRossTV</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174494.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Remember when I said Langley was a cornerback? Yeah, dont f**k with someone his size and expect not to get put flat on your a**.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013412/87174780/4.png" style="width:100%"><br>
+<span style="font-size:4em">4. “I worked for Equifax about 20 years ago. We were doing things with your data we werent supposed to do. I know this is going to come as a great shock to a lot of people.” -Content-From-Reddit</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. LMAO. This poor United worker came in for his usual shift, thinking nothing of note was going to happen. Welp, goodnight sweet prince. After getting socked in the face for a second time, our fearless warrior gets taken out by the baggage claim counter head over heels. He would eventually make it back to his feet. Hopefully now humbled by this disastrous showing in the boxing ring.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013434/87174782/5.png" style="width:100%"><br>
+<span style="font-size:4em">5. “When I worked for State IT, we werent supposed to provide details of what hardware was being used or operating systems. In the nineties, I took on an old server, souped it up, and put Linux on it to run our networks. This was pretty radical at the time because everyone else was using something proprietary (Like Netware) and I was able to deliver services for free (email and samba) they were paying out the nose for. The NDA wasnt about security. It was about keeping how much money they were wasting under wraps.” -jamessavik</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174474.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+<span style="font-size:4em">6. “I worked for a company that did screenprinting and engraving, and one of their biggest clients was the US military. They bought EVERYTHING from China. They had a person who would cut out the Made in China tags, and replace them with Made in USA tags.” -GentleLotusStudio</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. “Never open a document with DocuSign on your phone, we took every piece of data we could get our hands on.” -TransitionImportant2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Needing to adjust my underwear whilst outside. -u/Kalurael</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173648.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “I worked on the Walking Dead during college. I saw a ton of main and side characters die in my few seasons I worked on. They made us sign NDAs every day we worked on set.” -Hans_Neva_Loses</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Looking in the direction of sudden movement in the locker room. -u/thisbuttonsucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173649.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. “I did data entry for a lifestyle seminar company….names, email, home addresses, credit card numbers…All being handed by underpaid, over caffeinated college students…you do the math. -deleteduser</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174482.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. My four-year-old daughter had an accident while on vacation so I went to Wal-Mart to buy underwear. While at Wal-Mart, my wife informed me that the margarita mix she bought did not include tequila. So I, a grown-a** man on his own, went through the checkout at Wal-Mart with nothing but a package of little girls underwear and a fifth of Juarez. I’m pretty sure I was also wearing a t-shirt that said “I’m fat. Let’s party” because Florida. -u/thunderbuns2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173650.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. “I worked for a company that audited medical bills and looked for stuff that wasnt charged. If you were not billed for something they would try to collect on it and get a share of that. If you were billed for something and should not have been, well sucks to be you, moving on, no refunds.” -DroneAttack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Walking behind someone for too long but I need to go that way so theres nothing I can do about it -u/Arny520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173651.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. “Western Africa was where all the major oil companies were looking to drill when fracking got priced out of the market. Because of the whole Pangea thing and that having been closer to the Permian basin once upon a time. Also: if you specify a ton of security measures for companies handling your data? You should surprise audit them. Make sure that the network is isolated the way you think it is, the passwords aren’t written on post it’s in the terminals, the cameras work, physical security isn’t compromised. You know, that you’re getting what you paid for.” -cobra_mist</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. I work for an animal hospital and any time my hand grazes a dog’s d*ck area while giving a bath I feel like Im going to jail. -u/partyshart420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173654.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. “Reggie Fils-Ame said the recent issues with contractors was not the culture at Nintendo when he worked there. He’s a liar. I worked there while he was the head of NoA, it absolutely was the culture there.” -HolidayHowlett</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Looking at people at the pool. -u/Just_a_tired_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173653.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. “Someone on the TV show I worked on tried to poison the lead actress. They got fired but the police were never involved though they probably should have been.” -solojones1138</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. My hobbies are mountain biking and dirtbike riding and I haul everything in a white van. I’m a middle-aged white guy. The other day I had lunch under a tree at a playground while sitting in the van. Parents were giving me the stink eye and started herding up their kids. I was wondering what was going on, then I realized I was the creepy guy in a van. -u/the_irish_oak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173655.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. “Not quite an NDA but a contract of non-competition and we had to sign we wouldnt discuss the recipes with other restaurants. That being said.... Mayonnaise, so much God damn mayonnaise. Even in other kitchens Ive worked with; the amount of mayonnaise is unholy.” -Stevesegallbladder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174481.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Using my binoculars to watch birds. Also, using the camera to photograph birds. -u/1mamapajama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173656.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. “I knew about The Nintendo theme park at Universal Studios before it was announced. I also got to see a lot of the animatronics get created. My favorite was the Piranha Plant.” -pmcall221</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174483.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Trying to read a womans shirt. -u/lonewanderer45631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173657.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. “I worked for Lone Star in NZ years ago. We use water injected chicken. The Dixie chicken is simmered in 2 litres of cream.” -_The_Librarian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174484.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Looking at other people working out so I can take notes on posture and technics for lifting weights. Im fairly new to it all. -u/Kingsbear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173658.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. “A new company took over a contract I worked on and sent everyone an email on Monday morning saying we had until Friday to accept a 20% pay cut or Friday would be our last day. I was a team lead. I had been part of the committee that hired every person on my team. They asked if I was staying. I told them that I was but it was a big pay cut and I understood if they left and would be happy to write them a letter of recommendation.
+
+
+They all stayed. I was an under an NDA that precluded me from telling them that there were about 5 of us out of the 50 that all kept our previous pay rate. They obviously assumed that I was taking a pay cut with them by staying. Im pretty sure that NDA wouldnt hold up in court, but I didnt know that at the time. It felt sleazy as fuck to treat my guys that way.” - DorkHonor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174486.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. I dont like people walking behind me so I generally let people walk ahead of me in the hall at work. I was asked by another male coworker who saw this if I was looking at womens butts and that is why I let people ahead of me. I told him no and that I just dont like people behind me. He looked at me weird. Its almost better to be thought of as a pervert to some people than to be kind of weird. -u/iamacannibal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173659.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. “Part of Amazons associate training is literally how to lie when asked certain questions, and there was a social part of the contract that discouraged speaking poorly about Amazon with friends and on social media.” -TwoTerabyte</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174495.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. As a man, being friendly to children I don’t know who say hi to me in public. It’s always a super friendly kid who is saying hi to everyone that they pass but I always feel like I’m being judged for saying hi back to them or giving a smile and a wave. -u/Existing-Reaction-50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173660.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. “Marketing companies will hire Jr. people, give them amazing titles, and then charge the client outstanding fees per position and pay those people Jr. pay, pocketing everything as profit. The time they charge on estimates is double what it actually takes.” -shawnsblog</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174487.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. When Im at the gym and Im kind of just zoned out between sets, and someone stands so that their a** is directly in my line of sight. -u/ElToberino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173661.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Not an NDA but when you buy cosmetics and personal care items (lotions, makeup, perfumes, etc.) when they have call out ingredients it only has to be in the formula and greater than 0.1%. Made with coconut oil. Stuff like that. Its bullsh*t for sales.” -Lov3I5Treacherous</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174488.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Being in the womens part of a clothing store specifically the underwear section. -u/Luxray2014</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173662.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Reality shows are fake and staged with actors. Maybe obvious to most, but some still believe they are real.” (Auditioned for one a few years back.) -thekronicle</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174489.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Waiting for my kids to come out of a public restroom. -u/Siracha_jizz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173652.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. “Basically all donations go to operating costs.” -nelsonalgrencametome</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174490.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Getting a random erection in public. -u/DirtJade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173663.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23. “That video game that was terrible on release? It was terrible in beta, and alpha, and we werent allowed to warn you.” - 0110bot</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174491.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Eating a popsicle or lollipop in public. -u/DanAxe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173664.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. “I worked for a bagel shop. The co-manager told me to, instead of throwing away the tubs of cream cheese that were about to expire, replace the expiration stickers.” -YourFatherHere1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174492.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Putting my finger in someones butthole. Every single time. Ill never get used to it. (I am an MD.) -u/Dysp-_-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173665.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “Most marijuana growers, like some of the biggest companies in the world, mix their strains together regardless of policy/SOP because people are stupid and upper management doesnt give a sh*t. Stems, seeds, they dont give a flying f**k about what makes it to the end of the line. They only care about money, not product. Thats a you problem as the consumer” -D3ATH_Follows_All</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174493.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Helping the lost kid as a man. If my daughter or wife is not with me, I am very hesitant to approach an upset or clearly lost child by myself. There is such a huge fear that someone will mistake me for a kidnapper. -u/Ark3nfel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173666.jpg" style="width:100%"><br>
+## <a href="#linky11" id="linky10">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
-<span style="font-size:4em">21. When you just got out of the gym and youre doing that heavy mouth breathing, and you happen to be waiting in line to buy something at the gas station. Im just trying to grab a Powerade lady, Im really out of breath, and Im not a pervert. Sorry. -u/pineappledaddy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173667.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173588.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Going upstairs behind a girl thats also going up and you have to look at her a**. -u/ashirwad778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173668.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173589.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Taking my daughter into the locker room at the YMCA. It’s a different vibe for people if you’re a man. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173669.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173590.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Taking pictures or recording anything. My other friends have no issue in this, but I feel like an absolute creep. Its not like Im taking pictures for, Personal interest, it just feels wrong to video or picture other people, even accidentally. -u/PhilosopherOfficer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173670.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173591.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173593.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173594.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173595.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173598.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173599.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173600.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173601.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173602.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173603.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173604.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173605.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173608.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173609.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173610.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173612.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173615.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173616.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173617.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173618.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173619.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173621.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013936/87174787/87082727.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Wild Facts People Find Hard To Believe</a><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013940/87174788/87082733.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013947/87174789/87082728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013951/87174790/87082735.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013958/87174791/87082736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014003/87174792/87082741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014009/87174793/87082742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014014/87174794/87082746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014020/87174795/87082749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014025/87174796/87082752.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014031/87174797/87088053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014037/87174798/87088055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014042/87174799/87088056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014048/87174800/87088058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014053/87174801/87088064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014059/87174802/87088070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014104/87174803/87088071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014110/87174804/87088076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014115/87174805/87088079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014122/87174806/87088086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014127/87174807/87093736.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014133/87174808/87093739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014137/87174809/87094919.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014144/87174810/87094920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014149/87174811/87094922.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014156/87174812/87094946.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014201/87174813/87096920.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014207/87174814/87096928.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014212/87174815/87096948.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014218/87174816/87096953.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014223/87174817/87099766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">35 Interesting Charts About Food</a><br>
+
+<span style="font-size:4em">1. How To Test If A Plant Is Edible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173308.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. How Old Are Your Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The Ultimate Banana Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Know Your Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173298.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This Is How To Measure Rice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The Life Cycle Of A Strawberry Is Neat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173301.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. All The Ways To Screw Up A Chocolate Chip Cookie...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The Only Wine Chart Youll Ever Need</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Evolution Of Pepsi Bottles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Was Just Finding Information On When To Harvest My Peppers And Found This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173305.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Nestlé Wont Be Leaving Russia. Heres A Guide To The Product Brands That Nestlé Owns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173306.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Not A Healthy Snack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Can My Dog Eat This?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173307.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Common Foods Before Humans Domesticated Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173296.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Apples On A Scale From Most Tart To Most Sweet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173309.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How To Open A Lime!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173310.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. British & American Words</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173311.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Types Of Sandwiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173312.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A Cheese Melting Guide!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173313.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Percentage Of Air In Chip Bags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173314.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Vertical Foods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Birdy Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. At A Burger Joint In My Town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Macaroon Or Macaron?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173318.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Donut & Wine Pairings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Brownies-How To Mix Them Up!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Onion Use Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. A Quick Guide To Tea!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. How To Pick The Right Watermelon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Spice Combos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173324.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Cold Cut Guide I Saw At The Deli Section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173325.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. You Want Lots Of Potatoes? This Is How You Get Loads Of Potatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173326.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Tuna Sushi And Sashimi Cut Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. Yogurts Of The World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. Preserves Are Probably My Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173329.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">25 Wild Facts People Find Hard To Believe</a><br>
 
 <span style="font-size:4em">1. The Australian Funnel Web Spider is often regarded as the worlds deadliest and hasnt had a confirmed kill in over 40 years since the antivenom was created. - Regnes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167678.jpg" style="width:100%"><br>
 
@@ -668,6 +718,48 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 <span style="font-size:4em">24. A moose can dive underwater down to nearly twenty feet in search of food - ofsquire</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167693.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. Dinosaurs are older than grass. Every artist rendition youve seen of them roaming fields is wrong. Most ground level plants were ferns or flowering bushes, not grass. - AJCLEG98</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167694.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">20 Actors Today versus Their Iconic ‘80s Roles</a><br>
+
+<span style="font-size:4em">1. Jennifer Grey.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111128/87173391/jen.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Kevin Bacon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Matthew Broderick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Matt Dillon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Judge Reinhold.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Cyndi Lauper.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Molly Ringwald.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111139/87173392/molly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Kim Basinger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Rob Lowe.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Val Kilmer.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Kelly McGillis.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/111719/87173424/kelly.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Josh Brolin.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Alan Ruck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Anthony Michael Hall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Geena Davis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chuck Norris.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Bill Murray.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Drew Barrymore.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Ralph Macchio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Tom Cruise.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173081.jpg" style="width:100%"><br>
 
 ## <a href="#linky15" id="linky14">34 Things You Might Really Want to Own</a><br>
 
@@ -739,117 +831,115 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">We Have Mark Haynes’ Tweets, and Yeah...They’re Really Bad</a><br>
+## <a href="#linky16" id="linky15">28 People Who Clearly Missed the Joke</a><br>
 
-<span style="font-size:4em">1. Cant imagine what his circle of friends looks like now.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042846/87173788/markhaynes2.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. I dont even understand what he was going for with this one.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013804/87173511/asian.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Referring to yourself as Da Champ after giving the worst take possible is really some flat-out narcissistic sh*t to see.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043002/87173789/markhaynes3.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Im guessing they feel the exact same way about you, Mark.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013815/87173513/commercial.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Who is this even for? Twitter? The internet in general? Leave it in the drafts bro.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013821/87173514/dad.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Theres so much going on in this tweet.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/042717/87173787/markhaynes.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Im at a loss for words.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013938/87173528/rape.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. This tweet alone should end this mans entire career. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043125/87173790/markhaynes4.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Again, Im very confused. Did he just make up a new racist stereotype? WTF.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013837/87173517/drugs.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. When historians look back on the annals of the internet, this tweet is the one that totally encapsulates 2010 Twitter. Holy god.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043300/87173791/markhaynes5.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Was is really worth the 33 likes you got? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/043509/87173792/markhaynes6.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Clearly he was TRYING to be funny but like all of his jokes, this one didnt land.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013853/87173520/indian.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Who even thinks about this kind of sh*t?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013859/87173521/ladygaga.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Calling out one of the greatest rap artists to ever do it, and making fun of his sexuality (while also admitting that hes rich.) Make it make sense.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013905/87173522/lilwayne.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Wow. Congratulations, Mark. Pwnd. I guess that makes me gay. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013910/87173523/mall.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. 60% of the time it works...every time. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013944/87173529/women.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. And the award for most the unfunny tweet in the history of Twitter goes to...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013916/87173524/mexican.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. This tweet got 1 like. Enough said.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013927/87173526/oprah.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Is he just talking to himself? Again who is this tweet for? And why was it necessary?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013921/87173525/nba.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. My only retort to this garbage is, I hope he has a daughter and she marries a white dude.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/013933/87173527/porn.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">35 Interesting Charts About Food</a><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. How To Test If A Plant Is Edible</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173308.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. How Old Are Your Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173299.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. The Ultimate Banana Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173297.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Know Your Coffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173298.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. This Is How To Measure Rice</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173300.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. The Life Cycle Of A Strawberry Is Neat</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173301.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. All The Ways To Screw Up A Chocolate Chip Cookie...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173302.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. The Only Wine Chart Youll Ever Need</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173303.jpg" style="width:100%"><br>
+## <a href="#linky17" id="linky16">26 Dank Memes For Humor Enthusiasts </a><br>
 
-<span style="font-size:4em">9. Evolution Of Pepsi Bottles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173304.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Was Just Finding Information On When To Harvest My Peppers And Found This</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173305.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. I cant explain. You need to see it for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173198.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Nestlé Wont Be Leaving Russia. Heres A Guide To The Product Brands That Nestlé Owns.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173306.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. I need this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173199.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Not A Healthy Snack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173295.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Send this to the nosy person in your group chat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173200.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Can My Dog Eat This?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173307.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Oh man we almost feel bad for this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173201.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Common Foods Before Humans Domesticated Them</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173296.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Sharks makes everything cooler, but talking sharks are undefeated. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173202.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Apples On A Scale From Most Tart To Most Sweet</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173309.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. What a waste -  my fat a** </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173203.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">16. How To Open A Lime!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173310.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173205.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">17. British & American Words</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173311.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. You know youre getting older when you use subtitles. Sorry we dont make the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173206.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Types Of Sandwiches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173312.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173207.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">19. A Cheese Melting Guide!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173313.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Ramasy from the top rope, what is that in his hands, a braised lamb? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173208.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Percentage Of Air In Chip Bags</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173314.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. And down this way he have the department of proctology. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173210.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Vertical Foods</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173315.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173211.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Birdy Eggs</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173316.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. hes got a point ya know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173212.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">23. At A Burger Joint In My Town</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173317.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Okay, but what is this picture? What is it taken from? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173213.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Macaroon Or Macaron?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173318.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Oh right, the mistake is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173214.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Donut & Wine Pairings</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173319.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173215.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">26. Brownies-How To Mix Them Up!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173320.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. And Im moving out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173216.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">27. Onion Use Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173321.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Whats your favorite club? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173217.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">28. A Quick Guide To Tea!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173322.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Who? Little old me? Oh, youre being too nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173218.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">29. How To Pick The Right Watermelon</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173323.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173219.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">30. Spice Combos</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173324.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173220.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">31. Cold Cut Guide I Saw At The Deli Section</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173325.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. Now this is what we call a glow-up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173221.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">32. You Want Lots Of Potatoes? This Is How You Get Loads Of Potatoes</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173326.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173222.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">33. Tuna Sushi And Sashimi Cut Guide</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173327.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. His wife is going to be so pissed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173223.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">34. Yogurts Of The World</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. Preserves Are Probably My Favorite</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173329.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
 
