@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/24/2022-03:11:31
+Last updated: 05/24/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">25 Times Nature Was Downright Scary </a><br>
 
@@ -639,7 +639,141 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">48 Pics That Are Oddly Specific</a><br>
+## <a href="#linky13" id="linky12">44 Interesting Images and Random Pics to Enjoy</a><br>
+
+<span style="font-size:4em">1. The perfect wedding cake doesnt exis...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124842/87171978/87169879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I think your cat is a deer bro.. either that or hes horny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Our Sun really is a fascinating thing.  All that heat, all that energy could just evaporate us all in an instant... without warning.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124715/87171963/87169103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Imagine coming home a little drunk and seeing this.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124905/87171982/87169890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. What up pizza head?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124749/87171969/87169853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Well, just in case you werent sure, heres directions.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124830/87171976/87169872.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Your scientists were so preoccupied with whether or not they could, they didnt stop to think if they should.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124756/87171970/87169855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124653/87171961/87169102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124704/87171962/87169080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124723/87171964/87169093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124726/87171965/87169105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124735/87171966/87169108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124737/87171967/87169843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124745/87171968/87169846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124800/87171971/87169857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124807/87171972/87169859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124811/87171973/87169864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124818/87171974/87169866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124822/87171975/87169870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124834/87171977/87169876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124846/87171979/87169880.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124853/87171980/87169883.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124858/87171981/87169887.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">21 Fascinating Pics From Way Back When </a><br>
+
+<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">48 Pics That Are Oddly Specific</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171108.png" style="width:100%"><br>
 
@@ -736,108 +870,6 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 <span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171114.png" style="width:100%"><br>
 
 <span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171115.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">29 People With Very Regrettable Tattoos </a><br>
-
-<span style="font-size:4em">1. What the hell was this guy thinking? We can tell you. He wasnt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Now this is going to look sick when he gets older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. What the hell am I looking at. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Bravo sir, bravo. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. This makes us feel something, were just not sure exactly what that something is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Its time to stop right there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. This poor guy. Oh this poor, poor man. What the hell people? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The nipples are the cherry on the cake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Oh I bet you do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Lmao, time to find a new artist. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Look what they did to my boy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">21 Fascinating Pics From Way Back When </a><br>
-
-<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
 
 ## <a href="#linky16" id="linky15">Monday Morning Randomness User Edition - Mizuka</a><br>
 
@@ -957,7 +989,65 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032720/87173062/87172679.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">15 Attention Seekers Sharing Their Lies Online </a><br>
+## <a href="#linky17" id="linky16">29 People With Very Regrettable Tattoos </a><br>
+
+<span style="font-size:4em">1. What the hell was this guy thinking? We can tell you. He wasnt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Now this is going to look sick when he gets older. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. What the hell am I looking at. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Bravo sir, bravo. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. This makes us feel something, were just not sure exactly what that something is. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Its time to stop right there. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. This poor guy. Oh this poor, poor man. What the hell people? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The nipples are the cherry on the cake. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Oh I bet you do. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Lmao, time to find a new artist. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Look what they did to my boy. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">15 Attention Seekers Sharing Their Lies Online </a><br>
 
 <span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
 
@@ -988,94 +1078,4 @@ Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/6040
 <span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
 
 <span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">44 Interesting Images and Random Pics to Enjoy</a><br>
-
-<span style="font-size:4em">1. The perfect wedding cake doesnt exis...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124842/87171978/87169879.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I think your cat is a deer bro.. either that or hes horny.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Our Sun really is a fascinating thing.  All that heat, all that energy could just evaporate us all in an instant... without warning.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124715/87171963/87169103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Imagine coming home a little drunk and seeing this.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124905/87171982/87169890.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. What up pizza head?</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124749/87171969/87169853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Well, just in case you werent sure, heres directions.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124830/87171976/87169872.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Your scientists were so preoccupied with whether or not they could, they didnt stop to think if they should.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124756/87171970/87169855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124653/87171961/87169102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124704/87171962/87169080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124723/87171964/87169093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124726/87171965/87169105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124735/87171966/87169108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124737/87171967/87169843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124745/87171968/87169846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/202553/87170784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124800/87171971/87169857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124807/87171972/87169859.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124811/87171973/87169864.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124818/87171974/87169866.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124822/87171975/87169870.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124834/87171977/87169876.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124846/87171979/87169880.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124853/87171980/87169883.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124858/87171981/87169887.jpg" style="width:100%"><br>
 
