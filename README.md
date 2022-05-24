@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/24/2022-00:11:32
+Last updated: 05/24/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">25 Times Nature Was Downright Scary </a><br>
 
@@ -53,161 +53,7 @@ Last updated: 05/24/2022-00:11:32
 
 <span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">48 Pics That Are Oddly Specific</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171108.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171084.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171068.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171069.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171070.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171071.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171075.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171074.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171066.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171067.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171076.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171077.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171078.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171079.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171080.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171081.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171082.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171083.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171085.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171086.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171087.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171088.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171089.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171090.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171091.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171092.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171093.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171094.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171095.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171096.png" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171097.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171098.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171099.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171100.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171101.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171102.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171103.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171104.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171105.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171106.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171107.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171109.png" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171110.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171111.png" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171112.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171113.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171114.png" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171115.png" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
-
-<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">44 Interesting Images and Random Pics to Enjoy</a><br>
+## <a href="#linky3" id="linky2">44 Interesting Images and Random Pics to Enjoy</a><br>
 
 <span style="font-size:4em">1. The perfect wedding cake doesnt exis...</span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124842/87171978/87169879.jpg" style="width:100%"><br>
 
@@ -296,6 +142,144 @@ Last updated: 05/24/2022-00:11:32
 <span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124853/87171980/87169883.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/20/124858/87171981/87169887.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Odd Items With Simple Explanations</a><br>
+
+<span style="font-size:4em">1. Found this behind a commercial freezer while doing renovations. Plastic casing, plastic-looking balls, metal shroud, about 1.5 inches in length. Wall anchor? Cyanide capsule?
+Pretty sure this is a scent/pheromone capsule for a moth glue trap
+
+ </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+100% this is the answer as a former pest control technician I have handled many of these. They are usually stuck into a glue trap to get them to fly in there and get stuck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Why do these window grills have a bulge? Seen in Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+They’re called “belly bars” in a lot of places. They’re designed for flower boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. From the antique store “junk drawer” it came in a small tin with a slip of paper that says “German Inventors Fair 1953” “Patent Applied For” “Manfred Frommberger, Nurnberg Germany”
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Could totally be wrong here, but based on the name and shape I’d guess it’s for having a resealable tap for canned goods.
+
+ </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Seconded. There used to be small cans of ‘Kondensmilch’ (evaporated milk) from companies like ‘Glücksklee’. You stabbed a hole (or better two holes) into the top to pour (or better drip – people used it carefully) the milk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Is this a shock collar? My dog was wearing it after coming home from boarding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Yes it is a bark collar, also formerly known as a shock collar. I say formerly because they now come with vibration. The rubber tips on the collar indicate they are not using the electric shock feature. Instead if the dog barks it vibrates, scaring the dog not to bark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Black and yellow, large bomb-shaped item, found 30 mins outside Halifax, N.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+Don’t think it’s a bomb, it looks more like fishing net floaters used to keep huge fishing from dragging on the floor. (they’re usually at the bottom of the net to keep the net straight and not tangle up while the net is being dragged)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Large chunk of (metal?) Weighs quite a bit in your hand and hasn’t changed in color in decades.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+The circled m logo is the logo of the réunion des musées nationaux, the French public museums. Probably a copy of a cuneiform tablet available as a souvenir at the Louvre, among other museums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I’ve seen this cane-shaped (usually) brass post at numerous bars and pubs and wondered what it is and what it is used for. l have been unable to Google the correct sequence of words to get a result.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+A “divider” or “service divider”. It serves to keep standing customers to one side, away from the part of the bar where servers pick up drinks. Also notice the opening under the bar, the bartender (in some designs) can lift the top and gets in and out. You don’t want customers standing there blocking access.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. On the Bed in my Hotel. Doesn’t Open or Anything. W Melbourne, Australia.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Hi OP, this piece is a nod at Ned Kelly’s helmet where the slit in the first picture is where the eyes would be. It’s been reimagined as a “playful leather and faux fur fascinator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Pulled the plug  Magnet from my transmission pan covered it what looks like tiny (1/64” or .3mm) balls. What’s in the picture is about 1% of what was in the pan, but had to clean through the slush. Ideas? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+
+That might be casting material that was attached to the casting and is now releasing. Another possibility is steel shot peen, used in a process to finish metal parts to prevent fatigue and stress corrosion failures and prolong product life for the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. What is this thing? The circular thing on a post in an antique place.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+This is an Engine Order Telegraph used in older marine vessels. Allowed the Captain remote communication with the ships engine room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Found above the door in the backseat of a 2011 Porsche Cayenne; What are the holes behind the small door used for?
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I drive a Volvo and these holes are for the cargo net (or a mesh fence thing meant for pets) and there are other actual hooks by the “oh sh#t” bar like your vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This metal decorative floral piece, removable petals, 10” long, on a tabletop.
+Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. What’s this device mounted under my office desk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170401.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">27 Brand Fails and Disasters That Tarnished Their Image</a><br>
+
+<span style="font-size:4em">1. In 2016, KFC found themselves receiving a lot of backlash after publishing this image that stated Something hot and spicy is coming soon.” Clearly, they posted the image to get people talking, which it did because the post went viral. The post was only up for an hour before they removed it as the comments stated that the image was inappropriate and misogynistic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172725.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Dominos faced backlash after their employees filmed and uploaded a series of videos with them shoving cheese up their nose and wiping their body with cloth meant for cleaning. After it went up on YouTube, millions of people watched it which resulted in the CEO seeing it as well. The employees ended up getting fired and charged with felonies for food contamination.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172717.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. P&G received a lot of backlash after their Mothers Day ad that incorporated a woman cleaning and the slogan stating This Mothers Day, get back to the job that really matters.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172708.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Dominos advertised a campaign stating Calling all nice Karens. This campaign allowed women named Karen to receive a free pizza if they were a pleasant customer. The problem with this campaign was that it received a lot of complaints and ended up getting pulled.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172723.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In 2017, a passenger was dragged across the aisle of a United Airlines flight. The cause of this was the flight was overbooked and when no one voluntarily chose to leave, they randomly selected someone to give up their seat. The passenger refused to leave and security was called. They forcefully grabbed the passenger and dragged them off the plane. This left the remaining passengers disgusted and they tweeted about the incident which led to United Airlines having to make a public apology and compensate the passenger.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172704.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Lipton tea created a buy one, get one free deal. The problem with this deal is that every box had a free coupon which created a loophole where customers could get an endless supply of tea.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172705.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A fat-free version of Pringles was produced and was successful until customers reported stomach cramps. This was because the ingredient used as a fat substitute actually had a laxative effect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172706.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Bacardi received a lot of backlash for their slogan stating: Want to look better this summer? Get your hands on the hotness-boosting accessory now: An ugly girlfriend!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172707.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. In 2019, Burberry found themselves facing controversy after their fashion show featured a hoodie with a noose attached to the hood. A model that walked in the show called out the brand on social media stating that [taking your own life] is not fashion. After receiving a lot of criticism online, they responded by writing a public apology stating that the item was insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172709.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. The mortgage company better.com organized a Zoom meeting with 900 of their employees. The CEO announced that those 900 employees were all being terminated, stating that if youre on this call, youre part of the unlucky group that has been laid off. The footage of the meeting was posted online which showed employees crying and being shocked by the announcement. The CEO received so much backlash that he had to take time off to reflect.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172710.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. In 2020, Singapore Airlines launched a campaign called Flight To Nowhere. They planned to do three-hour-long flights where passengers could enjoy a meal in the sky with a view. This received a lot of backlash from environmentalists as the flights had no purpose for travel. Singapore Airlines responded by changing the campaign to dining in a plane parked on the tarmac.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172711.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Dolce and Gabbana found themselves receiving a lot of backlash after creating a shoe that stated thin is gorgeous’. This angered a lot of fans who tweeted that it wasnt a responsible message and it didnt support inclusivity of all body types. The brand showed no remorse by responding: Next time, well write love to be fat and full of cholesterol.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172712.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Victorias Secret uploaded a photo on their Instagram where their model was missing an arm. When their followers started calling them out on their Photoshop, they quickly deleted the post.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172713.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 2016, Samsung had to stop all sales of the Galaxy Note 7 after customers reported that their phones were overheating and catching on fire. Samsung reacted by sending out multi-layered fireproof boxes with packing instructions.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172714.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 2013, EHRs conducted a random food test on IKEA Swedish meatballs and found traces of horsemeat. This was reported back to IKEA and they reacted by doing a mass recall. The horsemeat scandal had massive repercussions as a lot of customers were hesitant to eat at IKEA after that.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172715.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. TRESemme received backlash after creating a campaign that featured different hair types with titles at the bottom labeled frizzy and dull and dry and damaged where the two photos of the blonde hair are labeled normal hair and find them flat. The advertisement ended up getting cut as many people were outraged and labeled TRESemme racist and extremely insensitive.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172716.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. US Airways found themselves in controversy after tweeting a p**nographic image to a complaining customer by accident. The photo was up for an hour before they removed it. They ended up having to make a public apology and stated that they would investigate the issue.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172718.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In 2017, Kendall and Kylie Jenner tried to sell T-shirts featuring deceased rappers and Ozzy Osbourne. They were called out on Twitter for being disrespectful and trying to profit off of using the icons. The T-shirts ended up getting pulled and Kendall Jenner responded by stating that the designs were not well thought out and apologized.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172719.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Gucci found themselves in controversy after designing a jumper that got criticized for resembling blackface. The piece retailed for $890 and was part of their autumn/winter collection. Gucci responded by removing the piece from their collection and apologizing stating that they are committed to increasing diversity.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172720.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Burger King produced a meatless burger in 2019 called the Impossible Whopper. They marketed the burger to be an alternative option for vegans and vegetarians. The problem with the burger was that it was cooked on the same grill as the meat patties which removed the option for vegetarians and vegans to even eat the burger. But some customers did eat them without knowing, which resulted in Burger King being sued for misleading their customers.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172721.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Dolce and Gabbana launched three short videos on social media to promote a runway show they were having in Shanghai. The video incorporated a Chinese woman trying to eat Italian dishes with chopsticks while a voiceover tried to teach her how to eat. This received a lot of backlash for being racist, and the video ended up getting taken down within 24 hours. The drama wasnt over yet though, as Stefano Gabbana got exposed for calling China a country of ‘five poo emojis’. Gabbana claims that his account was hacked and they both ended up having to make a public apology.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172722.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. ColourPop received backlash after the release of their sculpting sticks. The cause of the backlash was the names given to the three darkest shades. The names were titled Yikes, Typo and Doom. This offended a lot of ColourPops customers and they deemed ColourPop to be racist. ColourPop reacted by apologizing and changing all of the names.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172724.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Frito-Lay produced a lip balm in 2005 that was entirely Cheetos scented. The problem with this lip balm was that barely anyone bought it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172726.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. In an ad for the margarine brand Flora, a photo of a heart and a statement Uh, dad, Im gay was used. This received a lot of criticism for being homophobic.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172727.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. In 2013, Burger Kings Twitter account got hacked. A hacker decided to change the Burger King logo to the McDonalds logo. They also tweeted out racial slurs and lies about the company. One of the tweets stated that Burger King had been sold to McDonalds. Another tweet stated If I catch you at Wendys, were fighting! Burger King responded by asking Twitter to suspend their account and making a public apology on their Facebook page.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172728.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Safety Warehouse advertised a PR event where they promised to do a cash drop of $100,000. More than 1,000 people went to the event expecting to collect the money, but instead collected retail vouchers that looked like $5 notes. This left people outraged as they reported being trampled on and spending a lot of money to even get to the event.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172729.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Jensen Karp, a comedian, claimed that he found sugar-coated shrimp tails in his box of Cinnamon Toast Crunch. The tweet ended up going viral and a spokesperson for the company stated that they would start investigating the issue. After the investigation, they claimed that the shrimp tails were actually cinnamon and sugar clumped together. Jensen Karp ended up tweeting that he felt gaslighted by their investigation. The company then offered to send out an envelope to return the alleged shrimp tails for forensic investigation. He then went on to tweet that the cereal box had already been opened and it was taped down the bottom which led Cinnamon Toast Crunch to conclude that the box had been tampered with.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172730.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">25 Wild Facts People Find Hard To Believe</a><br>
 
@@ -683,51 +667,7 @@ Last updated: 05/24/2022-00:11:32
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">21 Fascinating Pics From Way Back When </a><br>
-
-<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">30 Things Professionals Wish Their Customers Knew</a><br>
+## <a href="#linky13" id="linky12">30 Things Professionals Wish Their Customers Knew</a><br>
 
 <span style="font-size:4em">1. Nuclear engineer here, and if you think radiation is the devil incarnate then buckle in for a quick second as I tell you that:1) No one from Fukushima died from radiation exposure. You saw pictures of the horrific devastation from the earthquake and tsunami. Flooding a nuclear plant doesnt topple buildings.2) Nuclear is one of the safest, renewable, and cleanest energy sources that exist. Second cleanest only to water (and air if you count that).3) Unless we start growing energy and picking it off the vine, oil and coal will run out in the very foreseeable future and nuclear is the way to go.4) You get more radiation from eating a banana than anyone ever did from 3 Mile Island. The most radiation I get everyday is from my morning fruit and I play with radioactive sources and crystals all day.5) Nuclear is actually really cool and by making it to the bottom of the list youre pretty cool too.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168271.jpg" style="width:100%"><br>
 
@@ -789,7 +729,7 @@ Last updated: 05/24/2022-00:11:32
 
 <span style="font-size:4em">30. When your town spends money to fix the road down the street from you but not your road, its not out of spite.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168297.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">29 People With Very Regrettable Tattoos </a><br>
+## <a href="#linky14" id="linky13">29 People With Very Regrettable Tattoos </a><br>
 
 <span style="font-size:4em">1. What the hell was this guy thinking? We can tell you. He wasnt. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171666.jpg" style="width:100%"><br>
 
@@ -847,39 +787,7 @@ Last updated: 05/24/2022-00:11:32
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171687.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">15 Attention Seekers Sharing Their Lies Online </a><br>
-
-<span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168371.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. Holy hell, this one might take the cake for the most depraved, and imaginative lie in this list. Bravo. No notes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168373.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168372.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168374.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sure thing bud, whatever you say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168375.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168376.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168367.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168370.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168377.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168378.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168379.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Is anyone believing this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168380.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">Monday Morning Randomness User Edition - Mizuka</a><br>
+## <a href="#linky15" id="linky14">Monday Morning Randomness User Edition - Mizuka</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032505/87173041/87146660.jpg" style="width:100%"><br>
 
@@ -997,85 +905,177 @@ Last updated: 05/24/2022-00:11:32
 
 <span style="font-size:4em">58. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/22/032720/87173062/87172679.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">25 Odd Items With Simple Explanations</a><br>
+## <a href="#linky16" id="linky15">48 Pics That Are Oddly Specific</a><br>
 
-<span style="font-size:4em">1. Found this behind a commercial freezer while doing renovations. Plastic casing, plastic-looking balls, metal shroud, about 1.5 inches in length. Wall anchor? Cyanide capsule?
-Pretty sure this is a scent/pheromone capsule for a moth glue trap
-
- </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170390.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171108.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-100% this is the answer as a former pest control technician I have handled many of these. They are usually stuck into a glue trap to get them to fly in there and get stuck.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170377.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171084.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Why do these window grills have a bulge? Seen in Spain.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170399.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171068.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-They’re called “belly bars” in a lot of places. They’re designed for flower boxes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170378.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171069.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. From the antique store “junk drawer” it came in a small tin with a slip of paper that says “German Inventors Fair 1953” “Patent Applied For” “Manfred Frommberger, Nurnberg Germany”
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170379.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171070.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-Could totally be wrong here, but based on the name and shape I’d guess it’s for having a resealable tap for canned goods.
-
- </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170381.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171071.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Seconded. There used to be small cans of ‘Kondensmilch’ (evaporated milk) from companies like ‘Glücksklee’. You stabbed a hole (or better two holes) into the top to pour (or better drip – people used it carefully) the milk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170382.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171075.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Is this a shock collar? My dog was wearing it after coming home from boarding.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170383.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171074.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Yes it is a bark collar, also formerly known as a shock collar. I say formerly because they now come with vibration. The rubber tips on the collar indicate they are not using the electric shock feature. Instead if the dog barks it vibrates, scaring the dog not to bark.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170384.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171066.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Black and yellow, large bomb-shaped item, found 30 mins outside Halifax, N.S.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170385.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171067.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-Don’t think it’s a bomb, it looks more like fishing net floaters used to keep huge fishing from dragging on the floor. (they’re usually at the bottom of the net to keep the net straight and not tangle up while the net is being dragged)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170386.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171076.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. Large chunk of (metal?) Weighs quite a bit in your hand and hasn’t changed in color in decades.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170387.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171077.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-The circled m logo is the logo of the réunion des musées nationaux, the French public museums. Probably a copy of a cuneiform tablet available as a souvenir at the Louvre, among other museums.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170380.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171078.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. I’ve seen this cane-shaped (usually) brass post at numerous bars and pubs and wondered what it is and what it is used for. l have been unable to Google the correct sequence of words to get a result.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170388.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171079.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-A “divider” or “service divider”. It serves to keep standing customers to one side, away from the part of the bar where servers pick up drinks. Also notice the opening under the bar, the bartender (in some designs) can lift the top and gets in and out. You don’t want customers standing there blocking access.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170389.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171080.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. On the Bed in my Hotel. Doesn’t Open or Anything. W Melbourne, Australia.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170391.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171081.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-Hi OP, this piece is a nod at Ned Kelly’s helmet where the slit in the first picture is where the eyes would be. It’s been reimagined as a “playful leather and faux fur fascinator”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170392.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171082.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Pulled the plug  Magnet from my transmission pan covered it what looks like tiny (1/64” or .3mm) balls. What’s in the picture is about 1% of what was in the pan, but had to clean through the slush. Ideas? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170393.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171083.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-
-That might be casting material that was attached to the casting and is now releasing. Another possibility is steel shot peen, used in a process to finish metal parts to prevent fatigue and stress corrosion failures and prolong product life for the part.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170394.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171085.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. What is this thing? The circular thing on a post in an antique place.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170395.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171086.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-This is an Engine Order Telegraph used in older marine vessels. Allowed the Captain remote communication with the ships engine room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170396.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171087.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Found above the door in the backseat of a 2011 Porsche Cayenne; What are the holes behind the small door used for?
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170397.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171088.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-I drive a Volvo and these holes are for the cargo net (or a mesh fence thing meant for pets) and there are other actual hooks by the “oh sh#t” bar like your vehicle.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170398.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171089.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. This metal decorative floral piece, removable petals, 10” long, on a tabletop.
-Ash tray</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170400.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171090.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. What’s this device mounted under my office desk?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87170401.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171091.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171092.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171093.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171094.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171095.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171096.png" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171097.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171098.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171099.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171100.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171101.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171102.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171103.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171104.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171105.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171106.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171107.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171109.png" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171110.png" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171111.png" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171112.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171113.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171114.png" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171115.png" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">15 Attention Seekers Sharing Their Lies Online </a><br>
+
+<span style="font-size:4em">1. Who the hell is going to believe this? If he was locked in your car, wouldnt he be able to just open the door? Thats how cars work. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168369.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168371.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. Holy hell, this one might take the cake for the most depraved, and imaginative lie in this list. Bravo. No notes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168373.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168372.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168374.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sure thing bud, whatever you say. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168375.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168376.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168367.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168370.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168377.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168378.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168379.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Is anyone believing this? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168380.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. What kind of person imagines a scenario like this? Like whats the point? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168368.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. Stop it Julie, youre embarrassing yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87168381.png" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">21 Fascinating Pics From Way Back When </a><br>
+
+<span style="font-size:4em">1. Teenagers at an archery party in Briarcliff, New York, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Diner in West Virginia in 1930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Woman and her dog in her one room house, Texas, 1938</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169401.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Motherless family, the oldest girl seated in the doorway of the house trailer cares for the family. Yakima Valley, Washington 1939. by Dorothea Lange</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Loading passengers onto an airship from a mooring mast, 1930s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. School girls practice childcare using a doll, 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Family between Dallas and Austin, Texas. The people have left their home and connections in South Texas, and hope to reach the Arkansas Delta for work in the cotton fields. The father is under the truck doing some repairs. August 1936.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Gun safety being taught in an Indiana school, 1956</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169417.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Christmas dinner near Smithfield, Iowa. Dinner consisted of potatoes, cabbage and pie. 1936. Photographer – Lee Russell</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A man sleeps on his dance partner after dancing  1,491 hours during an undated marathon.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. People watching a television set for the first time at Waterloo station, London, 1936</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. School house photo in Texas, 1930’s.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Sharecroppers in front of their cabin. Boone Arkansas. October 1935</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Moving Day. 1920’s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A waitress in a diner taking a break, New York City, 1955</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A young couple spending an evening in Las Vegas (1957)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Swimming at the Tidal Basin beach c.1918</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. School dance, 1956, photo by Wayne Miller</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These children from 8 years old up go to school half a day, and shuck oysters for four hours before school and three hours after school on school days, and on saturday from 4 a.m. to early afternoon. 1911 by Lewis Hine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Elementary school class taking an imaginary trip to the moon, Lincoln, Nebraska, 1966</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Cop, musicians and a dead drunk, a New York diner scene. circa 1940s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87169419.jpg" style="width:100%"><br>
 
