@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/25/2022-03:11:31
+Last updated: 05/25/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
@@ -187,7 +187,53 @@ Last updated: 05/25/2022-03:11:31
 
 <span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
+## <a href="#linky4" id="linky3">22 Funny Fails By Spouses</a><br>
+
+<span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Criminal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I present my wife’s “face massager”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. How my husband wrote the date that he opened this orange juice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My husband decided to make a jewelry box for his mother for Christmas but got high right before drawing the initial design. I pulled this out of the recycling the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I asked my husband to seal an envelope for mailing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I’m grateful my wife does laundry often but dang, this is a whole fossil record.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I asked my husband to buy some cheap plastic drinking cups so that we don’t always have to drink from glass cups and potentially break them while handling them. This is what he bought… (and no we don’t have kids).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The way my wife cut the pizzas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Making tea for my wife and I in the dark. Grabbed two tea bag’s that I thought were the same. Not sure sure who got which tea. Will report which one of us pooped the bed and who slept through it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Noticed a section of the hedge had turned brown and died. Mentioned it to my husband, came home to this…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Moved our extremely heavy King Bed headboard for the first time in 5 years. Guess which side my wife sleeps on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My husband pulled his car over to pick this up from the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My wife eats apples from the bottom…including the core.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My husband eats apple with a spoon. Reddit, please give it to him straight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My wife’s 230,578 unread emails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My wife hung this on our door and didn’t really put a lot of thought in the arm position. My girl here seems to be having fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My husband made lunch for me today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My wife’s licence plate on her Ford Edge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My wife gave me bathbomb for Valentines called LUNA. Pretty sure they should have called it WATERBIRTH.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
 
 <span style="font-size:4em">1. “I was working at a hospital as an Intern. There was a woman who had a brain Tumor a while a go. She got in for a check up, six months pregnant and having depression. The doctor thought he found a new Tumor so she had another brain operation. But there was no Tumor and they cut her head open for nothing. And after she woke up they didn’t tell her this, instead acted like they removed it successfully.” -123diesdas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174485.jpg" style="width:100%"><br>
 
@@ -241,76 +287,6 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 <span style="font-size:4em">24. “I worked for a bagel shop. The co-manager told me to, instead of throwing away the tubs of cream cheese that were about to expire, replace the expiration stickers.” -YourFatherHere1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174492.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">25. “Most marijuana growers, like some of the biggest companies in the world, mix their strains together regardless of policy/SOP because people are stupid and upper management doesnt give a sh*t. Stems, seeds, they dont give a flying f**k about what makes it to the end of the line. They only care about money, not product. Thats a you problem as the consumer” -D3ATH_Follows_All</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174493.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">34 Things You Might Really Want to Own</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">20 Bad Bosses Who Don’t Understand the Real World</a><br>
 
@@ -482,7 +458,59 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">26 Dank Memes For Humor Enthusiasts </a><br>
+## <a href="#linky11" id="linky10">25 Times Nature Was Downright Scary </a><br>
+
+<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">26 Dank Memes For Humor Enthusiasts </a><br>
 
 <span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
 
@@ -536,7 +564,7 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">28 People Who Clearly Missed the Joke</a><br>
+## <a href="#linky13" id="linky12">28 People Who Clearly Missed the Joke</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
 
@@ -594,7 +622,7 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+## <a href="#linky14" id="linky13">25 Totally Innocent Activities That Feel Super Creepy</a><br>
 
 <span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
@@ -647,59 +675,77 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Times Nature Was Downright Scary </a><br>
+## <a href="#linky15" id="linky14">34 Things You Might Really Want to Own</a><br>
 
-<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
 
-<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
 
-<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">The Most Unprofessional Things Doctors Have Ever Said</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">The Most Unprofessional Things Doctors Have Ever Said</a><br>
 
 <span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
 
@@ -766,50 +812,4 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 <span style="font-size:4em">11. When I was 21, I dislocated my shoulder and it continued to hurt for weeks. Went to a specialist, and he suggested the pain was all in my head! After an MRI he realized I had a SLAP tear in my shoulder, so I said, looks like its not all in my head, and he looked at me with such contempt, I never went back to that a**hole. -u/feral_philosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173814.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">22 Funny Fails By Spouses</a><br>
-
-<span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Criminal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I present my wife’s “face massager”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. How my husband wrote the date that he opened this orange juice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My husband decided to make a jewelry box for his mother for Christmas but got high right before drawing the initial design. I pulled this out of the recycling the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I asked my husband to seal an envelope for mailing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I’m grateful my wife does laundry often but dang, this is a whole fossil record.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I asked my husband to buy some cheap plastic drinking cups so that we don’t always have to drink from glass cups and potentially break them while handling them. This is what he bought… (and no we don’t have kids).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The way my wife cut the pizzas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Making tea for my wife and I in the dark. Grabbed two tea bag’s that I thought were the same. Not sure sure who got which tea. Will report which one of us pooped the bed and who slept through it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Noticed a section of the hedge had turned brown and died. Mentioned it to my husband, came home to this…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Moved our extremely heavy King Bed headboard for the first time in 5 years. Guess which side my wife sleeps on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My husband pulled his car over to pick this up from the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My wife eats apples from the bottom…including the core.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My husband eats apple with a spoon. Reddit, please give it to him straight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My wife’s 230,578 unread emails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My wife hung this on our door and didn’t really put a lot of thought in the arm position. My girl here seems to be having fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My husband made lunch for me today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My wife’s licence plate on her Ford Edge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My wife gave me bathbomb for Valentines called LUNA. Pretty sure they should have called it WATERBIRTH.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
 
