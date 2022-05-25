@@ -1,7 +1,418 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/25/2022-06:11:31
+Last updated: 05/25/2022-07:11:31
 <br>
-## <a href="#linky2" id="linky1">57 Radical Random Pics and Memes for Your Pleasure</a><br>
+## <a href="#linky2" id="linky1">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
+
+<span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. So when she asked for a present (someone women shouldnt do, they should just pick them out and have their bfs buy them) she patiently waited for her gift. Only he got the wrong type of dress. Which wouldnt have been the end of the world, but he didnt just get the wrong dress, he got one from a different culture entierlty. A point that clearly was beyond his scope of understanding. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020321/87174823/dress2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
+
+## <a href="#linky3" id="linky2">26 Dank Memes For Humor Enthusiasts </a><br>
+
+<span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. I cant explain. You need to see it for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173198.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I need this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173199.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Send this to the nosy person in your group chat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173200.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Oh man we almost feel bad for this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173201.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Sharks makes everything cooler, but talking sharks are undefeated. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173202.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. What a waste -  my fat a** </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173203.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173205.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">9. You know youre getting older when you use subtitles. Sorry we dont make the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173206.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173207.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Ramasy from the top rope, what is that in his hands, a braised lamb? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173208.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. And down this way he have the department of proctology. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173210.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173211.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">14. hes got a point ya know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173212.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Okay, but what is this picture? What is it taken from? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173213.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Oh right, the mistake is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173214.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173215.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. And Im moving out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173216.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Whats your favorite club? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173217.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Who? Little old me? Oh, youre being too nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173218.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173219.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173220.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Now this is what we call a glow-up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173221.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173222.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. His wife is going to be so pissed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173223.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">22 Funny Fails By Spouses</a><br>
+
+<span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Criminal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. I present my wife’s “face massager”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. How my husband wrote the date that he opened this orange juice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. My husband decided to make a jewelry box for his mother for Christmas but got high right before drawing the initial design. I pulled this out of the recycling the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172695.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I asked my husband to seal an envelope for mailing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I’m grateful my wife does laundry often but dang, this is a whole fossil record.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I asked my husband to buy some cheap plastic drinking cups so that we don’t always have to drink from glass cups and potentially break them while handling them. This is what he bought… (and no we don’t have kids).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172693.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. The way my wife cut the pizzas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Making tea for my wife and I in the dark. Grabbed two tea bag’s that I thought were the same. Not sure sure who got which tea. Will report which one of us pooped the bed and who slept through it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172702.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Noticed a section of the hedge had turned brown and died. Mentioned it to my husband, came home to this…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172697.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Moved our extremely heavy King Bed headboard for the first time in 5 years. Guess which side my wife sleeps on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172694.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. My husband pulled his car over to pick this up from the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. My wife eats apples from the bottom…including the core.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172696.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. My husband eats apple with a spoon. Reddit, please give it to him straight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172699.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. My wife’s 230,578 unread emails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My wife hung this on our door and didn’t really put a lot of thought in the arm position. My girl here seems to be having fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. My husband made lunch for me today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172698.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. My wife’s licence plate on her Ford Edge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. My wife gave me bathbomb for Valentines called LUNA. Pretty sure they should have called it WATERBIRTH.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172700.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">28 People Who Clearly Missed the Joke</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">The Most Unprofessional Things Doctors Have Ever Said</a><br>
+
+<span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Had a bad head injury when I was a kid (12 or 13) and saw a bunch doctors trying to figure out what was wrong. Got a little snippy with one of them over something I don’t even remember. Pulled up the medical record years later and she referred to me as a “child of the devil” in her report. Had to make some phone calls to get that “diagnosis” removed from my record. -u/DuckSkrol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Said that if I wasnt his patient hed take me home. Yeah...hes no longer my doctor. -u/jessabear0201</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173797.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Had a doctor in the 80s tell my mom my severe life-threatening disease, was not real because theres no real evidence that there is a genetic basis for disease. Despite my genetic disease being well studied.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173798.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Another doc at the same surgery slapped me hard in the knee and told me I was faking it for a day off school. 6 months later Id need a full knee reconstruction. And mom kept taking me there... -u/cacti-myco</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Unprofessional, but funny. I had taken my 92-year-old mother to a recheck appointment to her PCP. An apparently new medical assistant was dutifully getting her history by reading off a checklist. When she asked when Moms last period was, I looked at Mom a little nervously. She was VERY old school, very dignified and would typically never acknowledge to her sons that she had female parts.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173799.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I saw a rare twinkle in Moms eyes as she calmly replied, well, I cant give you an exact number of months, but Im pretty sure it was sometime in the late 1960s. The assistant had the good grace to laugh with us, apologize, then read the next question.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Do you think you might be pregnant? -u/jakobedlam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Youre not depressed, you dont look sad. You must just be tired! Here, take these sleeping pills, but dont take them all at once! -u/Nicxll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. When I was in junior high, I went out for the basketball team. I had to take a physical and it had to be done by the schools doctor and not my own. I went in to do the physical and had to get naked. I did so and the doctor looked me over. He saw that I have an inverted breast bone and said Wow. That is freakish. You cant be on the team with that. I know that my breast bone makes it look like I have a hole in my chest, but I had never been self-conscious about it until that moment.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Because this examination was taking place in the boys locker room in front of other kids wanting to go out for the team too, everyone started laughing at me and calling me names. I grabbed my sh*t and left. My mother took me to our regular doctor who reassured me that there was nothing wrong with me and that there are plenty of people who have breast bones just like mine. It didnt help but I appreciated that she explained it to me. I stopped taking off my shirt in front of others. I was harassed and bullied by my entire classic for years to come because a doctor made a comment that he shouldnt have made. -u/jimmypfromthe5thgala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I had a doctor comment on how I’ve lost weight (fine, I get that), but when I told him I started going to a gym he told me not to try to build muscle because it will just turn to fat someday anyway. -u/Deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Was given a condescending lecture on how I shouldnt have come in if I just had a cold by both a doctor at a walk-in center, and my GP in a follow-up appt the week following.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173810.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+I ended up getting rushed into resuscitation a few weeks later with a punctured lung that caused a one-way valve in my lung where air could escape into my chest cavity but not get back out. Because it was brushed off/not properly investigated it caused a life-threatening condition called Tension Pneumothorax where the pressure that had built up over time on one side of my chest caused my lung to collapse completely and started crushing my heart and other lung, and compressing/bending the arteries, veins, and esophagus in my neck.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+When they put a chest drain into me my chest cavity literally sounded like it was deflating like a car tire puncture. -u/SneakyBlades</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I was looking for a surgeon for my gallstone operation and he asked what meds I was on. I mentioned my antidepressants and he started saying I didnt need to take them I just needed to pray. I was pissed and replied, I guess Ill just pray my gallstones away too, then. Needless to say, I went with a different surgeon. -u/maggyta10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. When I was 21, I dislocated my shoulder and it continued to hurt for weeks. Went to a specialist, and he suggested the pain was all in my head! After an MRI he realized I had a SLAP tear in my shoulder, so I said, looks like its not all in my head, and he looked at me with such contempt, I never went back to that a**hole. -u/feral_philosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">25 Times Nature Was Downright Scary </a><br>
+
+<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">34 Kicka** Pics to Change Your Perspective </a><br>
+
+<span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Software updates for Boeing 747-400 are carried out via floppy disk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173819.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. 116 Year Old Bonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Tip jars at local coffee shop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. $625,000 2 bedroom, 1 bathroom house in Los Angeles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. A horse-drawn bus from the 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Billionaire Vijay Mallya’s Mansion Atop A Skyscraper In Bangalore, India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Robe and Axe of Giovanni Bugatti, the official executioner for the Pope from 1796 to 1864. During his tenure he executed 514 people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. This monument in Georgia named the Georgia Guidestones has instructions in 8 different languages on how to rebuild society after an apocalyptic event. It also functions as a calendar, clock and compass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Malcom MacDonald had his penis fall off due to a blood infection. Doctors graphed a new penis on his forearm to let it gain bloodflow. Due to a variety of factors, MacDonald had the grafted penis on his arm for 6 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The size of an eagle’s nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. A Prehistoric Elasmotherium. Also know as a Siberian unicorn.extinct 39000 years ago</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. This is Göbekli Tepe; a temple complex in Turkey built around 9500BC while Britain was still connected to Europe and humans hunted mammoths in Siberia.Pottery hadn’t been invented, animals hadn’t yet been domesticated, and yet they were quarrying and transporting 5 meter limestone columns to build megalithic temples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Human Hive in Hong Kong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My dog chewed through his seal squeaky toy… and found a penguin squeaky toy hiding inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My hometown (Sioux Falls, SD) has a stretch of road that is original cobblestone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “The difference in appearance between a silver fork (left) and a stainless steel fork (right)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “How tiny this 1859 Danish West Indies 3 cent coin is in comparison to a U.S. penny. The United States purchased the islands (now known as The U.S. Virgin Islands) from Denmark in 1917.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “A determined tulip growing through a bush.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Almost-palm-sized strawberries!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “The perfectly square land plots of Oklahoma as viewed from 30k feet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. A very 80’s moto radio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “I got 3, incredibly, shiny identical quarters as change.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Goldfish crackers included a sheet today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Found a jack sparrow Spider-Man in a bag of legos.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. “One of my flowers is not like the others.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. “My snake shed its head separately from its body.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. “A full human nervous system in a anatomy museum in Baylor College of Medicine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. “This China set was made in occupied Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. “Not Chicken Nugget Ice Cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. “Unopened 23 year old box of “Millenios” Cheerios from y2k.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. “The blade in my protein mixer cup is a person lifting weights.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. “The design of this manhole cover separated the colors of the oily water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+
+<span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Needing to adjust my underwear whilst outside. -u/Kalurael</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Looking in the direction of sudden movement in the locker room. -u/thisbuttonsucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. My four-year-old daughter had an accident while on vacation so I went to Wal-Mart to buy underwear. While at Wal-Mart, my wife informed me that the margarita mix she bought did not include tequila. So I, a grown-a** man on his own, went through the checkout at Wal-Mart with nothing but a package of little girls underwear and a fifth of Juarez. I’m pretty sure I was also wearing a t-shirt that said “I’m fat. Let’s party” because Florida. -u/thunderbuns2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Walking behind someone for too long but I need to go that way so theres nothing I can do about it -u/Arny520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. I work for an animal hospital and any time my hand grazes a dog’s d*ck area while giving a bath I feel like Im going to jail. -u/partyshart420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Looking at people at the pool. -u/Just_a_tired_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. My hobbies are mountain biking and dirtbike riding and I haul everything in a white van. I’m a middle-aged white guy. The other day I had lunch under a tree at a playground while sitting in the van. Parents were giving me the stink eye and started herding up their kids. I was wondering what was going on, then I realized I was the creepy guy in a van. -u/the_irish_oak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Using my binoculars to watch birds. Also, using the camera to photograph birds. -u/1mamapajama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Trying to read a womans shirt. -u/lonewanderer45631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Looking at other people working out so I can take notes on posture and technics for lifting weights. Im fairly new to it all. -u/Kingsbear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. I dont like people walking behind me so I generally let people walk ahead of me in the hall at work. I was asked by another male coworker who saw this if I was looking at womens butts and that is why I let people ahead of me. I told him no and that I just dont like people behind me. He looked at me weird. Its almost better to be thought of as a pervert to some people than to be kind of weird. -u/iamacannibal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. As a man, being friendly to children I don’t know who say hi to me in public. It’s always a super friendly kid who is saying hi to everyone that they pass but I always feel like I’m being judged for saying hi back to them or giving a smile and a wave. -u/Existing-Reaction-50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. When Im at the gym and Im kind of just zoned out between sets, and someone stands so that their a** is directly in my line of sight. -u/ElToberino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Being in the womens part of a clothing store specifically the underwear section. -u/Luxray2014</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Waiting for my kids to come out of a public restroom. -u/Siracha_jizz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Getting a random erection in public. -u/DirtJade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173663.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Eating a popsicle or lollipop in public. -u/DanAxe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Putting my finger in someones butthole. Every single time. Ill never get used to it. (I am an MD.) -u/Dysp-_-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Helping the lost kid as a man. If my daughter or wife is not with me, I am very hesitant to approach an upset or clearly lost child by myself. There is such a huge fear that someone will mistake me for a kidnapper. -u/Ark3nfel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. When you just got out of the gym and youre doing that heavy mouth breathing, and you happen to be waiting in line to buy something at the gas station. Im just trying to grab a Powerade lady, Im really out of breath, and Im not a pervert. Sorry. -u/pineappledaddy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Going upstairs behind a girl thats also going up and you have to look at her a**. -u/ashirwad778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Taking my daughter into the locker room at the YMCA. It’s a different vibe for people if you’re a man. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Taking pictures or recording anything. My other friends have no issue in this, but I feel like an absolute creep. Its not like Im taking pictures for, Personal interest, it just feels wrong to video or picture other people, even accidentally. -u/PhilosopherOfficer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173588.jpg" style="width:100%"><br>
 
@@ -117,171 +528,7 @@ Last updated: 05/25/2022-06:11:31
 
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">The Most Unprofessional Things Doctors Have Ever Said</a><br>
-
-<span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Had a bad head injury when I was a kid (12 or 13) and saw a bunch doctors trying to figure out what was wrong. Got a little snippy with one of them over something I don’t even remember. Pulled up the medical record years later and she referred to me as a “child of the devil” in her report. Had to make some phone calls to get that “diagnosis” removed from my record. -u/DuckSkrol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Said that if I wasnt his patient hed take me home. Yeah...hes no longer my doctor. -u/jessabear0201</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173797.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Had a doctor in the 80s tell my mom my severe life-threatening disease, was not real because theres no real evidence that there is a genetic basis for disease. Despite my genetic disease being well studied.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173798.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Another doc at the same surgery slapped me hard in the knee and told me I was faking it for a day off school. 6 months later Id need a full knee reconstruction. And mom kept taking me there... -u/cacti-myco</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Unprofessional, but funny. I had taken my 92-year-old mother to a recheck appointment to her PCP. An apparently new medical assistant was dutifully getting her history by reading off a checklist. When she asked when Moms last period was, I looked at Mom a little nervously. She was VERY old school, very dignified and would typically never acknowledge to her sons that she had female parts.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173799.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I saw a rare twinkle in Moms eyes as she calmly replied, well, I cant give you an exact number of months, but Im pretty sure it was sometime in the late 1960s. The assistant had the good grace to laugh with us, apologize, then read the next question.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Do you think you might be pregnant? -u/jakobedlam</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Youre not depressed, you dont look sad. You must just be tired! Here, take these sleeping pills, but dont take them all at once! -u/Nicxll</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. When I was in junior high, I went out for the basketball team. I had to take a physical and it had to be done by the schools doctor and not my own. I went in to do the physical and had to get naked. I did so and the doctor looked me over. He saw that I have an inverted breast bone and said Wow. That is freakish. You cant be on the team with that. I know that my breast bone makes it look like I have a hole in my chest, but I had never been self-conscious about it until that moment.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Because this examination was taking place in the boys locker room in front of other kids wanting to go out for the team too, everyone started laughing at me and calling me names. I grabbed my sh*t and left. My mother took me to our regular doctor who reassured me that there was nothing wrong with me and that there are plenty of people who have breast bones just like mine. It didnt help but I appreciated that she explained it to me. I stopped taking off my shirt in front of others. I was harassed and bullied by my entire classic for years to come because a doctor made a comment that he shouldnt have made. -u/jimmypfromthe5thgala</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I had a doctor comment on how I’ve lost weight (fine, I get that), but when I told him I started going to a gym he told me not to try to build muscle because it will just turn to fat someday anyway. -u/Deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Was given a condescending lecture on how I shouldnt have come in if I just had a cold by both a doctor at a walk-in center, and my GP in a follow-up appt the week following.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173810.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-I ended up getting rushed into resuscitation a few weeks later with a punctured lung that caused a one-way valve in my lung where air could escape into my chest cavity but not get back out. Because it was brushed off/not properly investigated it caused a life-threatening condition called Tension Pneumothorax where the pressure that had built up over time on one side of my chest caused my lung to collapse completely and started crushing my heart and other lung, and compressing/bending the arteries, veins, and esophagus in my neck.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-When they put a chest drain into me my chest cavity literally sounded like it was deflating like a car tire puncture. -u/SneakyBlades</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. I was looking for a surgeon for my gallstone operation and he asked what meds I was on. I mentioned my antidepressants and he started saying I didnt need to take them I just needed to pray. I was pissed and replied, I guess Ill just pray my gallstones away too, then. Needless to say, I went with a different surgeon. -u/maggyta10</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. When I was 21, I dislocated my shoulder and it continued to hurt for weeks. Went to a specialist, and he suggested the pain was all in my head! After an MRI he realized I had a SLAP tear in my shoulder, so I said, looks like its not all in my head, and he looked at me with such contempt, I never went back to that a**hole. -u/feral_philosopher</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">34 Kicka** Pics to Change Your Perspective </a><br>
-
-<span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Software updates for Boeing 747-400 are carried out via floppy disk.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173819.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. 116 Year Old Bonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Tip jars at local coffee shop</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. $625,000 2 bedroom, 1 bathroom house in Los Angeles</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. A horse-drawn bus from the 1890s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Billionaire Vijay Mallya’s Mansion Atop A Skyscraper In Bangalore, India</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Robe and Axe of Giovanni Bugatti, the official executioner for the Pope from 1796 to 1864. During his tenure he executed 514 people.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. This monument in Georgia named the Georgia Guidestones has instructions in 8 different languages on how to rebuild society after an apocalyptic event. It also functions as a calendar, clock and compass.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Malcom MacDonald had his penis fall off due to a blood infection. Doctors graphed a new penis on his forearm to let it gain bloodflow. Due to a variety of factors, MacDonald had the grafted penis on his arm for 6 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The size of an eagle’s nest</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. A Prehistoric Elasmotherium. Also know as a Siberian unicorn.extinct 39000 years ago</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. This is Göbekli Tepe; a temple complex in Turkey built around 9500BC while Britain was still connected to Europe and humans hunted mammoths in Siberia.Pottery hadn’t been invented, animals hadn’t yet been domesticated, and yet they were quarrying and transporting 5 meter limestone columns to build megalithic temples.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Human Hive in Hong Kong</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My dog chewed through his seal squeaky toy… and found a penguin squeaky toy hiding inside.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My hometown (Sioux Falls, SD) has a stretch of road that is original cobblestone.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “The difference in appearance between a silver fork (left) and a stainless steel fork (right)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “How tiny this 1859 Danish West Indies 3 cent coin is in comparison to a U.S. penny. The United States purchased the islands (now known as The U.S. Virgin Islands) from Denmark in 1917.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “A determined tulip growing through a bush.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Almost-palm-sized strawberries!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “The perfectly square land plots of Oklahoma as viewed from 30k feet.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. A very 80’s moto radio.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “I got 3, incredibly, shiny identical quarters as change.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Goldfish crackers included a sheet today.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Found a jack sparrow Spider-Man in a bag of legos.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. “One of my flowers is not like the others.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. “My snake shed its head separately from its body.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. “A full human nervous system in a anatomy museum in Baylor College of Medicine.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. “This China set was made in occupied Japan.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. “Not Chicken Nugget Ice Cream.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. “Unopened 23 year old box of “Millenios” Cheerios from y2k.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. “The blade in my protein mixer cup is a person lifting weights.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. “The design of this manhole cover separated the colors of the oily water.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
+## <a href="#linky11" id="linky10">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
 
 <span style="font-size:4em">1. “I was working at a hospital as an Intern. There was a woman who had a brain Tumor a while a go. She got in for a check up, six months pregnant and having depression. The doctor thought he found a new Tumor so she had another brain operation. But there was no Tumor and they cut her head open for nothing. And after she woke up they didn’t tell her this, instead acted like they removed it successfully.” -123diesdas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174485.jpg" style="width:100%"><br>
 
@@ -336,7 +583,19 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">25. “Most marijuana growers, like some of the biggest companies in the world, mix their strains together regardless of policy/SOP because people are stupid and upper management doesnt give a sh*t. Stems, seeds, they dont give a flying f**k about what makes it to the end of the line. They only care about money, not product. Thats a you problem as the consumer” -D3ATH_Follows_All</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174493.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">20 Bad Bosses Who Don’t Understand the Real World</a><br>
+## <a href="#linky12" id="linky11">Ex-NFL Player Gets the Best of United Airlines Worker in Fist Fight</a><br>
+
+<span style="font-size:4em">1. The video jumps right in. A few words are exchanged and the gentleman in the hat makes first contact after a few missed punches. That man just happens to be former NFL player, Brendan Langley. In 2017 Langley was drafted by the Denver Broncos as a cornerback. So his job was literally hitting people as hard as he possibly could.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013742/87174786/dude.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Heres the connection. Clearly these fellas dont give a sh*t about bystanders as this old woman is fighting for goddamn life.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013401/87174779/2.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. But our friend in the United Airlines uniform isnt going down without a fight. Bold move of him to come back with a slap. Everyone knows the sequence of events is slap, punch, kick, kiss and make up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013423/87174781/3.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Remember when I said Langley was a cornerback? Yeah, dont f**k with someone his size and expect not to get put flat on your a**.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013412/87174780/4.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. LMAO. This poor United worker came in for his usual shift, thinking nothing of note was going to happen. Welp, goodnight sweet prince. After getting socked in the face for a second time, our fearless warrior gets taken out by the baggage claim counter head over heels. He would eventually make it back to his feet. Hopefully now humbled by this disastrous showing in the boxing ring.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013434/87174782/5.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">20 Bad Bosses Who Don’t Understand the Real World</a><br>
 
 <span style="font-size:4em">1. “My husband was promoted to his former boss’ position, and the guy left his office like this for my husband to move into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174287.png" style="width:100%"><br>
 
@@ -378,19 +637,75 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">20. “Boss’s dog tried to eat my co-worker’s paycheck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174305.png" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">Ex-NFL Player Gets the Best of United Airlines Worker in Fist Fight</a><br>
+## <a href="#linky14" id="linky13">The Often Overlooked Struggles of Being Overweight </a><br>
 
-<span style="font-size:4em">1. The video jumps right in. A few words are exchanged and the gentleman in the hat makes first contact after a few missed punches. That man just happens to be former NFL player, Brendan Langley. In 2017 Langley was drafted by the Denver Broncos as a cornerback. So his job was literally hitting people as hard as he possibly could.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013742/87174786/dude.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Heres the connection. Clearly these fellas dont give a sh*t about bystanders as this old woman is fighting for goddamn life.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013401/87174779/2.png" style="width:100%"><br>
+<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. But our friend in the United Airlines uniform isnt going down without a fight. Bold move of him to come back with a slap. Everyone knows the sequence of events is slap, punch, kick, kiss and make up.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013423/87174781/3.png" style="width:100%"><br>
+<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Remember when I said Langley was a cornerback? Yeah, dont f**k with someone his size and expect not to get put flat on your a**.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013412/87174780/4.png" style="width:100%"><br>
+<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. LMAO. This poor United worker came in for his usual shift, thinking nothing of note was going to happen. Welp, goodnight sweet prince. After getting socked in the face for a second time, our fearless warrior gets taken out by the baggage claim counter head over heels. He would eventually make it back to his feet. Hopefully now humbled by this disastrous showing in the boxing ring.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/013434/87174782/5.png" style="width:100%"><br>
+<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">23 Famous Places That You Shouldn't Visit</a><br>
+<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">23 Famous Places That You Shouldn't Visit</a><br>
 
 <span style="font-size:4em">1. “Platfotm 9¾ in Kings Cross station, London. Stupid metal statue on a straight wall, a horrible queue to taking a photo with you on it, and another hundred-meter long queue to the small and very expensive Harry Potter shop. I was there middle of the day in off-season, dont want to even think about it on high season.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174622.jpg" style="width:100%"><br>
 
@@ -437,309 +752,4 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 <span style="font-size:4em">22. “Miami Beach. It’s a parade of douchebags driving flashy cars (most likely rentals) and insanely overpriced restaurants and bars.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174635.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. “Venice during the season. Good god, the place is crushed with people. You can hardly move at certain times and you are always bumping into folks. Other places with the same problem during the season/summer. Yellowstone, Yosemite, Zion, and any Amusement Park.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174636.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">The Often Overlooked Struggles of Being Overweight </a><br>
-
-<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">25 Totally Innocent Activities That Feel Super Creepy</a><br>
-
-<span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Needing to adjust my underwear whilst outside. -u/Kalurael</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Looking in the direction of sudden movement in the locker room. -u/thisbuttonsucks</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. My four-year-old daughter had an accident while on vacation so I went to Wal-Mart to buy underwear. While at Wal-Mart, my wife informed me that the margarita mix she bought did not include tequila. So I, a grown-a** man on his own, went through the checkout at Wal-Mart with nothing but a package of little girls underwear and a fifth of Juarez. I’m pretty sure I was also wearing a t-shirt that said “I’m fat. Let’s party” because Florida. -u/thunderbuns2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Walking behind someone for too long but I need to go that way so theres nothing I can do about it -u/Arny520</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I work for an animal hospital and any time my hand grazes a dog’s d*ck area while giving a bath I feel like Im going to jail. -u/partyshart420</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Looking at people at the pool. -u/Just_a_tired_banana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. My hobbies are mountain biking and dirtbike riding and I haul everything in a white van. I’m a middle-aged white guy. The other day I had lunch under a tree at a playground while sitting in the van. Parents were giving me the stink eye and started herding up their kids. I was wondering what was going on, then I realized I was the creepy guy in a van. -u/the_irish_oak</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Using my binoculars to watch birds. Also, using the camera to photograph birds. -u/1mamapajama</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Trying to read a womans shirt. -u/lonewanderer45631</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Looking at other people working out so I can take notes on posture and technics for lifting weights. Im fairly new to it all. -u/Kingsbear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. I dont like people walking behind me so I generally let people walk ahead of me in the hall at work. I was asked by another male coworker who saw this if I was looking at womens butts and that is why I let people ahead of me. I told him no and that I just dont like people behind me. He looked at me weird. Its almost better to be thought of as a pervert to some people than to be kind of weird. -u/iamacannibal</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. As a man, being friendly to children I don’t know who say hi to me in public. It’s always a super friendly kid who is saying hi to everyone that they pass but I always feel like I’m being judged for saying hi back to them or giving a smile and a wave. -u/Existing-Reaction-50</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. When Im at the gym and Im kind of just zoned out between sets, and someone stands so that their a** is directly in my line of sight. -u/ElToberino</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Being in the womens part of a clothing store specifically the underwear section. -u/Luxray2014</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Waiting for my kids to come out of a public restroom. -u/Siracha_jizz</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Getting a random erection in public. -u/DirtJade</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173663.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Eating a popsicle or lollipop in public. -u/DanAxe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Putting my finger in someones butthole. Every single time. Ill never get used to it. (I am an MD.) -u/Dysp-_-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Helping the lost kid as a man. If my daughter or wife is not with me, I am very hesitant to approach an upset or clearly lost child by myself. There is such a huge fear that someone will mistake me for a kidnapper. -u/Ark3nfel</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. When you just got out of the gym and youre doing that heavy mouth breathing, and you happen to be waiting in line to buy something at the gas station. Im just trying to grab a Powerade lady, Im really out of breath, and Im not a pervert. Sorry. -u/pineappledaddy</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Going upstairs behind a girl thats also going up and you have to look at her a**. -u/ashirwad778</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Taking my daughter into the locker room at the YMCA. It’s a different vibe for people if you’re a man. -u/jeff_the_nurse</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Taking pictures or recording anything. My other friends have no issue in this, but I feel like an absolute creep. Its not like Im taking pictures for, Personal interest, it just feels wrong to video or picture other people, even accidentally. -u/PhilosopherOfficer</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">22 Funny Fails By Spouses</a><br>
-
-<span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Criminal.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I present my wife’s “face massager”.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. How my husband wrote the date that he opened this orange juice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. My husband decided to make a jewelry box for his mother for Christmas but got high right before drawing the initial design. I pulled this out of the recycling the next day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172695.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. I asked my husband to seal an envelope for mailing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. I’m grateful my wife does laundry often but dang, this is a whole fossil record.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. I asked my husband to buy some cheap plastic drinking cups so that we don’t always have to drink from glass cups and potentially break them while handling them. This is what he bought… (and no we don’t have kids).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172693.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. The way my wife cut the pizzas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Making tea for my wife and I in the dark. Grabbed two tea bag’s that I thought were the same. Not sure sure who got which tea. Will report which one of us pooped the bed and who slept through it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172702.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Noticed a section of the hedge had turned brown and died. Mentioned it to my husband, came home to this…</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172697.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Moved our extremely heavy King Bed headboard for the first time in 5 years. Guess which side my wife sleeps on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172694.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. My husband pulled his car over to pick this up from the ground.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. My wife eats apples from the bottom…including the core.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172696.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. My husband eats apple with a spoon. Reddit, please give it to him straight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172699.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. My wife’s 230,578 unread emails.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My wife hung this on our door and didn’t really put a lot of thought in the arm position. My girl here seems to be having fun.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. My husband made lunch for me today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172698.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. My wife’s licence plate on her Ford Edge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. My wife gave me bathbomb for Valentines called LUNA. Pretty sure they should have called it WATERBIRTH.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172700.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">28 People Who Clearly Missed the Joke</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">26 Dank Memes For Humor Enthusiasts </a><br>
-
-<span style="font-size:4em">1. If you come around here again in those damn shoe were going to dance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173196.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. I cant explain. You need to see it for yourself. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173198.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">3. I need this. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173199.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Send this to the nosy person in your group chat. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173200.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Oh man we almost feel bad for this one. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173201.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Sharks makes everything cooler, but talking sharks are undefeated. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173202.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. What a waste -  my fat a** </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173203.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173205.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">9. You know youre getting older when you use subtitles. Sorry we dont make the rules. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173206.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173207.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Ramasy from the top rope, what is that in his hands, a braised lamb? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173208.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. And down this way he have the department of proctology. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173210.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173211.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">14. hes got a point ya know. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173212.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Okay, but what is this picture? What is it taken from? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173213.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Oh right, the mistake is me. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173214.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173215.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">18. And Im moving out. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173216.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Whats your favorite club? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173217.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Who? Little old me? Oh, youre being too nice. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173218.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173219.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173220.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Now this is what we call a glow-up. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173221.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173222.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">25. His wife is going to be so pissed. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173223.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">25 Times Nature Was Downright Scary </a><br>
-
-<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
 
