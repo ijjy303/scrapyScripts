@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/25/2022-02:11:31
+Last updated: 05/25/2022-03:11:31
 <br>
 ## <a href="#linky2" id="linky1">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
@@ -117,77 +117,7 @@ Last updated: 05/25/2022-02:11:31
 
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">34 Things You Might Really Want to Own</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">34 Kicka** Pics to Change Your Perspective </a><br>
+## <a href="#linky3" id="linky2">34 Kicka** Pics to Change Your Perspective </a><br>
 
 <span style="font-size:4em">1. Khrystyna a Ukrainian biathlete changed her sports rifle. “I have no fear of the enemy. I shoot skillfully, so the invaders will not have a chance”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173832.jpg" style="width:100%"><br>
 
@@ -257,7 +187,7 @@ Last updated: 05/25/2022-02:11:31
 
 <span style="font-size:4em">34. “This pattern of bubbles in my washing up.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87173852.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
+## <a href="#linky4" id="linky3">25 People Reveal Crazy Secrets After Their NDA's Expired</a><br>
 
 <span style="font-size:4em">1. “I was working at a hospital as an Intern. There was a woman who had a brain Tumor a while a go. She got in for a check up, six months pregnant and having depression. The doctor thought he found a new Tumor so she had another brain operation. But there was no Tumor and they cut her head open for nothing. And after she woke up they didn’t tell her this, instead acted like they removed it successfully.” -123diesdas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174485.jpg" style="width:100%"><br>
 
@@ -312,63 +242,117 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">25. “Most marijuana growers, like some of the biggest companies in the world, mix their strains together regardless of policy/SOP because people are stupid and upper management doesnt give a sh*t. Stems, seeds, they dont give a flying f**k about what makes it to the end of the line. They only care about money, not product. Thats a you problem as the consumer” -D3ATH_Follows_All</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174493.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">28 People Who Clearly Missed the Joke</a><br>
+## <a href="#linky5" id="linky4">34 Things You Might Really Want to Own</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171034.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171039.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171051.gif" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171052.gif" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171053.gif" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171054.gif" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87171064.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">20 Bad Bosses Who Don’t Understand the Real World</a><br>
+
+<span style="font-size:4em">1. “My husband was promoted to his former boss’ position, and the guy left his office like this for my husband to move into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174287.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Boss gave me the keys, none of which are labeled.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174304.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Boss told me I have to come into work because they need me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174286.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “My boss’s ’inspirational’ quote on the wall...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174288.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. “A competing company is offering us 20% more to work for them. Management’s response:” The note says: “We cerealsly appreciate you! (milk is in the refrigerator)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174289.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. “My calculator broke so my boss got me a new one. I’m a bookkeeper — for people, not ants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174290.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “This week, I was told I’d be getting something that I would love and would definitely make me happy. Here’s that something.” “Been practically killing myself at work since January 3 when they laid off the one person there to help me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174291.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “This is how my boss sends me art that he wants in a flyer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174292.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Every weekend, my employer provides something in the break room for free to show employee appreciation. This weekend: unripe bananas!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174293.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Yes, that’s a metal prong in that electric socket. This is at my work, near the front of the store.” “I asked management if I could block it off, so no kids end up touching it, and they said no. Really hope no one ends up in the hospital because of this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174294.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “2 weeks of telling my boss the produce in the warehouse is going bad — Him: ’Don’t worry about it.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174295.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “My boss likes to hide behind notes instead of talking to us. Today we found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174296.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. “The way I stacked pallets for maneuverability purposes vs how my boss thinks they should be to ’save space’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174297.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “This is how my boss puts the vacuum away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174298.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My boss’s pen holder”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174299.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “I pranked my boss today about his terrible handwriting.” “I replaced all his pens with crayons and his paper with handwriting tablets for learning your ABCs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174300.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “This is my boss’s motorcycle. I jokingly asked him if he stole it off Batman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174301.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Friendly work environment”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174302.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “We have a squirrel in the ceiling at work, and my boss keeps leaving food and water out for it instead of trying to get it out.” “Guess who gets to clean its droppings every morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174303.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Boss’s dog tried to eat my co-worker’s paycheck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174305.png" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">Ex-NFL Player Gets the Best of United Airlines Worker in Fist Fight</a><br>
 
@@ -552,7 +536,65 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">26. Oh looks its me, can you let me in? </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87173224.jpeg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Totally Innocent Activities That Feel Super Creepy</a><br>
+## <a href="#linky12" id="linky11">28 People Who Clearly Missed the Joke</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024139/87173710/nojoke1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024150/87173711/nojoke4.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024201/87173712/nojoke5.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173713/nojoke2.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024209/87173714/nojoke3.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024212/87173715/nojoke6.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024221/87173716/nojoke7.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024223/87173717/nojoke8.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024232/87173718/nojoke9.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024235/87173719/nojoke10.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024243/87173720/nojoke11.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024246/87173721/nojoke12.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024254/87173722/nojoke14.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024256/87173723/nojoke13.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024306/87173724/nojoke16.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024309/87173725/nojoke17.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024317/87173726/nojoke15.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024320/87173727/nojoke18.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024329/87173728/nojoke19.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024330/87173729/nojoke20.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024340/87173730/nojoke21.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024344/87173731/nojoke22.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024352/87173732/nojoke24.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024354/87173733/nojoke23.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024404/87173734/nojoke25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024407/87173735/nojoke27.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024415/87173736/nojoke26.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/23/024418/87173737/nojoke28.png" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">25 Totally Innocent Activities That Feel Super Creepy</a><br>
 
 <span style="font-size:4em">1. Scanning a room and making accidental eye contact with someone more than once. -u/sandybutterworth420
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173647.jpg" style="width:100%"><br>
@@ -605,7 +647,59 @@ They all stayed. I was an under an NDA that precluded me from telling them that 
 
 <span style="font-size:4em">25. Sitting and mindlessly looking only to realize you’re staring at someone. -u/TheReformedSanic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173671.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">The Most Unprofessional Things Doctors Have Ever Said</a><br>
+## <a href="#linky14" id="linky13">25 Times Nature Was Downright Scary </a><br>
+
+<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">The Most Unprofessional Things Doctors Have Ever Said</a><br>
 
 <span style="font-size:4em">1. I went to the doctors to get my breasts checked (he basically just held and caressed them in a manner he wouldnt have had a chance to feel anything potentially dangerous) and due to them causing me a lot of physical pain I asked him about my options regarding breast reduction surgery. He got visibly angry and told me to never even think about it, and called them beautiful and tender. He was well in his 50s and I was 18-19. I paid like 50 dollars for master roshi to ignore my health issues and make me find another doctor who actually wanted to help people. -u/bratsbane</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173795.jpg" style="width:100%"><br>
 
@@ -673,59 +767,7 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 
 <span style="font-size:4em">12. Pediatrician looked at our toddler, standing with a swayback (lordosis) posture, then without considering anything else turned to my wife and said, she stands like that because you baby her too much. That was only our first clue that the doctor was a f*cking moron. -u/rhesusfecespieces</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87173816.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 Times Nature Was Downright Scary </a><br>
-
-<span style="font-size:4em">1. Prehistoric parasites. One of the most interesting crustacea we find along the South African coastline has to be the Tongue-eating louse (Cymothoa spingbok).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The underworld is leaking.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172251.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. The wallago attu catfish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The morning shoe check (before we put them on) saved my wife a bit of pain today.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. I freaked out a little when I met this while cross country skiing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172255.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The most metal eel ever.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A baby bat stays latched onto its mother’s breast even in flight.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Australian problems.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. These Button Plants look like creepy bloodshot eyes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. For all the naysayers who think the rest of us are paranoid.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The foot of a kangaroo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is a Wolf Eel, pure oceanic nightmare fuel.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Just here to ruin your day.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Hawk making his way through town murdering every pidgeon he can. The total is up in the double digits so far.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. A huge Banana Spider caught a Townsend’s Big-Eared Bat in its web outside a home in Poteet, Texas.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Fungi Xylaria Polymorpha aka D’ead man’s toes’.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. This guy says hi. He’s Mr Tapeworm and he had his photo taken with a microscope. Look at that toothy smile.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172266.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Crazy looking hole punch clouds over central Florida.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. These clouds are insane! They look ominous but they’re actually harmless scud clouds.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172268.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Moth infected with Cordyceps fungus.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172269.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. This is how my morning started. Wtf.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172270.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Acanthacorydalis fruhstorferi (Giant Chinese Dobson Fly).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172271.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Butterflies feasting on a dead fish.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172272.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Open Wide, Image of a Port Jackson Shark, one of our loveable critters found at Montague Island, NSW</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172273.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172274.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">22 Funny Fails By Spouses</a><br>
+## <a href="#linky16" id="linky15">22 Funny Fails By Spouses</a><br>
 
 <span style="font-size:4em">1. How my husband cut this pizza. Do I… do I stay married??</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172691.jpg" style="width:100%"><br>
 
@@ -770,46 +812,4 @@ When they put a chest drain into me my chest cavity literally sounded like it wa
 <span style="font-size:4em">21. My wife gave me bathbomb for Valentines called LUNA. Pretty sure they should have called it WATERBIRTH.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172700.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">22. My Wife Loaded the Dishwasher.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172701.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">20 Bad Bosses Who Don’t Understand the Real World</a><br>
-
-<span style="font-size:4em">1. “My husband was promoted to his former boss’ position, and the guy left his office like this for my husband to move into.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174287.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Boss gave me the keys, none of which are labeled.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174304.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Boss told me I have to come into work because they need me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “My boss’s ’inspirational’ quote on the wall...”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174288.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. “A competing company is offering us 20% more to work for them. Management’s response:” The note says: “We cerealsly appreciate you! (milk is in the refrigerator)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174289.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. “My calculator broke so my boss got me a new one. I’m a bookkeeper — for people, not ants.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “This week, I was told I’d be getting something that I would love and would definitely make me happy. Here’s that something.” “Been practically killing myself at work since January 3 when they laid off the one person there to help me.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “This is how my boss sends me art that he wants in a flyer.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174292.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Every weekend, my employer provides something in the break room for free to show employee appreciation. This weekend: unripe bananas!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Yes, that’s a metal prong in that electric socket. This is at my work, near the front of the store.” “I asked management if I could block it off, so no kids end up touching it, and they said no. Really hope no one ends up in the hospital because of this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “2 weeks of telling my boss the produce in the warehouse is going bad — Him: ’Don’t worry about it.’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “My boss likes to hide behind notes instead of talking to us. Today we found this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174296.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. “The way I stacked pallets for maneuverability purposes vs how my boss thinks they should be to ’save space’”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “This is how my boss puts the vacuum away.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174298.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My boss’s pen holder”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “I pranked my boss today about his terrible handwriting.” “I replaced all his pens with crayons and his paper with handwriting tablets for learning your ABCs.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “This is my boss’s motorcycle. I jokingly asked him if he stole it off Batman.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174301.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Friendly work environment”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174302.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “We have a squirrel in the ceiling at work, and my boss keeps leaving food and water out for it instead of trying to get it out.” “Guess who gets to clean its droppings every morning.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174303.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Boss’s dog tried to eat my co-worker’s paycheck.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174305.png" style="width:100%"><br>
 
