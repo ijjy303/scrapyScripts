@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/26/2022-02:11:31
+Last updated: 05/26/2022-03:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Facts That Sound Fake But Are True</a><br>
 
@@ -43,103 +43,31 @@ The nitrogen emissions of the maritime fleet are also probably higher than those
 
 A 1963 study found that this test was fairly accurate, to the tune of 70%. The explanation lies in pregnancy hormones which can promote seed growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175643.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">48 Fascinating Photos For Your Gandergobs</a><br>
+## <a href="#linky3" id="linky2">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">Elon Musk Facts You Probably Don't Know</a><br>
 
@@ -356,49 +284,7 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175268.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">The Often Overlooked Struggles of Being Overweight </a><br>
-
-<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">6 People Who Got Their Petty Revenge</a><br>
+## <a href="#linky7" id="linky6">6 People Who Got Their Petty Revenge</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105639/87175617/pettyrevenge21.png" style="width:100%"><br>
 
@@ -445,6 +331,56 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034044/87174970/pettyrevenge5.png" style="width:100%"><br>
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034047/87174971/pettyrevenge6.png" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">24 Tweets That Are Hot Like Fire</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">55 Random Pics to Slack Off With</a><br>
 
@@ -558,71 +494,7 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105851/87175627/87175395.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">24 Tweets That Are Hot Like Fire</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
-
-<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 Girl Facts from Guys Who’ve Been in Relationship for a While</a><br>
+## <a href="#linky10" id="linky9">25 Girl Facts from Guys Who’ve Been in Relationship for a While</a><br>
 
 <span style="font-size:4em">1. “That birth control messes with their hormones a lot” -Commenticator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174639.jpg" style="width:100%"><br>
 
@@ -676,6 +548,62 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 <span style="font-size:4em">22. “Sometimes you need to leave, like go outside and far away, so they can poop.” -StingrayRaider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174660.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">23. “That morning routine aint no joke.” -Nocturnalshadow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174661.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
+
+<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">The Often Overlooked Struggles of Being Overweight </a><br>
+
+<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
 
 ## <a href="#linky13" id="linky12">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
@@ -793,105 +721,7 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">30 Pics Packed to the Brim with NOPE</a><br>
-
-<span style="font-size:4em">1. I guess this is the good boy version of the Beebs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172833.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Im not sure if I am more impressed by the extremely risky build here... or that the local township didnt stop this project in its tracks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172824.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172825.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I mean I guess if you really really really love something... you get a tattoo of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Yeah, theres no possible way this bathing suit could backfire...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I dont even know what the heck this is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172845.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
-
-<span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. So when she asked for a present (someone women shouldnt do, they should just pick them out and have their bfs buy them) she patiently waited for her gift. Only he got the wrong type of dress. Which wouldnt have been the end of the world, but he didnt just get the wrong dress, he got one from a different culture entierlty. A point that clearly was beyond his scope of understanding. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020321/87174823/dress2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
+## <a href="#linky14" id="linky13">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
 
 <span style="font-size:4em">1. Getting into the habit of saying please and thank you. I’ve seen endless horror stories about people in retail getting sh*t on by ungrateful and rude customers, so I made a resolve to try and be as amicable and cooperative whenever I can.
 
@@ -994,4 +824,174 @@ Once they stick, youll be like glue in the workplace. Its impossible to get rid 
 <span style="font-size:4em">32. Drink water with every food item you eat, even if youre having a small snack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175502.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">33. Pick a room in your house (I chose bathroom) and every time you exit that room, do X number (I do 20) of push-ups, sit ups, whatever. I thought it seemed odd when my buddy told me he did this but after a bit you notice some changes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175503.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">30 Pics Packed to the Brim with NOPE</a><br>
+
+<span style="font-size:4em">1. I guess this is the good boy version of the Beebs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Im not sure if I am more impressed by the extremely risky build here... or that the local township didnt stop this project in its tracks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I mean I guess if you really really really love something... you get a tattoo of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Yeah, theres no possible way this bathing suit could backfire...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I dont even know what the heck this is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172845.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">48 Fascinating Photos For Your Gandergobs</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
+
+<span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. So when she asked for a present (someone women shouldnt do, they should just pick them out and have their bfs buy them) she patiently waited for her gift. Only he got the wrong type of dress. Which wouldnt have been the end of the world, but he didnt just get the wrong dress, he got one from a different culture entierlty. A point that clearly was beyond his scope of understanding. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020321/87174823/dress2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
 
