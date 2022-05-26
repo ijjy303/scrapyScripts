@@ -1,266 +1,59 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/26/2022-15:11:31
+Last updated: 05/26/2022-16:11:31
 <br>
-## <a href="#linky2" id="linky1">22 Cursed Comments to Ruin Your Day So Good</a><br>
+## <a href="#linky2" id="linky1">25 Insane Facts About the Hiroshima Bombing</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176620.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Hiroshima and Nagasaki were the only two cities in Japan during 1945 that held Catholic diocese.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175014.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176621.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The atomic bomb that detonated in Hiroshima only had 1.7 percent of its material fission and was considered very inefficient.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175015.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176622.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Twenty or more US Airmen were in Hiroshima as POWs when the Atom Bomb fell. SSG Ralph J. Neal and another Airman, Norman Brissette, survived the initial blast by jumping into a cesspool, only to die thirteen days later from radiation poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175016.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176623.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. The destruction of Hiroshima was caused by only half a gram of matter being converted to energy: the weight of a butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175017.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176624.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. The city of Hiroshima, Japan distributes seeds and saplings of trees which survived the atomic bomb as a symbol of peace and resilience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175018.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176625.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. The American public found out about the existence of the atomic bomb only sixteen hours after the bombing of Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175019.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176626.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Honolulu, Hawaii is sister cities with Hiroshima, Japan. This is because the first wave of Japanese immigrants to Hawaii arrived from Hiroshima in the late 19th century to work in the sugar industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175020.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176627.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. The United States bombing of Hiroshima and Nagasaki needed approval of the United Kingdom as stipulated in the 1943 Quebec Agreement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175021.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176628.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. In September 1945, Australian journalist Wilfred Burchett defied US restrictions and snuck into Hiroshima by train. Burchett was the first to tell the world about the effects of radiation on the victims of the bombing, which the US denied both before and after his story was published.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175022.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176629.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Kyoto was actually at the top of the list of targets for the atomic bomb, not Nagasaki nor Hiroshima. Secretary of War Henry Stimson ordered for the ancient city with its thousands of palaces, temples, and shrines to be removed from the list, but the military kept on putting it back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175023.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176630.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. The Japanese command didnt realize Hiroshima had been totally destroyed until almost a whole day after it happened. Vague reports of some sort of large explosion had begun to filter in, but the Japanese high command knew that no large-scale air raid had taken place over the city.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175024.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176631.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Dr. Seuss drew anti-Japanese cartoons during WWII. When he met the survivors of Hiroshima, he realized A person is a person no matter how small. He later created Horton Hears a Who! as an apology, dedicating it to a Japanese friend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175025.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176632.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. In World War 2, Allied bombers frequently dropped leaflets warning Japanese citizens to evacuate when they were about to bomb a city, including Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175026.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176633.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. After Japans surrender in WWII, Americans sent many Japanese soldiers returning to their homeland through Hiroshima to impress upon them how defeated Japan was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175027.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176634.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. In Japan, Hiroshima Peace Flame has been burned continuously since it was lit in 1964, and will remain lit until all nuclear bombs on the planet are destroyed and the planet is free from the threat of nuclear annihilation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175028.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176636.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Godzilla was originally created as a metaphor for the the relationship between humans and nuclear weapons. Its skin is not based on reptile scales but the burn wounds found on the survivors of the Hiroshima bombing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175029.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176637.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The same bomber group that nuked Hiroshima and Nagasaki, the 509th Composite Group, was also the first U.S. Military group to respond to the 9/11 attacks. The group was at the time (2001) and still is known as the 509th Bomb Wing, stationed in Whiteman AFB, Missouri.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175030.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176638.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. In 1927, a 12-year-old boy rode along with stunt pilot Doug Davis, throwing Baby Ruth candy bars down over a racetrack as part of a promotion. The boy loved the experience, and would grow up to be a pilot… of the Enola Gay, the plane that dropped the atomic bomb on Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175031.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2612616/87176639.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. The parts of Hiroshima and Nagasaki that were destroyed by the atomic bombs have been rebuilt and are safe to visit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175032.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/013142/87176695/cursed-comments-10.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Many US military officials, even war hawks such as Douglas MacArthur and several fleet admirals, opposed the usage of atomic bombs in Hiroshima and Nagasaki as unnecessary and cruel. Curtis LeMay even went as far as to say The atomic bomb had nothing to do with the end of the war at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175033.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/013233/87176696/cursed-comments-20.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Paul Tibbets -the pilot who dropped the Hiroshima bomb- requested not to have a grave, so anti-nuclear activists wouldnt protest on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175034.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 Historical Pics We’re Thankful Someone Had the Instinct to Take</a><br>
+<span style="font-size:4em">22. On the day of bombing of Hiroshima, within the first three seconds, thousands of people were incinerated as the temperature at the burst-point reached 60 million degrees centigrade- 10000 times hotter than the Suns surface.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175035.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Winter in 1883 was so brutal that Niagara falls literally froze over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175443.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The U.S banned books and films about the Hiroshima and Nagasaki bombings in Japan as well as all satirical cartoons of General MacArthur.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175036.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. An old Fiat factory in Italy had an entire race track on the roof. Needless to say its one of the coolest pieces of architecture weve ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175442.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Hiroshima is one of the only places outside of the United States to observe Martin Luther King Day because he wrote a letter to Japan weeks before his death, requesting to visit the county and spread his message of peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175037.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In 1974, Mary Wallace became the first ever female bus driver in Chicago Transit Authority history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175441.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Eizō Nomura is a Japanese man who survived the Hiroshima explosion in a basement only 170 meters from ground zero. He lived for another 37 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175038.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Soldiers in 1989, paying their respects to an injured veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. In 1989, citizens of Estonia, Latvia, and Lithuania formed a human chain in order to show that the countries were United. The chain was an effort to get out of the Soviet Union, and escape from communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175440.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. West Berlin residents lifting up their children so that family members who lived in East Berlin can see.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175444.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Helen Mirren looked absolutely banging as Cleopatra. What a fox. She was in her twenties when this photo was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175456.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Russian photographer Sergey Prokudin-Gorsky would take 3 individual black & white pics. This 110-year-old photo was colorized using green, red, and blue filters that he would put on each image respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175445.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Chicago in the 30s included these elevator-style parking garages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Samson Beaver and his family. Samson was a Stoney First Nation member and explorer. The photo was taken by Mary Schäffer in 1907.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A battlefield that still bears the scars of WWI. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. 1961, a German soldier assists a young boy in getting over the Berlin Wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A 1949 diesel vehicle. Engineers actually took time to think about car mechanics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. 1944, FBI finger-printing filing room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. One of the first iterations of what we now know as a motorhome, 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chernobyl on the morning of the disaster. There was so much radiation in the air that it started destroying the film immediately after it was exposed, causing the graininess. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Circa 1965, Rosa Parks takes her seat at the front of a bus after segregation was ended by the transit service. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. During construction of the Twin Towers (1970) you could actually see the core infrastructure of the buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. London, 1929. A Knocker-Up. Long before alarm clocks, this was your wake-up call. People were paid to hit windows and doors with a stick to wake up clients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Oh you know, just a casual masterpiece by Pablo Picasso. He painted this when he was 15 years old.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. 1942, models recreate American Gothic. Nan Wood Graham was actually the sister of the painter, while Byron Mckeeby was their dentist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Cologne Cathedral, March 1945. American soldiers attend mass in the wreckage and rubble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sunday best! Kids dressed for church in the 40s (Chicago.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. German officers wearing an early type of radar. It used sound to locate enemy aircrafts (1917.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Seal on King Tuts tomb. The seal was broken open in 1923. Prior to that it had remained sealed for over 3,000 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. 1967, Hanoi North Vietnam. Air raid alerts were a regular occurrence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. California, 1937. A 32-year-old mother starting a new life with her child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Column Of Marcus Aurelius. The detail is just absolutely dumbfounding, Circa A.D. 193.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Photo: Ernst Haas, Austria 1946.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175468.jpg" style="width:100%"><br>
-
-## <a href="#linky4" id="linky3">24 Tweets That Are Hot Like Fire</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
-
-## <a href="#linky5" id="linky4">6 People Who Got Their Petty Revenge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105639/87175617/pettyrevenge21.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105709/87175620/pettyrevenge22.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105650/87175618/pettyrevenge23.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105700/87175619/pettyrevenge24.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043432/87175008/pettyrevenge16.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043443/87175009/pettyrevenge17.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043503/87175011/pettyrevenge18.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043454/87175010/pettyrevenge19.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043506/87175012/pettyrevenge20.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035724/87174972/pettyrevenge7.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035735/87174973/pettyrevenge8.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035747/87174974/pettyrevenge9.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/042626/87174981/pettyrevenge10.5.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/040604/87174977/pettyrevenge12.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041441/87174978/pettyrevenge13.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041452/87174980/pettyrevenge14.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041447/87174979/pettyrevenge15.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034022/87174966/pettyrevenge1.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034025/87174967/pettyrevenge2.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034036/87174969/pettyrevenge3.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034033/87174968/pettyrevenge4.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034044/87174970/pettyrevenge5.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034047/87174971/pettyrevenge6.png" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
-
-<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">55 Random Pics to Slack Off With</a><br>
+## <a href="#linky3" id="linky2">55 Random Pics to Slack Off With</a><br>
 
 <span style="font-size:4em">1. Not gonna lie, that kebab looks good AF!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173741.jpg" style="width:100%"><br>
 
@@ -372,7 +165,7 @@ Last updated: 05/26/2022-15:11:31
 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105851/87175627/87175395.jpg" style="width:100%"><br>
 
-## <a href="#linky8" id="linky7">25 Girl Facts from Guys Who’ve Been in a Relationship for a While</a><br>
+## <a href="#linky4" id="linky3">25 Girl Facts from Guys Who’ve Been in a Relationship for a While</a><br>
 
 <span style="font-size:4em">1. “That birth control messes with their hormones a lot” -Commenticator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174639.jpg" style="width:100%"><br>
 
@@ -427,85 +220,7 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">23. “That morning routine aint no joke.” -Nocturnalshadow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174661.jpg" style="width:100%"><br>
 
-## <a href="#linky9" id="linky8">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
-
-<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">31 Sad Pics About Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174749.gif" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174776.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">22 Fresh Memes That Hold Their Dankness Well</a><br>
+## <a href="#linky5" id="linky4">22 Fresh Memes That Hold Their Dankness Well</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175248.png" style="width:100%"><br>
 
@@ -551,59 +266,171 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175268.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Things in Everyday Life That are Actually Scams</a><br>
+## <a href="#linky6" id="linky5">6 People Who Got Their Petty Revenge</a><br>
 
-<span style="font-size:4em">1. “Unlimited data! ...until you use too much in which then they slow down your data so much that you cant even watch a 480p video without slowdown. But hey, unlimited right?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174586.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105639/87175617/pettyrevenge21.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “Normal television, paying to watch ads!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174585.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105709/87175620/pettyrevenge22.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “Click here to unsubscribe to this email notification”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174584.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105650/87175618/pettyrevenge23.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Free trial! Noice. Enter your card details, DANG”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174587.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105700/87175619/pettyrevenge24.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174588.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043432/87175008/pettyrevenge16.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Online convenience fees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174589.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043443/87175009/pettyrevenge17.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “The entire wedding industry. To be clear, not marriage but weddings specifically. I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing. Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174590.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043503/87175011/pettyrevenge18.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Fashion trends, and the incredible amount of waste it creates, if everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped. (buying second hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174591.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043454/87175010/pettyrevenge19.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Claw Machines in arcades.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174592.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043506/87175012/pettyrevenge20.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “That the Fashion Industry is anything other than planned obsolescence, designed simply to get people to spend money for no reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174593.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035724/87174972/pettyrevenge7.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “One beer that costs $14 at a ballgame and its just totally basic like Miller Lite. GTFO of here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174594.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035735/87174973/pettyrevenge8.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “That large global companies actually care about you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174595.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035747/87174974/pettyrevenge9.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “Buying a star and naming it. A waste of your cash and time. The only organisation that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174596.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/042626/87174981/pettyrevenge10.5.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “Reddit awards.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174597.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/040604/87174977/pettyrevenge12.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “The subscription based economy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174598.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041441/87174978/pettyrevenge13.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174599.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041452/87174980/pettyrevenge14.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “$18 Salad lol”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174600.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041447/87174979/pettyrevenge15.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. “Mega Churches on TV and elsewhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174601.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034022/87174966/pettyrevenge1.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “Hustle culture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174602.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034025/87174967/pettyrevenge2.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “That saving the earth is in the hands of consumers and not big companies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174603.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034036/87174969/pettyrevenge3.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “How the heck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174604.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034033/87174968/pettyrevenge4.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. “Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174605.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034044/87174970/pettyrevenge5.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. “Recycling. In remote communities recyclables collected go to the dump with the rest of the garbage, because it’s not feasible to transport it thousands of km where it could potentially get used.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174606.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034047/87174971/pettyrevenge6.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. “The cost of education.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174607.jpg" style="width:100%"><br>
+## <a href="#linky7" id="linky6">24 Tweets That Are Hot Like Fire</a><br>
 
-<span style="font-size:4em">25. “Diamonds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174608.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">15 Facts That Sound Fake But Are True</a><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
+
+<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
+
+<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">15 Facts That Sound Fake But Are True</a><br>
 
 <span style="font-size:4em">1. If you thought the North Pole was cold, meet John Teufel and his colleagues who, at the National Institute of Standards and Technology in Boulder, Colorado, “squeezed” light to get atoms colder than any known temperature. They lowered the temperature of a small membrane to 360 microkelvins. That’s like 10,000 times colder than the vacuum of space.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175641.jpg" style="width:100%"><br>
 
@@ -645,7 +472,7 @@ The nitrogen emissions of the maritime fleet are also probably higher than those
 
 A 1963 study found that this test was fairly accurate, to the tune of 70%. The explanation lies in pregnancy hormones which can promote seed growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175643.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">23 Times People Got Absolutely Destroyed in the Comments</a><br>
+## <a href="#linky11" id="linky10">23 Times People Got Absolutely Destroyed in the Comments</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175775.jpg" style="width:100%"><br>
 
@@ -693,7 +520,59 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175797.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">35 Savage Memes Not For the Faint of Heart </a><br>
+## <a href="#linky12" id="linky11">25 Depressing Realizations People Had</a><br>
+
+<span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My grandpa just wanted to get to know me and the man I was becoming during his last year of life. Which I was too young and too selfish to realize.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This is coming from a firefighter: If you have to perform CPR on them, its most likely over for the patient. Im not sure if Ive made peace with it completely, but Ive accepted it at least.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My dad passed away 6 weeks ago and I will NEVER see, hear, chat or get to hug him ever again & that forever is a long time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “You can be hanging with your best friends and not realize that it is actually the last time youll ever be all together in the same room. Even just because of moving cities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “That at the end of the day, the only one I can rely on is myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Being alive is expensive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I went through 2 years of cancer treatments. I realized this after 6 cycles of chemotherapy. No one’s coming. Hardest part of my life has been realizing this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Im aging nonstop”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Im aware enough to know that there is something wrong with me. But Im not aware enough to know what it is, let alone fix it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My childhood is gone, and I have no good memory from that phase of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just because you think someone is the one, doesnt mean they think you are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realise, but almost 3 years in Im kind of okay with it. They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally. Im aware of ongoing research, but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My depression is very likely chronic. Ill be living with it for the rest of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “You can do everything perfectly and still fail completely.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That my whole life has been a waste. That if I disappeared tomorrow nobody would even know or care. I used to consciously feel the existential dread that brings, but now I just kind of ignore it and keep going on with my mechanical existence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Youre completely alone inside your own head. No one will ever be able to truly feel what you feel..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “You can fall out of love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “We are all loved conditionally.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Ill never be as attractive as I could have been if Id eaten sensibly in college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">35 Savage Memes Not For the Faint of Heart </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173899.jpeg" style="width:100%"><br>
 
@@ -764,4 +643,120 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173949.png" style="width:100%"><br>
 
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173950.jpeg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Things in Everyday Life That are Actually Scams</a><br>
+
+<span style="font-size:4em">1. “Unlimited data! ...until you use too much in which then they slow down your data so much that you cant even watch a 480p video without slowdown. But hey, unlimited right?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Normal television, paying to watch ads!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Click here to unsubscribe to this email notification”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Free trial! Noice. Enter your card details, DANG”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Online convenience fees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “The entire wedding industry. To be clear, not marriage but weddings specifically. I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing. Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Fashion trends, and the incredible amount of waste it creates, if everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped. (buying second hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Claw Machines in arcades.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “That the Fashion Industry is anything other than planned obsolescence, designed simply to get people to spend money for no reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “One beer that costs $14 at a ballgame and its just totally basic like Miller Lite. GTFO of here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “That large global companies actually care about you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Buying a star and naming it. A waste of your cash and time. The only organisation that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Reddit awards.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The subscription based economy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “$18 Salad lol”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Mega Churches on TV and elsewhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Hustle culture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That saving the earth is in the hands of consumers and not big companies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “How the heck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Recycling. In remote communities recyclables collected go to the dump with the rest of the garbage, because it’s not feasible to transport it thousands of km where it could potentially get used.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The cost of education.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Diamonds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174608.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">31 Sad Pics About Life</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174749.gif" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174776.jpg" style="width:100%"><br>
 
