@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/26/2022-00:11:31
+Last updated: 05/26/2022-01:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Facts That Sound Fake But Are True</a><br>
 
@@ -43,67 +43,31 @@ The nitrogen emissions of the maritime fleet are also probably higher than those
 
 A 1963 study found that this test was fairly accurate, to the tune of 70%. The explanation lies in pregnancy hormones which can promote seed growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175643.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">30 Pics Packed to the Brim with NOPE</a><br>
+## <a href="#linky3" id="linky2">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
 
-<span style="font-size:4em">1. I guess this is the good boy version of the Beebs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172817.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172819.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172820.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172833.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172841.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Im not sure if I am more impressed by the extremely risky build here... or that the local township didnt stop this project in its tracks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172818.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172822.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172823.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172824.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172825.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172816.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172828.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. I mean I guess if you really really really love something... you get a tattoo of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172829.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172831.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172832.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Yeah, theres no possible way this bathing suit could backfire...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172827.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. I dont even know what the heck this is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172845.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">Elon Musk Facts You Probably Don't Know</a><br>
 
@@ -209,31 +173,109 @@ A 1963 study found that this test was fairly accurate, to the tune of 70%. The e
  
 -u/Arelate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175007.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
+## <a href="#linky5" id="linky4">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Getting into the habit of saying please and thank you. I’ve seen endless horror stories about people in retail getting sh*t on by ungrateful and rude customers, so I made a resolve to try and be as amicable and cooperative whenever I can.
+
+And it really made a difference. It really helps smooth things along when both people are working together to get things done as efficiently as possible. It’s a great feeling helping make someone’s day easier. Goes to show a little bit of kindness goes a long way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175471.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Flossing. There are a lot of people who dont floss, but its an important habit to get into. Once you start flossing, youll feel gross when you dont do it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175497.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Every time you leave a room take something that doesnt belong there and put it away. As soon as it is a habit youre house will stay tidy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175472.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Drink water instead of pretty much anything else.
+
+Except coffee. Im not a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175473.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Exercise at least 3-5 times a week. You dont need to train like a an Olympic athlete. Going for a walk or jog is good enough. Do pushups and crunches right after you get up. As long as you get your heart rate up.
+
+Small steps, itll all add up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175474.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. 1) Trying to see the other persons point of view, or at least not reacting explosively negative to it when you disagree. (This helps immeasurably with in-laws.)
+
+2) knowing when to keep your mouth shut. It’s not necessary to always express an opinion or make a remark, especially when theres no hope of changing anothers viewpoint.
+
+3) It costs NOTHING to be kind, to affirm other people by recognizing them, to say please & thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175475.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Stop drinking soda. In the long run soda is bad for you and after a while of not drinking you will realize that it tastes to sweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175476.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Healthy eating. If you make it habitual, you look and feel a million times better than when you eat like c**p. You dont even crave c****y food often.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175477.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Meal planning.
+
+You save so much more money if you pre-plan what youre going to eat for the week than if you wing it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175478.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. 2 minute rule.
+
+If you see something that needs doing that will take 2 minutes or less; go ahead and do it. Put away those clothes. Pick up that toy as you walk by. Empty that dish washer when you go to get a drink. Scoop the litterbox when you go to take a p**s.
+
+Things will stay neater, youll be more organized, and youll find you have more time in the long run for stuff you want to do, instead of having to take care of stuff youve been putting off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175479.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Somewhere in Europe you pay a 10-cent deposit on all your beer bottles, my small habit of alcoholism gives me a nice return on bottles when I hand them in for recycling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175480.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Replacing items before they run out. E.g.. detergent, toilet paper, shampoo, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175481.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Brushing your teeth, your smile look good, you save money and your health, benefits quite a lot from a healthy mouth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175482.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Regularly going to the gym and eating well. I wasnt skinny because of metabolism. I was skinny because I wasnt eating and exercising enough. Im up 20 pounds since this time last year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175483.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Making a habit of being kind. Positivity that has the possibility of infinite growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175484.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Wearing daily face cream with sunscreen UV protection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175485.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Eating a little less. You don’t even have to eat better, just leave 1/4-1/3 of your food on your plate. Get a smaller bowl of ice cream. Eat one less slice of pizza. Don’t eat all the fries. If everything else stays the same you’ll lose weight, and it’s a start towards being healthier.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175486.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Making your bed in the morning. It takes 3 minutes, and it makes your room look neat and presentable, as well as giving you the feeling that you accomplished something for the day. Its easy from there to just let that productive feeling snowball into being productive in other areas in your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175487.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Most things related to hygiene. Brushing teeth, showering daily, washing your clothes regularly. Hygiene is the #1 thing that the opposite sex cares about, and the first thing people notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175488.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Sleep well.
+
+It isnt even the long run, the next morning youll become 10x better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175489.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. The concept of no zero days. On days when Im feeling lazy and unproductive, I try to do something even if its as simple reading or cleaning my room for 5 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175490.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Saving money.
+
+I have lost count of how many people who got themselves into serious debt simply because they spend more than whats necessary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175491.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Positively impact someones day. And I think thats a small habit, because you dont have to do anything huge.
+
+You could go really simple and just give a random, genuine compliment. I like that jacket.
+
+You could go slightly more advanced and compliment someone to someone else. Man, Martha has been killing it lately with her work. Theres a chance the compliment gets back to her. But even if not, youre boosting your image to the person you said that to, because of your willingness to compliment others.
+
+You could do a slightly more advanced move like complimenting someone in the form of requesting their expertise. Sam, you seem to really understand pivot tables in Excel. If you have time, do you mind showing me how they work?
+
+All 3 of those tactics are *slightly* manipulative, because you have to consciously manufacture those moments with regularity, at least at first. But they breed nothing but benefits. The other person feels better. You feel better. And youre easing that gap that separates people, unless one takes the initiative of lessening it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175492.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. A book a month</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175493.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Mine is less sugar intake. The amount that most people eat is really disruptive to our bodies. Instead of getting that ice cream, get a yogurt or fruit. :)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175494.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Take the stairs, if you have a choice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175495.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. Doing dishes at night so I wake up to a clean sink and clean dishes. I live in a tiny studio and don’t have a dishwasher so this makes a big difference for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175496.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Budget your money.
+
+That is the only solid way I know to get rich quick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175498.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. If something needs to be done, *just do it.* Most people spend more time whining about work, whether household chores or employment related tasks, than if theyd just get in there and do it. Work and productivity is not the earth-shattering concept most people, of all ages, act like it is and no type of honest work is beneath anyone. Bathrooms are dirty at your high school job? Volunteer to do it. Your roommates not cleaning the common areas? Suck it up and do it or itll just get worse because they wont do it regardless. Short-staffed at your adult job? Stay the extra thirty minutes to cover a task when everyone else acts like its moving mountains to do so.
+
+After a while, youll find theres a lot of personal satisfaction that can be found in this productivity for very little lost time in the big picture. Maybe you can only watch one episode on Netflix tonight instead of two for getting something done - so what? No, its not always going to be fair, just like nothing else in life will be either. But, you can confidently say that you are humble enough and willing enough to take ownership and pride in your piece of the world when virtually no one else does the same. And in the end, it will be noticed by the right people. You will have better friends, better relationships, and better treated as an employee because genuine people in all of these categories know just how rare this trait is in a sea of total mediocrity. And theres no special skills required, just an open attitude you can start today with at any age.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175499.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Wake up at the same time. Every. Single. Day. Even on weekends. You stop waking up tired and start waking up naturally before your alarm.
+
+Yes, I’m well aware this doesn’t work for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175500.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. Learning everyones name at work.
+
+Once they stick, youll be like glue in the workplace. Its impossible to get rid of the guy everybody loves without destroying the camaraderie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175501.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. Drink water with every food item you eat, even if youre having a small snack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175502.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. Pick a room in your house (I chose bathroom) and every time you exit that room, do X number (I do 20) of push-ups, sit ups, whatever. I thought it seemed odd when my buddy told me he did this but after a bit you notice some changes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175503.jpg" style="width:100%"><br>
 
 ## <a href="#linky6" id="linky5">22 Fresh Memes That Hold Their Dankness Well</a><br>
 
@@ -560,157 +602,7 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">The Often Overlooked Struggles of Being Overweight </a><br>
-
-<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
-
-<span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. So when she asked for a present (someone women shouldnt do, they should just pick them out and have their bfs buy them) she patiently waited for her gift. Only he got the wrong type of dress. Which wouldnt have been the end of the world, but he didnt just get the wrong dress, he got one from a different culture entierlty. A point that clearly was beyond his scope of understanding. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020321/87174823/dress2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">48 Fascinating Photos For Your Gandergobs</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">57 Radical Random Pics and Memes for Your Pleasure</a><br>
+## <a href="#linky12" id="linky11">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173588.jpg" style="width:100%"><br>
 
@@ -826,111 +718,49 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
+## <a href="#linky13" id="linky12">The Often Overlooked Struggles of Being Overweight </a><br>
 
-<span style="font-size:4em">1. Getting into the habit of saying please and thank you. I’ve seen endless horror stories about people in retail getting sh*t on by ungrateful and rude customers, so I made a resolve to try and be as amicable and cooperative whenever I can.
-
-And it really made a difference. It really helps smooth things along when both people are working together to get things done as efficiently as possible. It’s a great feeling helping make someone’s day easier. Goes to show a little bit of kindness goes a long way.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175471.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. Flossing. There are a lot of people who dont floss, but its an important habit to get into. Once you start flossing, youll feel gross when you dont do it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175497.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. Every time you leave a room take something that doesnt belong there and put it away. As soon as it is a habit youre house will stay tidy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175472.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. Drink water instead of pretty much anything else.
-
-Except coffee. Im not a monster.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175473.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. Exercise at least 3-5 times a week. You dont need to train like a an Olympic athlete. Going for a walk or jog is good enough. Do pushups and crunches right after you get up. As long as you get your heart rate up.
-
-Small steps, itll all add up.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175474.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. 1) Trying to see the other persons point of view, or at least not reacting explosively negative to it when you disagree. (This helps immeasurably with in-laws.)
-
-2) knowing when to keep your mouth shut. It’s not necessary to always express an opinion or make a remark, especially when theres no hope of changing anothers viewpoint.
-
-3) It costs NOTHING to be kind, to affirm other people by recognizing them, to say please & thank you.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175475.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Stop drinking soda. In the long run soda is bad for you and after a while of not drinking you will realize that it tastes to sweet.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175476.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. Healthy eating. If you make it habitual, you look and feel a million times better than when you eat like c**p. You dont even crave c****y food often.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175477.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Meal planning.
-
-You save so much more money if you pre-plan what youre going to eat for the week than if you wing it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175478.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. 2 minute rule.
-
-If you see something that needs doing that will take 2 minutes or less; go ahead and do it. Put away those clothes. Pick up that toy as you walk by. Empty that dish washer when you go to get a drink. Scoop the litterbox when you go to take a p**s.
-
-Things will stay neater, youll be more organized, and youll find you have more time in the long run for stuff you want to do, instead of having to take care of stuff youve been putting off.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175479.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. Somewhere in Europe you pay a 10-cent deposit on all your beer bottles, my small habit of alcoholism gives me a nice return on bottles when I hand them in for recycling.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175480.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. Replacing items before they run out. E.g.. detergent, toilet paper, shampoo, etc.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175481.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. Brushing your teeth, your smile look good, you save money and your health, benefits quite a lot from a healthy mouth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175482.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. Regularly going to the gym and eating well. I wasnt skinny because of metabolism. I was skinny because I wasnt eating and exercising enough. Im up 20 pounds since this time last year.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175483.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. Making a habit of being kind. Positivity that has the possibility of infinite growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175484.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. Wearing daily face cream with sunscreen UV protection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175485.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. Eating a little less. You don’t even have to eat better, just leave 1/4-1/3 of your food on your plate. Get a smaller bowl of ice cream. Eat one less slice of pizza. Don’t eat all the fries. If everything else stays the same you’ll lose weight, and it’s a start towards being healthier.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175486.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. Making your bed in the morning. It takes 3 minutes, and it makes your room look neat and presentable, as well as giving you the feeling that you accomplished something for the day. Its easy from there to just let that productive feeling snowball into being productive in other areas in your life.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175487.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. Most things related to hygiene. Brushing teeth, showering daily, washing your clothes regularly. Hygiene is the #1 thing that the opposite sex cares about, and the first thing people notice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175488.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. Sleep well.
-
-It isnt even the long run, the next morning youll become 10x better.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175489.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. The concept of no zero days. On days when Im feeling lazy and unproductive, I try to do something even if its as simple reading or cleaning my room for 5 minutes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175490.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Saving money.
-
-I have lost count of how many people who got themselves into serious debt simply because they spend more than whats necessary.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175491.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Positively impact someones day. And I think thats a small habit, because you dont have to do anything huge.
-
-You could go really simple and just give a random, genuine compliment. I like that jacket.
-
-You could go slightly more advanced and compliment someone to someone else. Man, Martha has been killing it lately with her work. Theres a chance the compliment gets back to her. But even if not, youre boosting your image to the person you said that to, because of your willingness to compliment others.
-
-You could do a slightly more advanced move like complimenting someone in the form of requesting their expertise. Sam, you seem to really understand pivot tables in Excel. If you have time, do you mind showing me how they work?
-
-All 3 of those tactics are *slightly* manipulative, because you have to consciously manufacture those moments with regularity, at least at first. But they breed nothing but benefits. The other person feels better. You feel better. And youre easing that gap that separates people, unless one takes the initiative of lessening it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175492.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. A book a month</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175493.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Mine is less sugar intake. The amount that most people eat is really disruptive to our bodies. Instead of getting that ice cream, get a yogurt or fruit. :)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175494.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Take the stairs, if you have a choice.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175495.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. Doing dishes at night so I wake up to a clean sink and clean dishes. I live in a tiny studio and don’t have a dishwasher so this makes a big difference for me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175496.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Budget your money.
-
-That is the only solid way I know to get rich quick.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175498.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. If something needs to be done, *just do it.* Most people spend more time whining about work, whether household chores or employment related tasks, than if theyd just get in there and do it. Work and productivity is not the earth-shattering concept most people, of all ages, act like it is and no type of honest work is beneath anyone. Bathrooms are dirty at your high school job? Volunteer to do it. Your roommates not cleaning the common areas? Suck it up and do it or itll just get worse because they wont do it regardless. Short-staffed at your adult job? Stay the extra thirty minutes to cover a task when everyone else acts like its moving mountains to do so.
-
-After a while, youll find theres a lot of personal satisfaction that can be found in this productivity for very little lost time in the big picture. Maybe you can only watch one episode on Netflix tonight instead of two for getting something done - so what? No, its not always going to be fair, just like nothing else in life will be either. But, you can confidently say that you are humble enough and willing enough to take ownership and pride in your piece of the world when virtually no one else does the same. And in the end, it will be noticed by the right people. You will have better friends, better relationships, and better treated as an employee because genuine people in all of these categories know just how rare this trait is in a sea of total mediocrity. And theres no special skills required, just an open attitude you can start today with at any age.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175499.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. Wake up at the same time. Every. Single. Day. Even on weekends. You stop waking up tired and start waking up naturally before your alarm.
-
-Yes, I’m well aware this doesn’t work for everyone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175500.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. Learning everyones name at work.
-
-Once they stick, youll be like glue in the workplace. Its impossible to get rid of the guy everybody loves without destroying the camaraderie.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175501.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. Drink water with every food item you eat, even if youre having a small snack.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175502.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. Pick a room in your house (I chose bathroom) and every time you exit that room, do X number (I do 20) of push-ups, sit ups, whatever. I thought it seemed odd when my buddy told me he did this but after a bit you notice some changes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175503.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">30 Historical Pics We’re Thankful Someone Had the Instinct to Take</a><br>
+## <a href="#linky14" id="linky13">30 Historical Pics We’re Thankful Someone Had the Instinct to Take</a><br>
 
 <span style="font-size:4em">1. Winter in 1883 was so brutal that Niagara falls literally froze over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175443.jpg" style="width:100%"><br>
 
@@ -994,4 +824,174 @@ Once they stick, youll be like glue in the workplace. Its impossible to get rid 
 
 <span style="font-size:4em">
 </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175468.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">48 Fascinating Photos For Your Gandergobs</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">30 Pics Packed to the Brim with NOPE</a><br>
+
+<span style="font-size:4em">1. I guess this is the good boy version of the Beebs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172833.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Im not sure if I am more impressed by the extremely risky build here... or that the local township didnt stop this project in its tracks.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172824.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172825.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172828.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. I mean I guess if you really really really love something... you get a tattoo of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172829.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172831.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172832.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Yeah, theres no possible way this bathing suit could backfire...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172827.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. I dont even know what the heck this is.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172845.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
+
+<span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. So when she asked for a present (someone women shouldnt do, they should just pick them out and have their bfs buy them) she patiently waited for her gift. Only he got the wrong type of dress. Which wouldnt have been the end of the world, but he didnt just get the wrong dress, he got one from a different culture entierlty. A point that clearly was beyond his scope of understanding. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020321/87174823/dress2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
 
