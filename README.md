@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/26/2022-03:11:31
+Last updated: 05/26/2022-04:11:31
 <br>
 ## <a href="#linky2" id="linky1">15 Facts That Sound Fake But Are True</a><br>
 
@@ -43,569 +43,105 @@ The nitrogen emissions of the maritime fleet are also probably higher than those
 
 A 1963 study found that this test was fairly accurate, to the tune of 70%. The explanation lies in pregnancy hormones which can promote seed growth.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175643.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
+## <a href="#linky3" id="linky2">48 Fascinating Photos For Your Gandergobs</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">Elon Musk Facts You Probably Don't Know</a><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. On Christmas Eve in 2008, SpaceX and Tesla were literally hours from bankruptcy until Elon Musk was able to secure $20M from investors in those final hours. Two days later, SpaceX won a contract with NASA worth $1.6B.
- 
--u/ProbablyHighAsShit
- 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174983.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Elon Musk, Stephen Hawking, and Steve Wozniak have all signed an open letter for a ban on Artificially Intelligent weapons.
- 
--u/Baldemoto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174984.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. As a child Elon Musk was bullied so severely he once had to be hospitalized because of a beating from other students
- 
--u/Pagefighter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174985.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Elon Musk believes that the United States is [inarguably] the greatest country that has ever existed on Earth, describing it as the greatest force for good of any country thats ever been and believes outright that there would not be democracy in the world if not for the United States
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174986.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. When Elon Musk was 28 in the year 2000 he contracted one of the most lethal forms of Malaria while on vacation in South Africa and nearly died, losing 45 pounds and taking six months to recover. He cites this near-death experience as the moment that gave him a renewed focus and energy.
- 
--u/jawny_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174987.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Elon Musk wanted Teslas Model lineup to spell SEX: Model S, Model E, Model X. However, Ford owns the term Model E, so Tesla opted for Model 3 to spell S3X
- 
--u/SIThereAndThere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174988.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Elon Musk was not an original founder of Tesla Motors
- 
--u/dmc_2930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174989.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Elon Musk explicitly wrote into SpaceXs contract with Orbital Outfitters that the that the companys new spacesuits must look “badass”.
- 
--u/Toothpaste_n_OJ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174990.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Elon Musk paid off the rent for his house during college by hosting 1,000+ sized nightclub parties and charging an admission for entry
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174991.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Elon Musk stated in an interview that he wants to die on Mars, just not on impact.
- 
--u/DioriteLover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174992.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Elon Musk was ousted as CEO of PayPal because he insisted on switching from Unix based infrastructure to Windows
- 
--u/DoTheEvolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174993.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Elon Musk went to Russia to bargain for some refurbished ICBMs to build rockets for SpaceX, he was subsequently spat on by one of the chief Russian designers and called a novice.
- 
--u/vandenbeastmode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174994.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Elon Musk was an executive producer on Thank You for Smoking
- 
--u/pabeder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174995.jpg" style="width:100%"><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Elon Musk wasnt originally going to produce electric cars, but when GM took back all their electric cars and had them all crushed, Elon was surprised to see that owners cared so much that they held a candlelight vigil for them. As if the cars had been executed
- 
--u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174996.jpeg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Elon Musk chose to attend Queens University instead of University of Waterloo (Canadas leading engineering university) because there were girls [in Queens]
- 
--u/feb914</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174997.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. A tool shop owner paid $100 for a locked abandoned storage unit, only to find the Lotus Esprit submarine prop from The Spy Who Loved Me inside. He sold it to Elon Musk for $825,000.
- 
--u/_Big_Baby_Jesus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174998.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Elon Musk took a $78 million pay cut to his Tesla Motors salary in 2014, returning all but $1
- 
--u/ShitGuysItsTheCops</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174999.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Elon Musk had to borrow money to pay rent after he spent all $180 million from PayPal
- 
--u/startupsco</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175000.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Elon Musk made a guest appearance in Iron Man 2.
- 
--u/limpinfrompimpin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175001.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. SpaceX has two autonomous drone ships that serve as landing platforms for the Falcon 9 rocket and Elon Musk personally named them just read the instructions and of course I still love you as a nod to one of his favorite sci-fi authors
- 
--u/kevinaud</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175002.jpeg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Elon Musk crashed a McLaren F1, known as the greatest automotive achievement of all time, while it was uninsured
- 
--u/lrn1995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175003.jpg" style="width:100%"><br>
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Elon Musk wrote and sold a video game, Blastar, in 1984. Musk, then 12, received $500 when its source code was published in the South African magazine PC and Office Technology.
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175004.png" style="width:100%"><br>
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Elon Musk attended Stanford college for 2 days before dropping out and starting Zip2, a company which he sold 4 years later for 307 million dollars
- 
--u/MUTHWA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175005.jpg" style="width:100%"><br>
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Elon Musk works between 80 and 90 hours a week.
- 
--deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175006.jpg" style="width:100%"><br>
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Elon Musk once told his ex-wife that she was being emotionally manipulative by grieving for their dead son.
- 
--u/Arelate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175007.jpg" style="width:100%"><br>
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">30 Historical Pics We’re Thankful Someone Had the Instinct to Take</a><br>
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">1. Winter in 1883 was so brutal that Niagara falls literally froze over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175443.jpg" style="width:100%"><br>
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. An old Fiat factory in Italy had an entire race track on the roof. Needless to say its one of the coolest pieces of architecture weve ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175442.jpg" style="width:100%"><br>
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. In 1974, Mary Wallace became the first ever female bus driver in Chicago Transit Authority history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175441.jpg" style="width:100%"><br>
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Soldiers in 1989, paying their respects to an injured veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175447.jpg" style="width:100%"><br>
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. In 1989, citizens of Estonia, Latvia, and Lithuania formed a human chain in order to show that the countries were United. The chain was an effort to get out of the Soviet Union, and escape from communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175440.jpg" style="width:100%"><br>
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. West Berlin residents lifting up their children so that family members who lived in East Berlin can see.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175444.jpg" style="width:100%"><br>
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Helen Mirren looked absolutely banging as Cleopatra. What a fox. She was in her twenties when this photo was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175456.jpg" style="width:100%"><br>
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Russian photographer Sergey Prokudin-Gorsky would take 3 individual black & white pics. This 110-year-old photo was colorized using green, red, and blue filters that he would put on each image respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175445.jpg" style="width:100%"><br>
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Chicago in the 30s included these elevator-style parking garages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175446.jpg" style="width:100%"><br>
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Samson Beaver and his family. Samson was a Stoney First Nation member and explorer. The photo was taken by Mary Schäffer in 1907.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. A battlefield that still bears the scars of WWI. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175453.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. 1961, a German soldier assists a young boy in getting over the Berlin Wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175449.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. A 1949 diesel vehicle. Engineers actually took time to think about car mechanics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175455.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. 1944, FBI finger-printing filing room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. One of the first iterations of what we now know as a motorhome, 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Chernobyl on the morning of the disaster. There was so much radiation in the air that it started destroying the film immediately after it was exposed, causing the graininess. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Circa 1965, Rosa Parks takes her seat at the front of a bus after segregation was ended by the transit service. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175454.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. During construction of the Twin Towers (1970) you could actually see the core infrastructure of the buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175461.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. London, 1929. A Knocker-Up. Long before alarm clocks, this was your wake-up call. People were paid to hit windows and doors with a stick to wake up clients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175457.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Oh you know, just a casual masterpiece by Pablo Picasso. He painted this when he was 15 years old.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175458.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. 1942, models recreate American Gothic. Nan Wood Graham was actually the sister of the painter, while Byron Mckeeby was their dentist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175459.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Cologne Cathedral, March 1945. American soldiers attend mass in the wreckage and rubble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175460.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sunday best! Kids dressed for church in the 40s (Chicago.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175462.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. German officers wearing an early type of radar. It used sound to locate enemy aircrafts (1917.)
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175469.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Seal on King Tuts tomb. The seal was broken open in 1923. Prior to that it had remained sealed for over 3,000 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175463.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. 1967, Hanoi North Vietnam. Air raid alerts were a regular occurrence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175464.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. California, 1937. A 32-year-old mother starting a new life with her child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175465.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Column Of Marcus Aurelius. The detail is just absolutely dumbfounding, Circa A.D. 193.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175466.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Photo: Ernst Haas, Austria 1946.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175467.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175468.jpg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">22 Fresh Memes That Hold Their Dankness Well</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175248.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175249.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175250.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175251.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175252.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175253.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175254.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175247.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175255.gif" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175256.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175257.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175258.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175259.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175260.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175261.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175262.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175263.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175264.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175265.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175266.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175267.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175268.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">6 People Who Got Their Petty Revenge</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105639/87175617/pettyrevenge21.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105709/87175620/pettyrevenge22.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105650/87175618/pettyrevenge23.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105700/87175619/pettyrevenge24.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043432/87175008/pettyrevenge16.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043443/87175009/pettyrevenge17.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043503/87175011/pettyrevenge18.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043454/87175010/pettyrevenge19.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043506/87175012/pettyrevenge20.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035724/87174972/pettyrevenge7.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035735/87174973/pettyrevenge8.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035747/87174974/pettyrevenge9.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/042626/87174981/pettyrevenge10.5.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/040604/87174977/pettyrevenge12.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041441/87174978/pettyrevenge13.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041452/87174980/pettyrevenge14.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041447/87174979/pettyrevenge15.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034022/87174966/pettyrevenge1.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034025/87174967/pettyrevenge2.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034036/87174969/pettyrevenge3.png" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034033/87174968/pettyrevenge4.png" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034044/87174970/pettyrevenge5.png" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034047/87174971/pettyrevenge6.png" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">24 Tweets That Are Hot Like Fire</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">55 Random Pics to Slack Off With</a><br>
-
-<span style="font-size:4em">1. Not gonna lie, that kebab looks good AF!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173743.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Good Guy Gary helping mama duck and her ducklings across a busy road.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173749.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. A tree fell over and made an impromptu bike / skateboard ramp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173750.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173751.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Reminds me of the is dis for me? memes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173744.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173755.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Uh sir, I hope you realize that is not going to put the fire out, and your day is about to go from bad to worse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. How much Taco Bell did you have sir?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. He better not ever make her mad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173768.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Sometimes life kicks you when youre down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173770.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. When you cheat with Wolverines girlfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105115/87175604/87174327.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105127/87175605/87174323.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105139/87175606/87174334.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105150/87175608/87174339.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105158/87175609/87174337.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105202/87175610/87174341.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105209/87175611/87174351.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105213/87175612/87174354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105220/87175613/87174357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105224/87175614/87174359.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105231/87175615/87174366.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105817/87175621/87175357.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105824/87175622/87175360.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105828/87175623/87175380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105835/87175624/87175364.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105840/87175625/87175387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105846/87175626/87175389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105851/87175627/87175395.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">25 Girl Facts from Guys Who’ve Been in Relationship for a While</a><br>
-
-<span style="font-size:4em">1. “That birth control messes with their hormones a lot” -Commenticator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174639.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “A good hug when “nothing” is wrong works wonders.” -Hawaii96795</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174640.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “COMMUNICATION IS THE KEY TO EVERYTHING. Seriously, if theres an unanswered question, f**king mention it and get the answer. Neither men nor women are mind readers. So many things can be avoided by just talking with the other one in the relationship. 
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174641.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174642.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Always assume ignorance over malice. Chances are whatever happened is because of assumptions made and not because one was trying to actively hurt/annoy the other. The only dumb question is the one you dont ask.” -lurking_my_ass_off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174643.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Make up is expensive as f**k.” -sheepboi13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174644.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “Bobbypins are magical items that will materialize out of thin air.” -linksflame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Actually the most valuable thing I’ve learnt is be honest. If I’m going to the pub and know I’ll be back late, just be straight up and tell it like it is. Most girls like honesty (seems fairly obvious doesn’t it). The relationship I’m in now has been by far the best because I don’t try to play games which has got me into trouble in the past. Honesty and transparency. It’s the key.” -Troblem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174645.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “They hate bras. That thing came flying as soon as the door closed behind her.” -Kooky-Experience-923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174646.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Until I actually lived with my partner it was hard to comprehend just how often a period comes, how long it lasts, and how much it can affect your day to day. What a pain in the a**. I do not envy the ladies.” -blahblahrasputan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174648.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “You don’t have enough hangers.” -ShitbashGod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174649.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “That my hoodies are actually her hoodies.” -People_call_me_sir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174650.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “An issue/argument is not a win lose situation every time. Take time to compromise and learn from each other instead.” -WHOWHATWHY_AZZ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174651.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “She can snore like a freight train.” -Realitycheck-4u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174652.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Theyre floppy like cats. You pick em up and theyre like bl000p.” -WildBilll33t</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174647.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Her hair somehow always ends up in between my butt crack. HOW?!” -carlangas91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174653.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “My french fries are her french fries.” -spontaneous-potato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174654.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Daily sunscreen, lotion your whole body in the morning.” -Shepard_Wrex14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174655.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “That penetration without clitoral stimulation doesnt do the trick for a lot of women.” -Checkersmack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “The amount of hair they shed is unreal... Not sure how they still have a full body of hair on their head after a week.” -Icy_Trip3780</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “You go through 4 times as much bathroom tissue.” -Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Dont be fooled by her constantly forgetting where her keys and phone and stuff are. Shell definitely remember what you said word-for-word on October 3rd, 2017 at 6:14PM.” -ten-oh-four</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “They shower with lava. At least thats what the water temperature felt like.” -Kooky-Experience-923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174659.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Sometimes you need to leave, like go outside and far away, so they can poop.” -StingrayRaider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “That morning routine aint no joke.” -Nocturnalshadow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174661.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
-
-<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">The Often Overlooked Struggles of Being Overweight </a><br>
-
-<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
-
-<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
-
-<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
-
-<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
-
-<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">57 Radical Random Pics and Memes for Your Pleasure</a><br>
+## <a href="#linky4" id="linky3">57 Radical Random Pics and Memes for Your Pleasure</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/24627/87173588.jpg" style="width:100%"><br>
 
@@ -721,7 +257,7 @@ Always assume ignorance over malice. Chances are whatever happened is because of
 
 <span style="font-size:4em">57. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/014229/87174818/87099789.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
+## <a href="#linky5" id="linky4">33 Little Things That Make a Huge Difference (In Your Life)</a><br>
 
 <span style="font-size:4em">1. Getting into the habit of saying please and thank you. I’ve seen endless horror stories about people in retail getting sh*t on by ungrateful and rude customers, so I made a resolve to try and be as amicable and cooperative whenever I can.
 
@@ -825,7 +361,49 @@ Once they stick, youll be like glue in the workplace. Its impossible to get rid 
 
 <span style="font-size:4em">33. Pick a room in your house (I chose bathroom) and every time you exit that room, do X number (I do 20) of push-ups, sit ups, whatever. I thought it seemed odd when my buddy told me he did this but after a bit you notice some changes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175503.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">30 Pics Packed to the Brim with NOPE</a><br>
+## <a href="#linky6" id="linky5">The Often Overlooked Struggles of Being Overweight </a><br>
+
+<span style="font-size:4em">1. Ask Reddit is like the town square of the internet. Its a place for people to get together and have honest and unfiltered conversations about what our lives are really like. And sometimes the topics can get a little real. Like this thread, where people share their experience of living life as a fat person.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030603/87174868/ask-reddit-fat-people1.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. Weve all dealt with issues when it comes to our bodies. Are we too big, are we too small? But few of us have had to face problems this head-on, and for that, we feel sympathy. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030422/87174850/ask-reddit-fat-people12.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. If you know, you know. And sure, youre thinking, well I dont treat people like this, I dont judge them by their pants size. Do you? Because if you do, then you are the scum of the Earth. Its a good reminder for many of us of what life is like for people who struggle with their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030427/87174851/ask-reddit-fat-people14.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. Keep going dude, you got this! </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030433/87174852/ask-reddit-fat-people20.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. Im guilty of being this person I have no problem admitting that. But there might be a better solution than me just sucking it up. Airlines should make the seats bigger because even though Im skinny, I hardly fit in those damn seats myself. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030438/87174853/ask-reddit-fat-people18.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. We can all relate to this one in some form or another. Maybe were having a bad hair day, maybe we packed on a few beer pounds. Or maybe were just not feeling our best selves. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030444/87174854/ask-reddit-fat-people11.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. This one hit home. If you treat people based on how they look then you need some serious help. Its not cool to judge people, especially for their weight. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030416/87174849/ask-reddit-fat-people13.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. Not sure this is an exclusively big boy issue, but maybe an age one? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030450/87174855/ask-reddit-fat-people9.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Oh man, I never thought about this. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030455/87174856/ask-reddit-fat-people7.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. Hey, can you give a brother a hand? Imagine how Shaq must feel? </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030501/87174857/ask-reddit-fat-people19.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030506/87174858/ask-reddit-fat-people5.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. I want to give this bro a hug. Put that shirt back on, and forget what people think. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030512/87174859/ask-reddit-fat-people4.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030517/87174860/ask-reddit-fat-people17.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030522/87174861/ask-reddit-fat-people16.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030529/87174862/ask-reddit-fat-people15.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030533/87174863/ask-reddit-fat-people10.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030540/87174864/ask-reddit-fat-people8.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030544/87174865/ask-reddit-fat-people6.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030551/87174866/ask-reddit-fat-people3.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. This is a theme that keeps coming up and were shocked that so many people feel this way. It must be hard loving yourself when people dont treat you with the same respect they treat others. Just heartbreaking. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/030555/87174867/ask-reddit-fat-people2.png" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">30 Pics Packed to the Brim with NOPE</a><br>
 
 <span style="font-size:4em">1. I guess this is the good boy version of the Beebs.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172817.jpg" style="width:100%"><br>
 
@@ -887,105 +465,7 @@ Once they stick, youll be like glue in the workplace. Its impossible to get rid 
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87172845.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">48 Fascinating Photos For Your Gandergobs</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175040.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175041.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175042.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175043.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175044.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175045.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175046.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175047.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175048.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175049.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175050.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175051.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175052.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175053.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175054.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175055.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175056.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175057.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175058.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175059.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175060.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175061.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175062.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175063.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175064.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175065.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175066.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175067.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175068.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175069.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175070.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175071.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175072.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175073.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175074.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175075.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175076.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175077.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175078.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175079.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175080.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175081.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175082.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175083.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175084.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175085.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175086.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175087.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
+## <a href="#linky8" id="linky7">Guy Buys The Wrong Dress For GF's 30th, Will Never Live it Down</a><br>
 
 <span style="font-size:4em">1. And if you couldnt have guessed on your own, the sub is full of insane people getting worked up over some pretty trivial stuff. No really, it was hard to find an item that wasnt just, my in-laws are poor. Or my husbands parents want to name our kid, Bradny. Now eneter this poor woman, who for her 30th birthday wanted a Kimono from her boyfriend, who we should acknowledge is a white guy. Ohh not looking good for her already. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020256/87174822/dress1.jpg" style="width:100%"><br>
 
@@ -994,4 +474,524 @@ Once they stick, youll be like glue in the workplace. Its impossible to get rid 
 <span style="font-size:4em">3. And we do get her gripe. He messed up. Thats on him, but lets be real here for a second. Her first mistake was expecting Bob ( we assume thats his name) to read her mind. And her second mistake was expecting some bloke from England to know the difference between a Kimono and a Hanbok. We are shocked that shes shocked. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020347/87174824/dress3.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">4. But then again, if he really is committed to this relationship and one-day plans on moving to Japan with her, wed hope he would have brought his A-game. And on that account, he failed miserably. So no, you are not the a**hole lady, but you are kind of naive for thinking men can be trusted to do birthday shopping unaccompanied. We hope this was a learning experience for both of them. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/020409/87174825/dress4.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">Elon Musk Facts You Probably Don't Know</a><br>
+
+<span style="font-size:4em">1. On Christmas Eve in 2008, SpaceX and Tesla were literally hours from bankruptcy until Elon Musk was able to secure $20M from investors in those final hours. Two days later, SpaceX won a contract with NASA worth $1.6B.
+ 
+-u/ProbablyHighAsShit
+ 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174983.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Elon Musk, Stephen Hawking, and Steve Wozniak have all signed an open letter for a ban on Artificially Intelligent weapons.
+ 
+-u/Baldemoto</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174984.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. As a child Elon Musk was bullied so severely he once had to be hospitalized because of a beating from other students
+ 
+-u/Pagefighter</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174985.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Elon Musk believes that the United States is [inarguably] the greatest country that has ever existed on Earth, describing it as the greatest force for good of any country thats ever been and believes outright that there would not be democracy in the world if not for the United States
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174986.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. When Elon Musk was 28 in the year 2000 he contracted one of the most lethal forms of Malaria while on vacation in South Africa and nearly died, losing 45 pounds and taking six months to recover. He cites this near-death experience as the moment that gave him a renewed focus and energy.
+ 
+-u/jawny_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174987.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Elon Musk wanted Teslas Model lineup to spell SEX: Model S, Model E, Model X. However, Ford owns the term Model E, so Tesla opted for Model 3 to spell S3X
+ 
+-u/SIThereAndThere</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174988.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Elon Musk was not an original founder of Tesla Motors
+ 
+-u/dmc_2930</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174989.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Elon Musk explicitly wrote into SpaceXs contract with Orbital Outfitters that the that the companys new spacesuits must look “badass”.
+ 
+-u/Toothpaste_n_OJ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174990.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Elon Musk paid off the rent for his house during college by hosting 1,000+ sized nightclub parties and charging an admission for entry
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174991.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Elon Musk stated in an interview that he wants to die on Mars, just not on impact.
+ 
+-u/DioriteLover</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174992.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Elon Musk was ousted as CEO of PayPal because he insisted on switching from Unix based infrastructure to Windows
+ 
+-u/DoTheEvolution</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174993.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Elon Musk went to Russia to bargain for some refurbished ICBMs to build rockets for SpaceX, he was subsequently spat on by one of the chief Russian designers and called a novice.
+ 
+-u/vandenbeastmode</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174994.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Elon Musk was an executive producer on Thank You for Smoking
+ 
+-u/pabeder</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174995.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Elon Musk wasnt originally going to produce electric cars, but when GM took back all their electric cars and had them all crushed, Elon was surprised to see that owners cared so much that they held a candlelight vigil for them. As if the cars had been executed
+ 
+-u/PM_me_Venn_diagrams</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174996.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Elon Musk chose to attend Queens University instead of University of Waterloo (Canadas leading engineering university) because there were girls [in Queens]
+ 
+-u/feb914</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174997.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A tool shop owner paid $100 for a locked abandoned storage unit, only to find the Lotus Esprit submarine prop from The Spy Who Loved Me inside. He sold it to Elon Musk for $825,000.
+ 
+-u/_Big_Baby_Jesus</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174998.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Elon Musk took a $78 million pay cut to his Tesla Motors salary in 2014, returning all but $1
+ 
+-u/ShitGuysItsTheCops</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87174999.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Elon Musk had to borrow money to pay rent after he spent all $180 million from PayPal
+ 
+-u/startupsco</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175000.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Elon Musk made a guest appearance in Iron Man 2.
+ 
+-u/limpinfrompimpin</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175001.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. SpaceX has two autonomous drone ships that serve as landing platforms for the Falcon 9 rocket and Elon Musk personally named them just read the instructions and of course I still love you as a nod to one of his favorite sci-fi authors
+ 
+-u/kevinaud</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175002.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Elon Musk crashed a McLaren F1, known as the greatest automotive achievement of all time, while it was uninsured
+ 
+-u/lrn1995</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175003.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Elon Musk wrote and sold a video game, Blastar, in 1984. Musk, then 12, received $500 when its source code was published in the South African magazine PC and Office Technology.
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175004.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. Elon Musk attended Stanford college for 2 days before dropping out and starting Zip2, a company which he sold 4 years later for 307 million dollars
+ 
+-u/MUTHWA</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175005.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Elon Musk works between 80 and 90 hours a week.
+ 
+-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175006.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Elon Musk once told his ex-wife that she was being emotionally manipulative by grieving for their dead son.
+ 
+-u/Arelate</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175007.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">55 Random Pics to Slack Off With</a><br>
+
+<span style="font-size:4em">1. Not gonna lie, that kebab looks good AF!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173743.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Good Guy Gary helping mama duck and her ducklings across a busy road.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173749.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. A tree fell over and made an impromptu bike / skateboard ramp.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173750.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173751.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Reminds me of the is dis for me? memes.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173744.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173755.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Uh sir, I hope you realize that is not going to put the fire out, and your day is about to go from bad to worse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. How much Taco Bell did you have sir?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. He better not ever make her mad.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173768.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Sometimes life kicks you when youre down.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173770.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. When you cheat with Wolverines girlfriend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2265415/87173785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105115/87175604/87174327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105127/87175605/87174323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105139/87175606/87174334.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105150/87175608/87174339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105158/87175609/87174337.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105202/87175610/87174341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105209/87175611/87174351.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105213/87175612/87174354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105220/87175613/87174357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105224/87175614/87174359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105231/87175615/87174366.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105817/87175621/87175357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105824/87175622/87175360.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105828/87175623/87175380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">52. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105835/87175624/87175364.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">53. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105840/87175625/87175387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">54. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105846/87175626/87175389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105851/87175627/87175395.jpg" style="width:100%"><br>
+
+## <a href="#linky11" id="linky10">Medical Professional Trolls Survey with Deer Porn Anecdotes</a><br>
+
+<span style="font-size:4em">1. Welp Im already intrigued.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011414/87175718/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175722/2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This just inspired me. I want to collect a gallery of bosses who think they know everything. This seems like such a regular thing. Like power-tripping bosses/managers who dont know sh*t about f**k. Its really kind of amazing that so many of them exist.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011444/87175721/3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011425/87175719/4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011436/87175720/5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The artistry of this troll-job is something that must be applauded. And the fact that the comment was never properly checked is just *chefs kiss.* Slow claps all around.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/011449/87175723/6.jpg" style="width:100%"><br>
+
+## <a href="#linky12" id="linky11">30 Historical Pics We’re Thankful Someone Had the Instinct to Take</a><br>
+
+<span style="font-size:4em">1. Winter in 1883 was so brutal that Niagara falls literally froze over.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175443.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. An old Fiat factory in Italy had an entire race track on the roof. Needless to say its one of the coolest pieces of architecture weve ever seen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175442.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In 1974, Mary Wallace became the first ever female bus driver in Chicago Transit Authority history.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175441.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Soldiers in 1989, paying their respects to an injured veteran.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. In 1989, citizens of Estonia, Latvia, and Lithuania formed a human chain in order to show that the countries were United. The chain was an effort to get out of the Soviet Union, and escape from communism.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175440.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. West Berlin residents lifting up their children so that family members who lived in East Berlin can see.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175444.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Helen Mirren looked absolutely banging as Cleopatra. What a fox. She was in her twenties when this photo was taken.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175456.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Russian photographer Sergey Prokudin-Gorsky would take 3 individual black & white pics. This 110-year-old photo was colorized using green, red, and blue filters that he would put on each image respectively.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175445.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Chicago in the 30s included these elevator-style parking garages.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Samson Beaver and his family. Samson was a Stoney First Nation member and explorer. The photo was taken by Mary Schäffer in 1907.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A battlefield that still bears the scars of WWI. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175453.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. 1961, a German soldier assists a young boy in getting over the Berlin Wall.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175449.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. A 1949 diesel vehicle. Engineers actually took time to think about car mechanics.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175455.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. 1944, FBI finger-printing filing room.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. One of the first iterations of what we now know as a motorhome, 1922.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Chernobyl on the morning of the disaster. There was so much radiation in the air that it started destroying the film immediately after it was exposed, causing the graininess. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Circa 1965, Rosa Parks takes her seat at the front of a bus after segregation was ended by the transit service. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175454.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. During construction of the Twin Towers (1970) you could actually see the core infrastructure of the buildings.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175461.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. London, 1929. A Knocker-Up. Long before alarm clocks, this was your wake-up call. People were paid to hit windows and doors with a stick to wake up clients.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175457.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Oh you know, just a casual masterpiece by Pablo Picasso. He painted this when he was 15 years old.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175458.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. 1942, models recreate American Gothic. Nan Wood Graham was actually the sister of the painter, while Byron Mckeeby was their dentist.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175459.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Cologne Cathedral, March 1945. American soldiers attend mass in the wreckage and rubble.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175460.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sunday best! Kids dressed for church in the 40s (Chicago.)</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175462.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. German officers wearing an early type of radar. It used sound to locate enemy aircrafts (1917.)
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175469.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Seal on King Tuts tomb. The seal was broken open in 1923. Prior to that it had remained sealed for over 3,000 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175463.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. 1967, Hanoi North Vietnam. Air raid alerts were a regular occurrence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175464.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. California, 1937. A 32-year-old mother starting a new life with her child.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175465.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Column Of Marcus Aurelius. The detail is just absolutely dumbfounding, Circa A.D. 193.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175466.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Photo: Ernst Haas, Austria 1946.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175467.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175468.jpg" style="width:100%"><br>
+
+## <a href="#linky13" id="linky12">Cheap Boss Trying to Deduct Employees’ Pay Gets Hit With Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025456/87174846/intro.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025358/87174836/1.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025410/87174838/2.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025404/87174837/3.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Word of advice to all bosses and managers out there; if you feel yourself leaning toward wanting to spy on your employees to save a few bucks...dont.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025416/87174839/4.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025420/87174840/5.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Im one thousand percent on the writers side here. Theres no way that can be legal.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025428/87174841/6.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025433/87174842/7.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025440/87174843/8.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025444/87174844/9.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025452/87174845/10.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. You can file this entire story under Things we absolutely love to see. Karma is a gigantic b*tch sometimes. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/025504/87174847/11.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">24 Tweets That Are Hot Like Fire</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175314.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175315.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175317.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175318.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175319.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175320.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175321.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175322.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175323.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175324.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175326.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175327.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175328.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175329.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175332.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175337.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175338.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175339.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175341.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175342.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175343.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87175344.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">25 Girl Facts from Guys Who’ve Been in Relationship for a While</a><br>
+
+<span style="font-size:4em">1. “That birth control messes with their hormones a lot” -Commenticator</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174639.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “A good hug when “nothing” is wrong works wonders.” -Hawaii96795</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174640.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “COMMUNICATION IS THE KEY TO EVERYTHING. Seriously, if theres an unanswered question, f**king mention it and get the answer. Neither men nor women are mind readers. So many things can be avoided by just talking with the other one in the relationship. 
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174641.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174642.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Always assume ignorance over malice. Chances are whatever happened is because of assumptions made and not because one was trying to actively hurt/annoy the other. The only dumb question is the one you dont ask.” -lurking_my_ass_off</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174643.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Make up is expensive as f**k.” -sheepboi13</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174644.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “Bobbypins are magical items that will materialize out of thin air.” -linksflame</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Actually the most valuable thing I’ve learnt is be honest. If I’m going to the pub and know I’ll be back late, just be straight up and tell it like it is. Most girls like honesty (seems fairly obvious doesn’t it). The relationship I’m in now has been by far the best because I don’t try to play games which has got me into trouble in the past. Honesty and transparency. It’s the key.” -Troblem</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174645.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “They hate bras. That thing came flying as soon as the door closed behind her.” -Kooky-Experience-923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174646.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Until I actually lived with my partner it was hard to comprehend just how often a period comes, how long it lasts, and how much it can affect your day to day. What a pain in the a**. I do not envy the ladies.” -blahblahrasputan</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174648.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “You don’t have enough hangers.” -ShitbashGod</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174649.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “That my hoodies are actually her hoodies.” -People_call_me_sir</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174650.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “An issue/argument is not a win lose situation every time. Take time to compromise and learn from each other instead.” -WHOWHATWHY_AZZ</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174651.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “She can snore like a freight train.” -Realitycheck-4u</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174652.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Theyre floppy like cats. You pick em up and theyre like bl000p.” -WildBilll33t</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174647.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Her hair somehow always ends up in between my butt crack. HOW?!” -carlangas91</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174653.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “My french fries are her french fries.” -spontaneous-potato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174654.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Daily sunscreen, lotion your whole body in the morning.” -Shepard_Wrex14</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174655.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “That penetration without clitoral stimulation doesnt do the trick for a lot of women.” -Checkersmack</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “The amount of hair they shed is unreal... Not sure how they still have a full body of hair on their head after a week.” -Icy_Trip3780</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “You go through 4 times as much bathroom tissue.” -Scallywagstv2</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Dont be fooled by her constantly forgetting where her keys and phone and stuff are. Shell definitely remember what you said word-for-word on October 3rd, 2017 at 6:14PM.” -ten-oh-four</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “They shower with lava. At least thats what the water temperature felt like.” -Kooky-Experience-923</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174659.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Sometimes you need to leave, like go outside and far away, so they can poop.” -StingrayRaider</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “That morning routine aint no joke.” -Nocturnalshadow</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174661.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">6 People Who Got Their Petty Revenge</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105639/87175617/pettyrevenge21.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105709/87175620/pettyrevenge22.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105650/87175618/pettyrevenge23.png" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/25/105700/87175619/pettyrevenge24.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043432/87175008/pettyrevenge16.png" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043443/87175009/pettyrevenge17.png" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043503/87175011/pettyrevenge18.png" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043454/87175010/pettyrevenge19.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/043506/87175012/pettyrevenge20.png" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035724/87174972/pettyrevenge7.png" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035735/87174973/pettyrevenge8.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/035747/87174974/pettyrevenge9.png" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/042626/87174981/pettyrevenge10.5.png" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/040604/87174977/pettyrevenge12.png" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041441/87174978/pettyrevenge13.png" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041452/87174980/pettyrevenge14.png" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/041447/87174979/pettyrevenge15.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034022/87174966/pettyrevenge1.png" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034025/87174967/pettyrevenge2.png" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034036/87174969/pettyrevenge3.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034033/87174968/pettyrevenge4.png" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034044/87174970/pettyrevenge5.png" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/24/034047/87174971/pettyrevenge6.png" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">22 Fresh Memes That Hold Their Dankness Well</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175248.png" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175249.png" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175250.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175251.png" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175252.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175253.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175254.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175247.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175255.gif" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175256.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175257.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175258.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175259.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175260.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175261.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175262.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175263.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175264.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175265.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175266.png" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175267.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87175268.jpg" style="width:100%"><br>
 
