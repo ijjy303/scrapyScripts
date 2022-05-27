@@ -1,57 +1,109 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/27/2022-13:11:31
+Last updated: 05/27/2022-14:11:31
 <br>
-## <a href="#linky2" id="linky1">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
+## <a href="#linky2" id="linky1">51 Funny Facepalms of Silly Fools</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177471/palmtheface4.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104458/87177467/palmtheface5.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104506/87177468/palmtheface3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104509/87177469/palmtheface6.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177470/palmtheface7.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104522/87177472/palmtheface8.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104446/87177466/palmtheface1.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104528/87177473/palmtheface9.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104436/87177465/palmtheface2.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104533/87177474/palmtheface10.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104540/87177475/palmtheface11.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104545/87177476/palmtheface12.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104551/87177477/palmtheface13.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104556/87177478/palmtheface14.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104602/87177479/palmtheface15.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104608/87177480/palmtheface17.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104613/87177481/palmtheface18.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104620/87177482/palmtheface16.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104624/87177483/palmtheface19.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104631/87177484/palmtheface20.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104636/87177485/palmtheface21.png" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104642/87177486/palmtheface22.png" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104647/87177487/palmtheface23.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104654/87177488/palmtheface24.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104657/87177489/palmtheface25.png" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104706/87177490/palmtheface26.png" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104708/87177491/palmtheface27.png" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104717/87177492/palmtheface28.png" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104721/87177493/palmtheface29.png" style="width:100%"><br>
+
+<span style="font-size:4em">30. Peeling banana with fruit peeler.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104730/87177494/palmtheface30.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104732/87177495/palmtheface31.png" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104741/87177496/palmtheface32.png" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104744/87177497/palmtheface33.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104752/87177498/palmtheface34.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104755/87177499/palmtheface35.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104805/87177500/palmtheface36.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104806/87177501/palmtheface37.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104816/87177502/palmtheface38.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104818/87177503/palmtheface39.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104827/87177504/palmtheface40.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104830/87177505/palmtheface41.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104838/87177506/palmtheface42.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104842/87177507/palmtheface43.png" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104849/87177508/palmtheface44.png" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104853/87177509/palmtheface46.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104900/87177510/palmtheface45.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104904/87177511/palmtheface47.png" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104912/87177512/palmtheface48.png" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104915/87177513/palmtheface49.png" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104923/87177514/palmtheface50.png" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104926/87177515/palmtheface51.png" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">23 Pics that are Plain Cringey and Sad</a><br>
 
@@ -222,187 +274,7 @@ If anything, the harsh reality is that wild elephants probably see humans as thr
 
 <span style="font-size:4em">30. The statue of flayed St. Bartholomew wearing his skin as a robe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174401.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">25 Insane Facts About the Hiroshima Bombing</a><br>
-
-<span style="font-size:4em">1. Hiroshima and Nagasaki were the only two cities in Japan during 1945 that held Catholic diocese.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175014.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The atomic bomb that detonated in Hiroshima only had 1.7 percent of its material fission and was considered very inefficient.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175015.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Twenty or more US Airmen were in Hiroshima as POWs when the Atom Bomb fell. SSG Ralph J. Neal and another Airman, Norman Brissette, survived the initial blast by jumping into a cesspool, only to die thirteen days later from radiation poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175016.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">4. The destruction of Hiroshima was caused by only half a gram of matter being converted to energy: the weight of a butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175017.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. The city of Hiroshima, Japan distributes seeds and saplings of trees which survived the atomic bomb as a symbol of peace and resilience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175018.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. The American public found out about the existence of the atomic bomb only sixteen hours after the bombing of Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175019.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Honolulu, Hawaii is sister cities with Hiroshima, Japan. This is because the first wave of Japanese immigrants to Hawaii arrived from Hiroshima in the late 19th century to work in the sugar industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175020.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. The United States bombing of Hiroshima and Nagasaki needed approval of the United Kingdom as stipulated in the 1943 Quebec Agreement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175021.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. In September 1945, Australian journalist Wilfred Burchett defied US restrictions and snuck into Hiroshima by train. Burchett was the first to tell the world about the effects of radiation on the victims of the bombing, which the US denied both before and after his story was published.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175022.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kyoto was actually at the top of the list of targets for the atomic bomb, not Nagasaki nor Hiroshima. Secretary of War Henry Stimson ordered for the ancient city with its thousands of palaces, temples, and shrines to be removed from the list, but the military kept on putting it back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175023.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. The Japanese command didnt realize Hiroshima had been totally destroyed until almost a whole day after it happened. Vague reports of some sort of large explosion had begun to filter in, but the Japanese high command knew that no large-scale air raid had taken place over the city.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175024.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Dr. Seuss drew anti-Japanese cartoons during WWII. When he met the survivors of Hiroshima, he realized A person is a person no matter how small. He later created Horton Hears a Who! as an apology, dedicating it to a Japanese friend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175025.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. In World War 2, Allied bombers frequently dropped leaflets warning Japanese citizens to evacuate when they were about to bomb a city, including Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175026.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. After Japans surrender in WWII, Americans sent many Japanese soldiers returning to their homeland through Hiroshima to impress upon them how defeated Japan was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175027.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In Japan, Hiroshima Peace Flame has been burned continuously since it was lit in 1964, and will remain lit until all nuclear bombs on the planet are destroyed and the planet is free from the threat of nuclear annihilation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175028.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Godzilla was originally created as a metaphor for the the relationship between humans and nuclear weapons. Its skin is not based on reptile scales but the burn wounds found on the survivors of the Hiroshima bombing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175029.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The same bomber group that nuked Hiroshima and Nagasaki, the 509th Composite Group, was also the first U.S. Military group to respond to the 9/11 attacks. The group was at the time (2001) and still is known as the 509th Bomb Wing, stationed in Whiteman AFB, Missouri.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175030.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. In 1927, a 12-year-old boy rode along with stunt pilot Doug Davis, throwing Baby Ruth candy bars down over a racetrack as part of a promotion. The boy loved the experience, and would grow up to be a pilot… of the Enola Gay, the plane that dropped the atomic bomb on Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175031.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. The parts of Hiroshima and Nagasaki that were destroyed by the atomic bombs have been rebuilt and are safe to visit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175032.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Many US military officials, even war hawks such as Douglas MacArthur and several fleet admirals, opposed the usage of atomic bombs in Hiroshima and Nagasaki as unnecessary and cruel. Curtis LeMay even went as far as to say The atomic bomb had nothing to do with the end of the war at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175033.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Paul Tibbets -the pilot who dropped the Hiroshima bomb- requested not to have a grave, so anti-nuclear activists wouldnt protest on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175034.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. On the day of bombing of Hiroshima, within the first three seconds, thousands of people were incinerated as the temperature at the burst-point reached 60 million degrees centigrade- 10000 times hotter than the Suns surface.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175035.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The U.S banned books and films about the Hiroshima and Nagasaki bombings in Japan as well as all satirical cartoons of General MacArthur.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175036.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Hiroshima is one of the only places outside of the United States to observe Martin Luther King Day because he wrote a letter to Japan weeks before his death, requesting to visit the county and spread his message of peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175037.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Eizō Nomura is a Japanese man who survived the Hiroshima explosion in a basement only 170 meters from ground zero. He lived for another 37 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175038.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 Most Absurd Confessions from Strangers</a><br>
-
-<span style="font-size:4em">1. Moved to a neighborhood not to long ago, and the first person I meet was an older woman in her 50s. She told me all about her drug use and how sometimes she ends up outside naked and asked if I would help her back inside and put clothes on her. This was all in 5 minutes of saying hello. -Horribleheadaches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167809.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Visited a coffee shop for the first time on holiday. Barista commented on my tattoos. I said thank you. She told me shes not allowed to get tattoos but she cuts herself to enjoy the pain and thats nearly the same thing. I found a different coffee shop for the rest of the holiday. -kyridwen
-
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167800.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Chatted with a huge middle-aged dude in a bar once who after about 2 minutes, told me that he had been in prison for bashing his dads head in with a hammer. His dad used to beat his mom and one day hed had enough of it. -RVT223</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167801.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Temporary coworker tells me she was kidnapped, raped and beaten by her ex husband. Burned with cigarettes, hands shoved in the garbage disposal, head beaten with a hammer. The incident resulted in a baby she somehow still has. And they’re not even divorced because he won’t sign the divorce papers. I work in a small town gas station, I’m trying to check out customers and she’s reciting a true crime episode to me. The conversation started with mascara recommendations. It was the craziest thing I’ve ever heard -whydidithavetobeme-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167802.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Stuck driving a coworker out to a remote gas plant to do a system install. He was kinda f**ked up but assumed it was just socially awkward IT way. Nope. He starts telling me about him and his dad collecting nazi memorabilia and how proud he was of his German grandparents. Trying to make other small talk and he would just trail off answering questions and start singing to himself. Thought for sure I’d end up on the news and a manhunt would be conducted. -Dice_to_see_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167803.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Second best story - met the neighbour right after we moved in and she started telling me about them wanting another kid but doing the deed was hard because she was overweight, and had bad knees and it just made it difficult. I’m a guy who never met her and have my kids playing mere feet away so I can’t call her batshit crazy. -Dice_to_see_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167804.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Oh, I have another one. Girl I worked with but didnt really know beyond her name. Told me she liked to hold her boyfriends penis and do the aiming for him when he took a piss. -kyridwen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167822.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. A customer explained to me the benefits of a coffee enema to heal everything from my acne to preventing cancer. I couldnt get her to leave me alone for an hour because it was dead and no one was there to help. I worked for a skincare counter in a department store.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167805.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167806.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Like if you dont need my products because cleaning your a** with coffee fixes it, why are you here? But she went on about how she started her kids on these and did their enemas until they could do theirs on their own. What. Then she also grabbed my hands and kept saying promise me youll try it. Promise me. She left after I promised. No, I didnt try it. -TenaciousToffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167807.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A guy told me during our first shift that his youngest daughter was suicidal, his eldest daughters boyfriend was terribly abusive, and his wife was sleeping with someone at her work. Apparently he’d just gotten out of jail after flying home from out of state, beating the sh*t out of his daughters boyfriend, his brothers, and his dad, driving to his wife’s work and beating the sh*t out of her boyfriend.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167808.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167810.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-Then driving to the hospital to hold his daughters hand after she had attempted suicide until the cops arrived to arrest him for aggravated assault. -mitch1832</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167811.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Had to get my picture taken for a visa so went to a local photography shop that took the pictures and printed them out for you right there. I had been talking to the guy as he worked on other peoples photos and when I finally got my picture taken he started opening up about his family.
-Apparently his son was killed 3 years ago in a car accident and he was telling me how much I reminded him of his son (going to school for engineering, 1st generation college student etc.) The son was killed in his senior year so didnt even get to graduate, he even showed me pictures it was heartbreaking.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167812.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167813.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-To make things worse he said he had a degenerative muscular disease and doctors had given him about 2-3 years before hed be bed ridden. He then went on to say his daughter was taking care of him and how she isnt married yet and deserves to live a young persons life and man, it really put into perspective how bad some people have it. I still think about that guy to this day and hope hes doing well. -EA721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167814.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. I made the unfortunate mistake of inviting my old neighbour over when we were having a party. He had like five gins in my kitchen and confessed to an unsolved murder in Nunavut, Canada. Hes in jail. -_HossBonaventureCEO_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167815.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Sat on an Amtrak across from a very sweet older man, who within twenty minutes was telling me about the purpose of his trip to Maryland: to meet his biological father, who he had discovered via 23andMe, to discuss changing his last name, which was the condition of becoming being the sole inheritor of his father’s estate. And that he was feeling a little guilty about that because his three half sisters would be excluded from their father’s will because he “finally had a legacy.” Woof. He disembarked twenty minutes later, and I have thought about it constantly for the following four years. -mom_jean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167816.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Bartender for a while. “I’m here to meet a man to cheat on my husband with.” -Oh_Archie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167817.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Once me and my friend met a dude at a party, and his icebreaker was “crack prices in the Bronx are up lately.” -unrulystowawaydotcom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167818.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Hitchhiking through New Zealand, I got picked up by a semi driver. Awesome guy, but an hour into the drive started unloading every bit of personal information he could. How he’s cheated on his wife, screwed the company out of money, stolen items… It was like I was a priest in a confession booth. When I asked him why he told me all of that, he said it’s been eating him up inside for years and telling me helped get it off of his chest. He said I had no idea who he or anyone he knew was, so it felt like I was the perfect person to unload on. -birdizthawerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167819.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. A girl I was dating mentioned that her dad was sleeping with her older sister, and that she would soon be next. That made me “the competition”. -ReasonablyConfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167820.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Used to work at a ski resort and was working in a different area than I normally work. Well this lady who I was working with found out I was slightly acquainted with her fiance and proceeded to tell me all about how his family hates her and is mean to her and all about his substance abuse issues. I dont remember all the details because it was a few years ago but she unloaded on me with every issue of her relationship and Im like Im just here to work. I didnt really even know her fiance. I avoided that lady after that. -beau8888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167821.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. My favorite ever was some stranger outside a bar. Seemed normal enough until she said My husband and I used to do meth, but we dont anymore. I applauded her on this and then she followed up with Yeah, now we only have meth weekends. -FaintCommand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167823.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. New roommate told me her current boyfriend got kicked out of college for sexual assault and was under investigation for another case of sexual assault. Wanted my opinion about it within like two hours or meeting. Completely disregarded that my opinion was “run”. -Ohnoimgonnarunoutofc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167824.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">31 Sad Pics About Life</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174773.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174739.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174740.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174741.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174742.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174745.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174746.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174747.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174748.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174749.gif" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174736.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174753.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174754.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174756.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174757.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174758.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174759.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174760.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174761.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174737.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174762.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174763.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174764.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174765.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174766.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174767.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174769.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174771.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174772.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174776.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">45 Dank n' Dirty Memes for Lowbrow Humor Enthusiasts</a><br>
+## <a href="#linky6" id="linky5">45 Dank n' Dirty Memes for Lowbrow Humor Enthusiasts</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/104356/87176532/87169589.jpg" style="width:100%"><br>
 
@@ -494,6 +366,186 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175992.jpg" style="width:100%"><br>
 
+## <a href="#linky7" id="linky6">25 Insane Facts About the Hiroshima Bombing</a><br>
+
+<span style="font-size:4em">1. Hiroshima and Nagasaki were the only two cities in Japan during 1945 that held Catholic diocese.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175014.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The atomic bomb that detonated in Hiroshima only had 1.7 percent of its material fission and was considered very inefficient.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175015.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Twenty or more US Airmen were in Hiroshima as POWs when the Atom Bomb fell. SSG Ralph J. Neal and another Airman, Norman Brissette, survived the initial blast by jumping into a cesspool, only to die thirteen days later from radiation poisoning.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175016.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">4. The destruction of Hiroshima was caused by only half a gram of matter being converted to energy: the weight of a butterfly.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175017.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. The city of Hiroshima, Japan distributes seeds and saplings of trees which survived the atomic bomb as a symbol of peace and resilience.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175018.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. The American public found out about the existence of the atomic bomb only sixteen hours after the bombing of Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175019.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Honolulu, Hawaii is sister cities with Hiroshima, Japan. This is because the first wave of Japanese immigrants to Hawaii arrived from Hiroshima in the late 19th century to work in the sugar industry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175020.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. The United States bombing of Hiroshima and Nagasaki needed approval of the United Kingdom as stipulated in the 1943 Quebec Agreement.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175021.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. In September 1945, Australian journalist Wilfred Burchett defied US restrictions and snuck into Hiroshima by train. Burchett was the first to tell the world about the effects of radiation on the victims of the bombing, which the US denied both before and after his story was published.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175022.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kyoto was actually at the top of the list of targets for the atomic bomb, not Nagasaki nor Hiroshima. Secretary of War Henry Stimson ordered for the ancient city with its thousands of palaces, temples, and shrines to be removed from the list, but the military kept on putting it back.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175023.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. The Japanese command didnt realize Hiroshima had been totally destroyed until almost a whole day after it happened. Vague reports of some sort of large explosion had begun to filter in, but the Japanese high command knew that no large-scale air raid had taken place over the city.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175024.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Dr. Seuss drew anti-Japanese cartoons during WWII. When he met the survivors of Hiroshima, he realized A person is a person no matter how small. He later created Horton Hears a Who! as an apology, dedicating it to a Japanese friend.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175025.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. In World War 2, Allied bombers frequently dropped leaflets warning Japanese citizens to evacuate when they were about to bomb a city, including Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175026.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. After Japans surrender in WWII, Americans sent many Japanese soldiers returning to their homeland through Hiroshima to impress upon them how defeated Japan was.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175027.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In Japan, Hiroshima Peace Flame has been burned continuously since it was lit in 1964, and will remain lit until all nuclear bombs on the planet are destroyed and the planet is free from the threat of nuclear annihilation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175028.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Godzilla was originally created as a metaphor for the the relationship between humans and nuclear weapons. Its skin is not based on reptile scales but the burn wounds found on the survivors of the Hiroshima bombing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175029.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. The same bomber group that nuked Hiroshima and Nagasaki, the 509th Composite Group, was also the first U.S. Military group to respond to the 9/11 attacks. The group was at the time (2001) and still is known as the 509th Bomb Wing, stationed in Whiteman AFB, Missouri.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175030.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. In 1927, a 12-year-old boy rode along with stunt pilot Doug Davis, throwing Baby Ruth candy bars down over a racetrack as part of a promotion. The boy loved the experience, and would grow up to be a pilot… of the Enola Gay, the plane that dropped the atomic bomb on Hiroshima.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175031.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. The parts of Hiroshima and Nagasaki that were destroyed by the atomic bombs have been rebuilt and are safe to visit.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175032.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Many US military officials, even war hawks such as Douglas MacArthur and several fleet admirals, opposed the usage of atomic bombs in Hiroshima and Nagasaki as unnecessary and cruel. Curtis LeMay even went as far as to say The atomic bomb had nothing to do with the end of the war at all.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175033.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Paul Tibbets -the pilot who dropped the Hiroshima bomb- requested not to have a grave, so anti-nuclear activists wouldnt protest on it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175034.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. On the day of bombing of Hiroshima, within the first three seconds, thousands of people were incinerated as the temperature at the burst-point reached 60 million degrees centigrade- 10000 times hotter than the Suns surface.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175035.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. The U.S banned books and films about the Hiroshima and Nagasaki bombings in Japan as well as all satirical cartoons of General MacArthur.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175036.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Hiroshima is one of the only places outside of the United States to observe Martin Luther King Day because he wrote a letter to Japan weeks before his death, requesting to visit the county and spread his message of peace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175037.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Eizō Nomura is a Japanese man who survived the Hiroshima explosion in a basement only 170 meters from ground zero. He lived for another 37 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175038.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">31 Sad Pics About Life</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174773.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174739.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174740.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174741.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174742.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174745.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174746.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174747.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174748.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174749.gif" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174736.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174753.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174754.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174756.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174757.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174758.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174759.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174760.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174761.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174737.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174762.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174763.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174764.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174765.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174766.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174767.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174769.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174771.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174772.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174776.jpg" style="width:100%"><br>
+
+## <a href="#linky9" id="linky8">25 Most Absurd Confessions from Strangers</a><br>
+
+<span style="font-size:4em">1. Moved to a neighborhood not to long ago, and the first person I meet was an older woman in her 50s. She told me all about her drug use and how sometimes she ends up outside naked and asked if I would help her back inside and put clothes on her. This was all in 5 minutes of saying hello. -Horribleheadaches</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167809.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Visited a coffee shop for the first time on holiday. Barista commented on my tattoos. I said thank you. She told me shes not allowed to get tattoos but she cuts herself to enjoy the pain and thats nearly the same thing. I found a different coffee shop for the rest of the holiday. -kyridwen
+
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167800.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Chatted with a huge middle-aged dude in a bar once who after about 2 minutes, told me that he had been in prison for bashing his dads head in with a hammer. His dad used to beat his mom and one day hed had enough of it. -RVT223</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167801.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Temporary coworker tells me she was kidnapped, raped and beaten by her ex husband. Burned with cigarettes, hands shoved in the garbage disposal, head beaten with a hammer. The incident resulted in a baby she somehow still has. And they’re not even divorced because he won’t sign the divorce papers. I work in a small town gas station, I’m trying to check out customers and she’s reciting a true crime episode to me. The conversation started with mascara recommendations. It was the craziest thing I’ve ever heard -whydidithavetobeme-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167802.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Stuck driving a coworker out to a remote gas plant to do a system install. He was kinda f**ked up but assumed it was just socially awkward IT way. Nope. He starts telling me about him and his dad collecting nazi memorabilia and how proud he was of his German grandparents. Trying to make other small talk and he would just trail off answering questions and start singing to himself. Thought for sure I’d end up on the news and a manhunt would be conducted. -Dice_to_see_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167803.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Second best story - met the neighbour right after we moved in and she started telling me about them wanting another kid but doing the deed was hard because she was overweight, and had bad knees and it just made it difficult. I’m a guy who never met her and have my kids playing mere feet away so I can’t call her batshit crazy. -Dice_to_see_you</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167804.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Oh, I have another one. Girl I worked with but didnt really know beyond her name. Told me she liked to hold her boyfriends penis and do the aiming for him when he took a piss. -kyridwen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167822.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. A customer explained to me the benefits of a coffee enema to heal everything from my acne to preventing cancer. I couldnt get her to leave me alone for an hour because it was dead and no one was there to help. I worked for a skincare counter in a department store.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167805.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167806.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Like if you dont need my products because cleaning your a** with coffee fixes it, why are you here? But she went on about how she started her kids on these and did their enemas until they could do theirs on their own. What. Then she also grabbed my hands and kept saying promise me youll try it. Promise me. She left after I promised. No, I didnt try it. -TenaciousToffee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167807.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A guy told me during our first shift that his youngest daughter was suicidal, his eldest daughters boyfriend was terribly abusive, and his wife was sleeping with someone at her work. Apparently he’d just gotten out of jail after flying home from out of state, beating the sh*t out of his daughters boyfriend, his brothers, and his dad, driving to his wife’s work and beating the sh*t out of her boyfriend.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167808.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167810.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+Then driving to the hospital to hold his daughters hand after she had attempted suicide until the cops arrived to arrest him for aggravated assault. -mitch1832</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167811.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Had to get my picture taken for a visa so went to a local photography shop that took the pictures and printed them out for you right there. I had been talking to the guy as he worked on other peoples photos and when I finally got my picture taken he started opening up about his family.
+Apparently his son was killed 3 years ago in a car accident and he was telling me how much I reminded him of his son (going to school for engineering, 1st generation college student etc.) The son was killed in his senior year so didnt even get to graduate, he even showed me pictures it was heartbreaking.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167812.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167813.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+To make things worse he said he had a degenerative muscular disease and doctors had given him about 2-3 years before hed be bed ridden. He then went on to say his daughter was taking care of him and how she isnt married yet and deserves to live a young persons life and man, it really put into perspective how bad some people have it. I still think about that guy to this day and hope hes doing well. -EA721</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167814.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I made the unfortunate mistake of inviting my old neighbour over when we were having a party. He had like five gins in my kitchen and confessed to an unsolved murder in Nunavut, Canada. Hes in jail. -_HossBonaventureCEO_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167815.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Sat on an Amtrak across from a very sweet older man, who within twenty minutes was telling me about the purpose of his trip to Maryland: to meet his biological father, who he had discovered via 23andMe, to discuss changing his last name, which was the condition of becoming being the sole inheritor of his father’s estate. And that he was feeling a little guilty about that because his three half sisters would be excluded from their father’s will because he “finally had a legacy.” Woof. He disembarked twenty minutes later, and I have thought about it constantly for the following four years. -mom_jean</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167816.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Bartender for a while. “I’m here to meet a man to cheat on my husband with.” -Oh_Archie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167817.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Once me and my friend met a dude at a party, and his icebreaker was “crack prices in the Bronx are up lately.” -unrulystowawaydotcom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167818.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Hitchhiking through New Zealand, I got picked up by a semi driver. Awesome guy, but an hour into the drive started unloading every bit of personal information he could. How he’s cheated on his wife, screwed the company out of money, stolen items… It was like I was a priest in a confession booth. When I asked him why he told me all of that, he said it’s been eating him up inside for years and telling me helped get it off of his chest. He said I had no idea who he or anyone he knew was, so it felt like I was the perfect person to unload on. -birdizthawerd</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167819.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. A girl I was dating mentioned that her dad was sleeping with her older sister, and that she would soon be next. That made me “the competition”. -ReasonablyConfused</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167820.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Used to work at a ski resort and was working in a different area than I normally work. Well this lady who I was working with found out I was slightly acquainted with her fiance and proceeded to tell me all about how his family hates her and is mean to her and all about his substance abuse issues. I dont remember all the details because it was a few years ago but she unloaded on me with every issue of her relationship and Im like Im just here to work. I didnt really even know her fiance. I avoided that lady after that. -beau8888</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167821.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. My favorite ever was some stranger outside a bar. Seemed normal enough until she said My husband and I used to do meth, but we dont anymore. I applauded her on this and then she followed up with Yeah, now we only have meth weekends. -FaintCommand</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167823.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. New roommate told me her current boyfriend got kicked out of college for sexual assault and was under investigation for another case of sexual assault. Wanted my opinion about it within like two hours or meeting. Completely disregarded that my opinion was “run”. -Ohnoimgonnarunoutofc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167824.jpg" style="width:100%"><br>
+
 ## <a href="#linky10" id="linky9">Celebrities People Aren't Used To Seeing Young</a><br>
 
 <span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
@@ -526,69 +578,7 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">30 Weird Things Being Sold Online</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">25 People Who Realized Disturbing Truths</a><br>
+## <a href="#linky11" id="linky10">25 People Who Realized Disturbing Truths</a><br>
 
 <span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
 
@@ -640,123 +630,7 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">20 Things That are Oddly Terrifying</a><br>
-
-<span style="font-size:4em">1. Wild turkeys walking in a circle around a dead cat in the middle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013240/87177677/oddlyterrifying2.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Raccoons.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013251/87177678/oddlyterrifying3.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Minotaur statue found at the bottom of a lake.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013302/87177679/oddlyterrifying1.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. This Road In Northern Ireland!</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013313/87177680/oddlyterrifying5.png" style="width:100%"><br>
-
-<span style="font-size:4em">5. An optical illusion head tattoo.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013322/87177681/oddlyterrifying4.png" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013324/87177682/oddlyterrifying6.png" style="width:100%"><br>
-
-<span style="font-size:4em">7. Somewhere in Australia... because f*** you, thats why.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013333/87177683/oddlyterrifying8.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013335/87177684/oddlyterrifying7.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013344/87177685/oddlyterrifying10.png" style="width:100%"><br>
-
-<span style="font-size:4em">10. I spent hours trying to get a text to image AI to work on my computer. With the prompt “dog with tennis ball” it took all night to pop this monstrosity out.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013346/87177686/oddlyterrifying9.png" style="width:100%"><br>
-
-<span style="font-size:4em">11. The mushroom Xylaria polymorpha, also known as dead mans fingers.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013355/87177687/oddlyterrifying11.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. Original Winnie the Pooh toys from 1920s.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013357/87177688/oddlyterrifying12.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. A Japanese artist created a fully articulating action figure by splicing together pieces cut from 7 rubber duckies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013406/87177689/oddlyterrifying13.png" style="width:100%"><br>
-
-<span style="font-size:4em">14. Dr. Phil without his moustache.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013409/87177690/oddlyterrifying14.png" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013416/87177691/oddlyterrifying15.png" style="width:100%"><br>
-
-<span style="font-size:4em">16. Pulled a couple ticks off my dog just now. She didn’t have any 4 hrs ago.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013420/87177692/oddlyterrifying16.png" style="width:100%"><br>
-
-<span style="font-size:4em">17. Finding out 99.82% of the people who consume your content are actually just machines</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013429/87177693/oddlyterrifying17.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. Ice cream Pinocchio.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013431/87177694/oddlyterrifying18.png" style="width:100%"><br>
-
-<span style="font-size:4em">19. How this neighborhood looks straight out of a video game.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013440/87177695/oddlyterrifying19.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. This restroom I came across at a nightclub in Las Vegas.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/013442/87177696/oddlyterrifying20.png" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">28 Images to Lift Your Spirits</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177300.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177277.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177276.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177278.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177279.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177280.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177281.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177282.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177283.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177284.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177285.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177286.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177287.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177288.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177289.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177290.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177291.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177292.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177274.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177293.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177294.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177275.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177295.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177296.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177297.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177298.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177299.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177301.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
-
-<span style="font-size:4em">1. Would you look at that. What a lovely day to be topside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Oh no. That...that doesnt look good. Maybe someone should take a look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Imagine just strolling along the deck, and outside of your window you see this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Another view...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And another..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Alright, this is getting really aggressive. Someone might want to take a look at this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Cool, or well just watch this thing burn. Glad we chose Carnival, good call honey!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177449.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">25 Toxic Traits Women Get Away With</a><br>
+## <a href="#linky12" id="linky11">25 Toxic Traits Women Get Away With</a><br>
 
 <span style="font-size:4em">1. Last week: 3 women admiring my fiancé’s new engagement ring (which is a bit flashy)My fiancé tells them it’s lab-made, which is what she wantedOne of them responded with “Oh, that doesn’t count then”-u/VertibirdGoBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176097.jpg" style="width:100%"><br>
 
@@ -808,7 +682,153 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">56 Kickass Pics and Photos for Your Amusement</a><br>
+## <a href="#linky13" id="linky12">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">30 Unfortunate Names Parents Gave to Children</a><br>
+
+<span style="font-size:4em">1. Ohnasti.
+
+Supposedly pronounced “Honesty” but all I’ll ever see is “Oh Nasty!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. One little girl got her name legally changed in court, because her parents named her Talula Does The Hula From Hawaii.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Abcde (pronounced Ab-city).</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Any name based on a popular TV series or movie. Like, if I see your daughter is named Khaleesi, I think significantly less of you as a person.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Not so much a specific name, but gross butcherings of names. Ie. Kaightlynne instead of Caitlyn.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Renesmee</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. I was once checking in a customer for service.
+
+EmoChanel
+
+And she was very proud of it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. I was on a little league baseball team with these two brothers named Doer and Achiever.
+
+Talk about pressure to perform, those parents had expectations.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. So my Wife was giving birth to our first Son and the midwife asked if we’d chosen a name yet. We said yes and told her ‘Seth’. She replied “Oh thank goodness, a normal name! The last woman in here named her child Precious Bunny!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. I used to write on cakes, the worst name I ever saw was Tuba Poo. I asked if it was a nickname, it was not. Its been like 6 years and it still haunts me. Her mothers name was Natalie, why Natalie? Why?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. A co-worker has a friend who named her daughters Vengeance and Violence.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The overly matchy names to the point of ridiculousness. My top example is a set of brothers named Romance, Romantic, and Romeo.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Back when I worked with children, I met a young lass named Younique. I felt sorry for her. She was only 4-5 at the time, and the moment she entered school, she began to hate it because the other children thought that it was silly and wouldn’t play with her. Eventually, the dad of another child said that it was a bad name *to her face.* Seriously. Don’t do things like this to your children. They aren’t pets. They’ll have to deal with the repercussions of your bad naming choices.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Someone I know is a nurse in the ER so theyve delivered quite a few babies. But one day they said that one set of parents decided to name their kid Ssss. You pronounce Ssss, Forest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Baby. As in the Dirty Dancing lead female. Because nobody in the professional world is going to want their name to be Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Kash. It isnt the worst name in the world but the fact his second name was Ransom, made it a whole lot worse.
+
+Kash Ransom.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Saw a fun name on the attendance sheet (so this is official) of one of my classes: Daddyboi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. MyLuv (yes, I have met a kid named this). That poor kid is probably not going to be successful, unless they change their name later on.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. I went to high school with a one Crystal Shanda Lear.
+
+This was back before dumb names were the rage. She would have been named that in, say, 81-82. Poor girl. I dont know that I lost respect for the parents so much as felt bad for her to be saddled with that s**t.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. I lose respect for parents who give their kids first names that when added to their given last names become horrible. The parents dont even care that their kid has to live with it. Two real examples Ive come across are Richard Sieman (The guys name is D**k Semen, for f***s sake.) And even worse, Desire Cox.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Anaesthasia. No s**t. Her name on her school documents was Anaesthasia.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177401.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. One of my former employees had the first name “Baby Destiny.” Yes. Really.
+
+Worse still, HR just put “Baby” on her name badge. For every time I had to catch myself and say the full name so I didn’t sound like a creep, I can only imagine how many other people didn’t realize there were two words in her name and had to refer to her as just Baby. Or how she must have felt to have EVERYONE calling her Baby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177402.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Royalty. Legit worked with this hood dude named royalty. I think it kinda speaks for itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177403.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. You know the Duggar family (19 Kids and Counting)? One of their daughters named their son Spurgeon. SPURGEON.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177404.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. I knew three sisters names -Autumn-Breeze, Summer-Skye and April-Rain.
+
+Bonus addition one of them had a kid and named it Gidget.
+
+Edit for those wondering: This is in Eastern Canada.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177405.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. One time when I was working at a motel, I took a reservation over the phone from a woman for her daughter:
+
+Woman: Her name is Sri Lanka, S R I space L A N K A...
+
+Me: Oh, you mean like the country!
+
+Woman: Whaddaya mean, country?!?</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. There is a kid at my school literally named Shadow Black.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Tequila, but pronounced tuh-quill-uh</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Strap in and prepare for rough seas!
+
+My mom is a midwife and one day she came home with what she thought was the epitome of dumb names.
+
+These parents had just gotten back from a trip to the states, where they had visited a dock to look at boats, and one of those beautiful boats had an even more beautiful and exotic name, they wanted to name their baby daughter after this boat.
+
+Usnavy
+
+My mom is a saint for not laughing.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. Prancer and Vixen for babies born during the Christmas season.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177410.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">56 Kickass Pics and Photos for Your Amusement</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175824.jpg" style="width:100%"><br>
 
@@ -921,4 +941,124 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 <span style="font-size:4em">55. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/125746/87176651/87176385.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/125748/87176652/87176389.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">Beer Facts for Casual Drinkers and Alcoholics Alike</a><br>
+
+<span style="font-size:4em">1. Colt 45 was named after the Baltimore Colts, and not the gun by the same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020104/87177717/colt.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. The MLB told Cardinals owner August Busch Jr. that he couldnt name their field Budweiser Stadium. He did however use his familys name, and had them brew a beer after the fact. Hence Busch Beer and Busch Stadium.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177719/buschstadium.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. In a blind taste testing, beer enthusiasts couldnt actually tell if a beer was poured from a can or a bottle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177720/bottlecan.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. April Fools Day 2012, the Rocky Mountain Oyster Stout was released. The beer is 7.5% ABV and contains roasted bull testicles.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020052/87177716/balls.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Egyptians would hold what was known as the feast of drunkenness. It was to commemorate beer saving humanity. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020126/87177721/egyptian.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. During WWII, the British built a floating brewery to keep soldiers morale high.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020134/87177722/floating.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Multiple breweries have created their own versions of The Simpsons beer. Most were also met with lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020115/87177718/duff.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Since 2011, Fosters Lager has been brewed in Texas and was sued in 2015 for their slogan Australian for beer. Which implies its an imported beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020135/87177723/fosters.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A town-crier was hired in Goslar, Germany to remind the townspeople not to poop or pee in the river the day before water was used for brewing beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020137/87177724/goseriver.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Beer bottles are typically brown in order to keep out the sun and preserve the taste. However, after WWII brown glass was scarce so breweries switched to green instead.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020145/87177725/greenbottle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Mainly in Britain, Isinglass (dried fish bladder) is used to clarify beer and wine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020147/87177726/isinglass.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mari Lwyd is a Welsh Christmas tradition where a singing horse skull shows up at your house to determine if it can come inside and drink your beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020148/87177727/marilwyd.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. The beer mile is an event where runners drink a pint of beer at each quarter-mile marker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020156/87177728/mile.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. During fasts, Medieval Monks would drink beer because it didnt count as food.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020158/87177729/monks.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In 1985 an alcoholic hijacker drank all of the beer on a Norwegian plane and held the passengers ransom for more alcohol.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020200/87177730/norway.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. In multiple countries, kids leave out beer and other spirits for Santa Clause instead of milk and cookies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020207/87177731/santa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. It is impossible to drink beer in space, as it will turn to foam.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020209/87177732/space.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 23 beer can tabs when traded in are worth 1 cent. A pound of tabs comes out to about 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020211/87177733/tabs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A goat in Valhalla was thought by Vikings to provide them with mead/beer directly from its udders.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020218/87177734/vikings.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Children in Wisconsin can legally drink at any age, as long as they are accompanied by a parent or guardian.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020220/87177735/wisconsin.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">30 Weird Things Being Sold Online</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
+
+<span style="font-size:4em">1. Would you look at that. What a lovely day to be topside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Oh no. That...that doesnt look good. Maybe someone should take a look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Imagine just strolling along the deck, and outside of your window you see this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Another view...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. And another..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Alright, this is getting really aggressive. Someone might want to take a look at this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Cool, or well just watch this thing burn. Glad we chose Carnival, good call honey!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177449.jpg" style="width:100%"><br>
 
