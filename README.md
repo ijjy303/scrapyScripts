@@ -1,37 +1,57 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/27/2022-07:11:31
+Last updated: 05/27/2022-08:11:31
 <br>
-## <a href="#linky2" id="linky1">Celebrities People Aren't Used To Seeing Young</a><br>
+## <a href="#linky2" id="linky1">25 Toxic Traits Women Get Away With</a><br>
 
-<span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Last week: 3 women admiring my fiancé’s new engagement ring (which is a bit flashy)My fiancé tells them it’s lab-made, which is what she wantedOne of them responded with “Oh, that doesn’t count then”-u/VertibirdGoBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Anjelica Huston - Probably best known for her roles in The Addams Family and The Witches. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165205.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Trying to dodge responsibility and accountability for bad behavior by shouting if you cant handle me at my worst you dont deserve me at my best.-u/neobeguine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. John Lithgow -  Best know for his role on #3rd Rock From the Sun, John Lithgow has two Golden Globe Awards, six Primetime Emmy Awards, three Screen Actors Guild Awards, two Tony Awards and nominations for two Academy Awards </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165206.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. My ex-boss (female) who spoke about feminism and woman empowerment and then gave my female colleague anxiety attacks though persistent bullying.-u/peoplecallmedude797</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Charlotte Rampling - Tessa Charlotte Rampling OBE is an English actress, model, and singer, known for her work in European arthouse films in English, French, and Italian. An icon of the Swinging Sixties, she began her career as a model and later became a fashion icon and muse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165207.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Ive started reading a lot of forums of expecting mothers and mothers, and is terrifying to see how much pressure there is regarding birthing and motherhood: youll never be a proper mother if you have a c-section; you will never bond properly/be a good mother if you dont breastfeed; if you dont do X or Y or Z your child will be unhappy/unloved/will die and it will be your fault.And measuring a womans worth over the power of their vaginas: shame on you for doing IVF, there must be something wrong if you had only miscarriages, adopting is fine, but is the acceptance of failure, bio moms are best moms.-u/Kaliforniah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Barbara Hershey - Barbara Lynn Herzstein, better known as Barbara Hershey, is an American actress. In a career spanning more than 50 years, she has played a variety of roles on television and in cinema in several genres, including westerns and comedies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165208.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Makeup and fashion fans bullying you for how you show your femininity and performing it not being your priority. If your makeup is not flawless and in trend, not okay. If you dont wear feminine, flattering clothes, not okay.-u/throwaway_thursday32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Stan Lee - RIP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165209.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. If you gave birth through c-section, youre not a real mom.What. The. F*ck? Suddenly 9 months of pregnancy, a terrifying procedure and caring for a newborn doesnt count because MacDuff from his mothers womb was untimely ripped? Whose baby is this then, since apparently, no mothers are present?-u/CaptValentine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Frances Fisher - Frances Louise Fisher is a British-born American actress. She began her career in theatre and later starred as record executive Suzette Red Saxon in the CBS daytime soap opera The Guiding Light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165210.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Shaming other girls/women for not doing/liking the same things you do and implying that their preferences make them not real women or similar. Basically saying that your way to be a woman is the only valid way.-u/rinky79</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176103.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Annette O’Toole - Annette OToole is an American actress. She is known for portraying Lisa Bridges in the television series Nash Bridges, Beverly Marsh in the 1990 television mini-series adaptation of Stephen Kings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165211.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Queen bee bullying at the workplace. Basically, letting high school never end. About 60% of women experience it.Men bully as well, but women bullying women isnt even acknowledged as a problem most of the time.-u/raxeira-etterath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176104.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. Mary Steenburgen. Mary Nell Steenburgen is an American actress, comedian, singer, and songwriter. After studying at New Yorks Neighborhood Playhouse in the 1970s, she made her professional acting debut in 1978 Western comedy film Goin South</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165212.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Whatever is happening in Facebook birthing/mom groups. Some women are so out of touch with reality and high on toxic femininity that they think their uteruses are better than any doctor and that their feminine intuition supersedes any medical testing or intervention available today. Women are being brainwashed into skipping fetal testing and to avoid medical intervention even in life or death situations. It is literally killing mothers and babies and injuring a lot more.-u/no_ovaries_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Kristin Scott Thomas - Dame Kristin Ann Scott Thomas DBE is a British actress who also holds French citizenship. A five-time BAFTA Award and Olivier Award nominee, she won the BAFTA Award for Best Actress in a Supporting Role</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165213.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Basically expecting a partner to put up with your drama as proof of them actually being into you/making them jump through hoops to prove they’re into you.-u/Laleena_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Gena Rowlands - Virginia Cathryn Gena Rowlands is a retired American actress, whose career in film, stage, and television has spanned seven decades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165214.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. I see a lot of body-positive women that sh*t on my girlfriend for working out and keeping her body hairless. They always say she should be more loving of her body and embrace her body hair.It’s annoying. She does it cause SHE likes it. She goes to the gym and does deadlifts cause it empowers her and makes her feel AMAZING. Like, we all have different ideals and visions for our life. And after moisturizing herself and shaving she likes to rub her legs together like a cricket, and nobody should be taking that little slice of heaven from her.-u/Euowol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. James Naughton - James Naughton is an American actor and director known for his work on Planet of the Apes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165216.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. All other girls are b*tches If youre a girl and think that, thats a you problem-u/Frogs-r-fun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Vanessa Redgrave - Dame Vanessa Redgrave DBE is an English actress and activist. Throughout her career spanning over six decades, Redgrave has garnered numerous accolades, including an Academy Award</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165217.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Girls who hit guys because they know the guy won’t hit them back-u/Snu99lyN1pples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Susan Sullivan - Susan Michaela Sullivan is an American actress. Sullivan is best known for her roles as Lenore Curtin Delaney on the NBC daytime soap opera Another World, as Lois Adams on the ABC sitcom Its a Living. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165218.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Being unable to critize another woman for sh*t she did since women support each other. Has the exact same energy as frat guys saying bro code.-u/Bi_Aint_Shi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Is it just me or is the term “Happy wife, happy life!” a little messed up? I’ve mostly been told this from women but idk it sounds purely a way to be controlling of your partner-u/Public-Juggernaut-56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Believing that its a mans job to impress her when shes dating. F*ck that, if you like someone ACT AS THOUGH YOU LIKE THEM. Dating is an equal exchange of time and emotional labor, if she feels like she needs further financial compensation beyond that (paying for the food/show/whatever it is) then maybe she doesn’t like him enough.-u/BrainHurtingJuice129</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Abusive or possessive behavior, not only towards their husband/wife, but also towards friends and family.The classic “if you scream at me, I’ll call the police and tell them you hit me even though I’m the wrong here”-u/Strong_Month_3534</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Testing. This applies to testing their romantic partners just as much as their friends/family. Where they intentionally put someone in a situation that is rigged against them in order to judge them in some fashion based on their reaction.Im not claiming this is a feminine-only trait, but in my personal experience Ive seen it come from women much more than men.My sisters friend recently gave her permission to pursue a guy they were mutually attracted to. My sister did, and it turned out that the friend was only testing to see if my sister was a real friend or not. Yikes.-u/Aequitas2116</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Just dropping an ‘I hate men’ into a conversation with male coworkers. I have no idea how to respond to it and feel bad.-u/WHOOPS_WHOOPSIE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Expecting all the affection and love in the world from their boyfriends and never showing a glimpse of it towards them. Men DO have feelings you know?-u/nabedid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Fake domestic violence or rape accusations-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Slut-shaming other women and buying into the Madonna-whore dichotomy.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sh*tting on stay at home moms or Sex Workers because you dont understand their choices. Feminism means we all get to choose our own path. Not everyone wants a high-powered career and thats Ok.-u/OlderWiserLesbian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Mother hens (matriarchs) controlling their group of friends: where they do, what they do, who they meet and associate with. Controlling people’s behavior basically-u/heatseekerdj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176120.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
 
 ## <a href="#linky3" id="linky2">25 Insane Facts About the Hiroshima Bombing</a><br>
 
@@ -85,7 +105,117 @@ Last updated: 05/27/2022-07:11:31
 
 <span style="font-size:4em">25. Eizō Nomura is a Japanese man who survived the Hiroshima explosion in a basement only 170 meters from ground zero. He lived for another 37 years.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87175038.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
+## <a href="#linky4" id="linky3">23 Times People Got Absolutely Destroyed in the Comments</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175775.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175776.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175779.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175774.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175777.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175778.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175780.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175781.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175783.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175784.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175782.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175785.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175786.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175788.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175787.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175789.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175790.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175792.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175791.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175795.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175794.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175796.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175797.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">30 Awe Inspiring Photos of Our Fascinating World </a><br>
+
+<span style="font-size:4em">1. A thunderstorm can sometimes birth a rarely seen phenomenon called sprites that look like jellyfish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174372.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Thunderstorm From 30,000 Feet In The Air</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174374.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Four horned hebridean sheep. They look simply bad A**</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174375.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. One of my Grandpa’s cows (He’s A Rancher) gave birth to this two-headed fella back inthe 1980’s. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174376.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Lava that looks like melted bodies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174377.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. This is an intact human nervous system that was dissected by two medical students in 1925. It took them over 1500 hours. There are only 4 of these in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174378.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Racoons reaching for cat food under a table</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174379.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Oldest surviving diving suit, 18th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174380.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Spanish dancer sea slug spotted in Australia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174381.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. A scientist holding a basketball covered in vantablack, the worlds blackest substance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174373.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Here are some skin shoes worth $10,000, these are made of Silicon </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174382.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. This is what a lethal dose of fentanyl looks like. 2mg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174383.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. golf ball vs a baby dolls head </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174384.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Mummified monk revealed inside 1,000-year-old buddha statue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174385.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. St. Lambert’s church in münster. Three iron cages, 7 feet tall and a yard wide and deep, hang empty from the church spire. Once home to the mutilated bodies of three revolutionaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174386.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. What Michael Jackson was supposed to look like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174387.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. A Disney gas mask - designed to make gas mask less creepy for children during WWII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174388.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Someone I know has a glassed over well in their kitchen from the Mid-1700s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174389.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. This amoeba I saw through the microscope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174390.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. A handheld side-view mirror</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174391.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. A terrifying web I saw above a light fixture a work today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174392.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Don’t make eye contact</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174393.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sometimes people stop in the middle of a conversation to stare at my eye. Wonder why</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174394.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. This is a flat hallway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174395.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Church in Louisiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174396.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. Seeds derminating in a tomato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174397.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. A close up of an ant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174398.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. Titanium implants pulled from a crematory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174399.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. Correlation or causation???</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174400.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. The statue of flayed St. Bartholomew wearing his skin as a robe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174401.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
 
 <span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
 
@@ -137,7 +267,59 @@ Last updated: 05/27/2022-07:11:31
 
 <span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">35 Savage Memes Not For the Faint of Heart </a><br>
+## <a href="#linky7" id="linky6">25 Things in Everyday Life That are Actually Scams</a><br>
+
+<span style="font-size:4em">1. “Unlimited data! ...until you use too much in which then they slow down your data so much that you cant even watch a 480p video without slowdown. But hey, unlimited right?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174586.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Normal television, paying to watch ads!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174585.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “Click here to unsubscribe to this email notification”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174584.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Free trial! Noice. Enter your card details, DANG”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174587.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174588.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Online convenience fees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174589.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “The entire wedding industry. To be clear, not marriage but weddings specifically. I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing. Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174590.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Fashion trends, and the incredible amount of waste it creates, if everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped. (buying second hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174591.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Claw Machines in arcades.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174592.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “That the Fashion Industry is anything other than planned obsolescence, designed simply to get people to spend money for no reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174593.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “One beer that costs $14 at a ballgame and its just totally basic like Miller Lite. GTFO of here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174594.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “That large global companies actually care about you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174595.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “Buying a star and naming it. A waste of your cash and time. The only organisation that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174596.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Reddit awards.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174597.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “The subscription based economy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174598.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174599.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “$18 Salad lol”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174600.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “Mega Churches on TV and elsewhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174601.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “Hustle culture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174602.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That saving the earth is in the hands of consumers and not big companies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174603.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “How the heck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174604.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174605.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “Recycling. In remote communities recyclables collected go to the dump with the rest of the garbage, because it’s not feasible to transport it thousands of km where it could potentially get used.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174606.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “The cost of education.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174607.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Diamonds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174608.jpg" style="width:100%"><br>
+
+## <a href="#linky8" id="linky7">35 Savage Memes Not For the Faint of Heart </a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173899.jpeg" style="width:100%"><br>
 
@@ -208,168 +390,6 @@ Last updated: 05/27/2022-07:11:31
 <span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173949.png" style="width:100%"><br>
 
 <span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173950.jpeg" style="width:100%"><br>
-
-## <a href="#linky6" id="linky5">23 Times People Got Absolutely Destroyed in the Comments</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175775.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175776.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175779.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175774.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175777.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175778.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175780.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175781.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175783.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175784.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175782.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175785.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175786.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175788.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175787.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175789.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175790.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175792.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175791.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175795.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175794.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175796.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/955509/87175797.jpg" style="width:100%"><br>
-
-## <a href="#linky7" id="linky6">25 Things in Everyday Life That are Actually Scams</a><br>
-
-<span style="font-size:4em">1. “Unlimited data! ...until you use too much in which then they slow down your data so much that you cant even watch a 480p video without slowdown. But hey, unlimited right?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174586.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Normal television, paying to watch ads!”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174585.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “Click here to unsubscribe to this email notification”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174584.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “Free trial! Noice. Enter your card details, DANG”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174587.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “The prices of anything baby related. Toys, food, clothes, etc. Was in a store on Saturday to get a cot mattress and cover. I cried.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174588.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Online convenience fees”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174589.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “The entire wedding industry. To be clear, not marriage but weddings specifically. I’m happily married to my wife and we were content to do something special just the two of us, maybe spend a couple of grand and treat ourselves a little bit to something amazing. Cue the families getting involved and before you know it we’re spending closer to twenty grand on one day and feeding a bunch of people I’ve not heard of before or since the wedding.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174590.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Fashion trends, and the incredible amount of waste it creates, if everyone learned how to mend/alter garments in school, and value was placed on investing in a few quality made items instead of a closet full of disposable fast fashion, there would be wayyyy less clothing in landfills and wayy less demand for chemical laden garments to be cranked out in sweatshops. our relationship to clothing is so warped. (buying second hand is a great way to wiggle out of the grip of the fashion industry if it’s available to you)”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174591.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “Claw Machines in arcades.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174592.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “That the Fashion Industry is anything other than planned obsolescence, designed simply to get people to spend money for no reason.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174593.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “One beer that costs $14 at a ballgame and its just totally basic like Miller Lite. GTFO of here.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174594.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “That large global companies actually care about you.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174595.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “Buying a star and naming it. A waste of your cash and time. The only organisation that can name a star is International Astronomical Union.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174596.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Reddit awards.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174597.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “The subscription based economy.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174598.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “Paying exorbitant amounts of money for health insurance, and still having to pay boatloads of cash for any doctor/hospital visits.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174599.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “$18 Salad lol”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174600.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “Mega Churches on TV and elsewhere.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174601.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “Hustle culture.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174602.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “That saving the earth is in the hands of consumers and not big companies.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174603.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “How the heck does HEALTH insurance not cover dental and vision? What kind of shenanigans is that?”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174604.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “Penis enlargement pills gotta be up there too. No one wants to admit they got them, so when they don’t work it’s not like they’re posting reviews or telling their friends they don’t work.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174605.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “Recycling. In remote communities recyclables collected go to the dump with the rest of the garbage, because it’s not feasible to transport it thousands of km where it could potentially get used.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174606.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “The cost of education.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174607.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Diamonds.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174608.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">30 Awe Inspiring Photos of Our Fascinating World </a><br>
-
-<span style="font-size:4em">1. A thunderstorm can sometimes birth a rarely seen phenomenon called sprites that look like jellyfish. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174372.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Thunderstorm From 30,000 Feet In The Air</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174374.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Four horned hebridean sheep. They look simply bad A**</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174375.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. One of my Grandpa’s cows (He’s A Rancher) gave birth to this two-headed fella back inthe 1980’s. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174376.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Lava that looks like melted bodies</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174377.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. This is an intact human nervous system that was dissected by two medical students in 1925. It took them over 1500 hours. There are only 4 of these in the world</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174378.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Racoons reaching for cat food under a table</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174379.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Oldest surviving diving suit, 18th Century</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174380.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Spanish dancer sea slug spotted in Australia</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174381.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. A scientist holding a basketball covered in vantablack, the worlds blackest substance. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174373.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Here are some skin shoes worth $10,000, these are made of Silicon </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174382.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. This is what a lethal dose of fentanyl looks like. 2mg</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174383.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. golf ball vs a baby dolls head </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174384.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Mummified monk revealed inside 1,000-year-old buddha statue</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174385.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. St. Lambert’s church in münster. Three iron cages, 7 feet tall and a yard wide and deep, hang empty from the church spire. Once home to the mutilated bodies of three revolutionaries.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174386.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. What Michael Jackson was supposed to look like</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174387.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. A Disney gas mask - designed to make gas mask less creepy for children during WWII</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174388.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Someone I know has a glassed over well in their kitchen from the Mid-1700s</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174389.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. This amoeba I saw through the microscope</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174390.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. A handheld side-view mirror</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174391.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. A terrifying web I saw above a light fixture a work today</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174392.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Don’t make eye contact</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174393.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. Sometimes people stop in the middle of a conversation to stare at my eye. Wonder why</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174394.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. This is a flat hallway</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174395.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Church in Louisiana</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174396.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. Seeds derminating in a tomato</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174397.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. A close up of an ant</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174398.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. Titanium implants pulled from a crematory</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174399.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. Correlation or causation???</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174400.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. The statue of flayed St. Bartholomew wearing his skin as a robe. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87174401.jpg" style="width:100%"><br>
 
 ## <a href="#linky9" id="linky8">31 Sad Pics About Life</a><br>
 
@@ -499,64 +519,37 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">19. New roommate told me her current boyfriend got kicked out of college for sexual assault and was under investigation for another case of sexual assault. Wanted my opinion about it within like two hours or meeting. Completely disregarded that my opinion was “run”. -Ohnoimgonnarunoutofc</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87167824.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">25 ‘Facts’ That Are Pure Lies</a><br>
+## <a href="#linky11" id="linky10">Celebrities People Aren't Used To Seeing Young</a><br>
 
-<span style="font-size:4em">1. “Lightning never strikes twice in the same place. In fact it does - and with great regularity. Thus, the need for lighting rods in some lightning-prone locations.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174558.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. “That if you shave any hair on your body it grows back thicker and darker.” -psychedellie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174557.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Anjelica Huston - Probably best known for her roles in The Addams Family and The Witches. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165205.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. “That bulls get angered by the colour red- they are colour blind so it really makes no difference. Its the waving of the cape that gets to them.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174560.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. John Lithgow -  Best know for his role on #3rd Rock From the Sun, John Lithgow has two Golden Globe Awards, six Primetime Emmy Awards, three Screen Actors Guild Awards, two Tony Awards and nominations for two Academy Awards </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Bats are blind- this simply isnt true either. Bats have almost as good eyesight as humans and some larger bats have eyesight almost 3x as good as that of a human.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174561.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Charlotte Rampling - Tessa Charlotte Rampling OBE is an English actress, model, and singer, known for her work in European arthouse films in English, French, and Italian. An icon of the Swinging Sixties, she began her career as a model and later became a fashion icon and muse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. “That you can detox/cleanse your body with certain drinks or pills.” -yvonv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174559.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Barbara Hershey - Barbara Lynn Herzstein, better known as Barbara Hershey, is an American actress. In a career spanning more than 50 years, she has played a variety of roles on television and in cinema in several genres, including westerns and comedies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “That MSG is bad for you. Its literally a naturally occurring amino acid in certain green plant life that utilized photosynthesis, with normal salt used as a binding agent. The myth came from a single person writing to a newspaper back in the 70s (I believe) where he ended up with a headache after visiting a Chinese restaurant, and the only ingredient in the dish he had that he didnt recognize was monosodium glutamate, and because people are stupid and it sounds scary, he blamed it on that.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174566.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Stan Lee - RIP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174568.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Frances Fisher - Frances Louise Fisher is a British-born American actress. She began her career in theatre and later starred as record executive Suzette Red Saxon in the CBS daytime soap opera The Guiding Light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-And it led to a bunch of people reporting similar anecdotal stories that led to the myth of it being bad for you. There have been dozens of studies confirming that its perfectly safe and doesnt cause headaches or any other known ailments.” -Tonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174556.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Annette O’Toole - Annette OToole is an American actress. She is known for portraying Lisa Bridges in the television series Nash Bridges, Beverly Marsh in the 1990 television mini-series adaptation of Stephen Kings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165211.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. “An average person swallows around 7 to 8 spiders in their sleep.” -AllergicDodo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174562.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Mary Steenburgen. Mary Nell Steenburgen is an American actress, comedian, singer, and songwriter. After studying at New Yorks Neighborhood Playhouse in the 1970s, she made her professional acting debut in 1978 Western comedy film Goin South</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165212.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Half of the quotes attributed to Gandhi, Dr Seuss, Oscar Wilde and Ben Franklin.” -ehsteve23
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174563.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Kristin Scott Thomas - Dame Kristin Ann Scott Thomas DBE is a British actress who also holds French citizenship. A five-time BAFTA Award and Olivier Award nominee, she won the BAFTA Award for Best Actress in a Supporting Role</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Nails and hair of a person continue to grow after death- the skin retracts as it becomes dehydrated after death. The nails and hair do not grow, the just appear longer.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174564.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Gena Rowlands - Virginia Cathryn Gena Rowlands is a retired American actress, whose career in film, stage, and television has spanned seven decades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165214.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Grand Daddy Long Legs are the most poisonous spider on the planet but their fangs are too small to pierce skin… ugh” -Kangabolic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174567.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. James Naughton - James Naughton is an American actor and director known for his work on Planet of the Apes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165216.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. “We only use 10% of our brains. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174569.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Vanessa Redgrave - Dame Vanessa Redgrave DBE is an English actress and activist. Throughout her career spanning over six decades, Redgrave has garnered numerous accolades, including an Academy Award</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165217.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “People on the internet really seem to buy into the idea that elephants find humans cute. The source of this is a tumblr post that claims the same region of the brain thats active when humans see puppies is what lights up when elephants see us. But that requires MRI machines big enough to accommodate elephants, as well as keeping an animal that weighs like 5 tons still whilst its fully conscious. It also means assuming that the brain structures do the same job across species.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174570.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Susan Sullivan - Susan Michaela Sullivan is an American actress. Sullivan is best known for her roles as Lenore Curtin Delaney on the NBC daytime soap opera Another World, as Lois Adams on the ABC sitcom Its a Living. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165218.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174565.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">
-If anything, the harsh reality is that wild elephants probably see humans as threats, given that as a species were actively doing our best to kill them. Elephants who live in zoos or sanctuaries may be endeared to their keepers and thus humans in general, however. The good news is that this can probably change if poaching is ever stopped. Elephants whod been raised in the David Sheldrick Wildlife Trust, for example, have led sick or injured herd-mates back to the sanctuary for treatment.” -ButterflyOfDeath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174571.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “That cracking your knuckles gives you arthritis.” -littlephrogboyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174572.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “That humans will eventually evolve to lose the little toe as we dont use it. No, thats not how evolution works. Unless at some point in the future not having one increases our chances of reproducing, the little toe is not going anywhere. Also regarding evolution, we didnt exactly evolve from monkeys, its more like monkeys and us share a common ancestor, but then we split into different evolution branches.” -Dr_Chemiramen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174573.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “That stem cells come primarily from aborted babies. They dont, they are harvested from bone marrow today.” -Moosen_Burger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174574.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “The woman who sued McDonalds did not do so because her coffee was hot. If you look into her story they badly fucked up the preparation of her coffee and she suffered permanent and catastrophic injuries. Its deeply frustrating whenever its brought up as an example of overly litigious society.” -Adrianics4k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174575.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “You need to shake a Polaroid picture.” -NutellaGood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174576.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. The food pyramid, most USDA nutrition is horribly wrong.” -chancetodream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174577.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “That cows and horses sleep standing up.” -AffectionateFault484</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174578.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “That cops in the US cant lie to you, or have to tell you theyre cops if asked.” -talldata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174579.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Introversion = social anxiety.” -Bielobogich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174580.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
 
 ## <a href="#linky12" id="linky11">23 Pics that are Plain Cringey and Sad</a><br>
 
@@ -697,4 +690,63 @@ If anything, the harsh reality is that wild elephants probably see humans as thr
 <span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175991.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175992.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 ‘Facts’ That Are Pure Lies</a><br>
+
+<span style="font-size:4em">1. “Lightning never strikes twice in the same place. In fact it does - and with great regularity. Thus, the need for lighting rods in some lightning-prone locations.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174558.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “That if you shave any hair on your body it grows back thicker and darker.” -psychedellie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174557.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “That bulls get angered by the colour red- they are colour blind so it really makes no difference. Its the waving of the cape that gets to them.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174560.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “Bats are blind- this simply isnt true either. Bats have almost as good eyesight as humans and some larger bats have eyesight almost 3x as good as that of a human.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174561.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “That you can detox/cleanse your body with certain drinks or pills.” -yvonv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174559.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “That MSG is bad for you. Its literally a naturally occurring amino acid in certain green plant life that utilized photosynthesis, with normal salt used as a binding agent. The myth came from a single person writing to a newspaper back in the 70s (I believe) where he ended up with a headache after visiting a Chinese restaurant, and the only ingredient in the dish he had that he didnt recognize was monosodium glutamate, and because people are stupid and it sounds scary, he blamed it on that.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174566.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174568.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+And it led to a bunch of people reporting similar anecdotal stories that led to the myth of it being bad for you. There have been dozens of studies confirming that its perfectly safe and doesnt cause headaches or any other known ailments.” -Tonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174556.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “An average person swallows around 7 to 8 spiders in their sleep.” -AllergicDodo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174562.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Half of the quotes attributed to Gandhi, Dr Seuss, Oscar Wilde and Ben Franklin.” -ehsteve23
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174563.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “Nails and hair of a person continue to grow after death- the skin retracts as it becomes dehydrated after death. The nails and hair do not grow, the just appear longer.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174564.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Grand Daddy Long Legs are the most poisonous spider on the planet but their fangs are too small to pierce skin… ugh” -Kangabolic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174567.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “We only use 10% of our brains. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174569.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “People on the internet really seem to buy into the idea that elephants find humans cute. The source of this is a tumblr post that claims the same region of the brain thats active when humans see puppies is what lights up when elephants see us. But that requires MRI machines big enough to accommodate elephants, as well as keeping an animal that weighs like 5 tons still whilst its fully conscious. It also means assuming that the brain structures do the same job across species.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174570.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174565.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">
+If anything, the harsh reality is that wild elephants probably see humans as threats, given that as a species were actively doing our best to kill them. Elephants who live in zoos or sanctuaries may be endeared to their keepers and thus humans in general, however. The good news is that this can probably change if poaching is ever stopped. Elephants whod been raised in the David Sheldrick Wildlife Trust, for example, have led sick or injured herd-mates back to the sanctuary for treatment.” -ButterflyOfDeath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174571.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “That cracking your knuckles gives you arthritis.” -littlephrogboyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174572.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “That humans will eventually evolve to lose the little toe as we dont use it. No, thats not how evolution works. Unless at some point in the future not having one increases our chances of reproducing, the little toe is not going anywhere. Also regarding evolution, we didnt exactly evolve from monkeys, its more like monkeys and us share a common ancestor, but then we split into different evolution branches.” -Dr_Chemiramen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174573.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “That stem cells come primarily from aborted babies. They dont, they are harvested from bone marrow today.” -Moosen_Burger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174574.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “The woman who sued McDonalds did not do so because her coffee was hot. If you look into her story they badly fucked up the preparation of her coffee and she suffered permanent and catastrophic injuries. Its deeply frustrating whenever its brought up as an example of overly litigious society.” -Adrianics4k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174575.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “You need to shake a Polaroid picture.” -NutellaGood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174576.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. The food pyramid, most USDA nutrition is horribly wrong.” -chancetodream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174577.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “That cows and horses sleep standing up.” -AffectionateFault484</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174578.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That cops in the US cant lie to you, or have to tell you theyre cops if asked.” -talldata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174579.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Introversion = social anxiety.” -Bielobogich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174580.jpg" style="width:100%"><br>
 
