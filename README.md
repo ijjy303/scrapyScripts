@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/28/2022-11:11:40
+Last updated: 05/28/2022-12:11:33
 <br>
 ## <a href="#linky2" id="linky1">25 Minor Life-Hacks That Have a Big Impact </a><br>
 
@@ -53,57 +53,67 @@ Last updated: 05/28/2022-11:11:40
 
 <span style="font-size:4em">25. “In the dishwasher - throw any citrus peel into the utensil rack and wash; the citric acid released inside your dishwasher will degunk/clean it and make your dishes sparkly clean. to reduce the effort when cleaning your shower -- go to the dollar store and buy those dish stick scrubbers where you can fill the handle with dish soap. I use a mix of diluted dawn dish soap (with water and I add a bit of vinegar). Keep that in the shower and scrub the walls/floor when in the shower! makes cleaning the fucking shower less effort and you can actually extend the time between cleanings. Gets rid of soap scum and prevents mold from forming.” - rudebish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158858.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
+## <a href="#linky3" id="linky2">30 Weird Things Being Sold Online</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">51 Funny Facepalms of Silly Fools</a><br>
 
@@ -565,39 +575,7 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113954/87177583/87164140.jpg" style="width:100%"><br>
 
-## <a href="#linky11" id="linky10">Celebrities People Aren't Used To Seeing Young</a><br>
-
-<span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Anjelica Huston - Probably best known for her roles in The Addams Family and The Witches. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165205.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. John Lithgow -  Best know for his role on #3rd Rock From the Sun, John Lithgow has two Golden Globe Awards, six Primetime Emmy Awards, three Screen Actors Guild Awards, two Tony Awards and nominations for two Academy Awards </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Charlotte Rampling - Tessa Charlotte Rampling OBE is an English actress, model, and singer, known for her work in European arthouse films in English, French, and Italian. An icon of the Swinging Sixties, she began her career as a model and later became a fashion icon and muse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Barbara Hershey - Barbara Lynn Herzstein, better known as Barbara Hershey, is an American actress. In a career spanning more than 50 years, she has played a variety of roles on television and in cinema in several genres, including westerns and comedies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Stan Lee - RIP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Frances Fisher - Frances Louise Fisher is a British-born American actress. She began her career in theatre and later starred as record executive Suzette Red Saxon in the CBS daytime soap opera The Guiding Light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Annette O’Toole - Annette OToole is an American actress. She is known for portraying Lisa Bridges in the television series Nash Bridges, Beverly Marsh in the 1990 television mini-series adaptation of Stephen Kings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165211.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Mary Steenburgen. Mary Nell Steenburgen is an American actress, comedian, singer, and songwriter. After studying at New Yorks Neighborhood Playhouse in the 1970s, she made her professional acting debut in 1978 Western comedy film Goin South</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165212.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Kristin Scott Thomas - Dame Kristin Ann Scott Thomas DBE is a British actress who also holds French citizenship. A five-time BAFTA Award and Olivier Award nominee, she won the BAFTA Award for Best Actress in a Supporting Role</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165213.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Gena Rowlands - Virginia Cathryn Gena Rowlands is a retired American actress, whose career in film, stage, and television has spanned seven decades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165214.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. James Naughton - James Naughton is an American actor and director known for his work on Planet of the Apes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165216.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. Vanessa Redgrave - Dame Vanessa Redgrave DBE is an English actress and activist. Throughout her career spanning over six decades, Redgrave has garnered numerous accolades, including an Academy Award</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165217.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Susan Sullivan - Susan Michaela Sullivan is an American actress. Sullivan is best known for her roles as Lenore Curtin Delaney on the NBC daytime soap opera Another World, as Lois Adams on the ABC sitcom Its a Living. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165218.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
-
-## <a href="#linky12" id="linky11">The Funniest Struggle Tweets of the Week </a><br>
+## <a href="#linky11" id="linky10">The Funniest Struggle Tweets of the Week </a><br>
 
 <span style="font-size:4em">1. Lmao. If only this were true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169807.jpg" style="width:100%"><br>
 
@@ -661,6 +639,38 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169837.jpg" style="width:100%"><br>
 
+## <a href="#linky12" id="linky11">Celebrities People Aren't Used To Seeing Young</a><br>
+
+<span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Anjelica Huston - Probably best known for her roles in The Addams Family and The Witches. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165205.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. John Lithgow -  Best know for his role on #3rd Rock From the Sun, John Lithgow has two Golden Globe Awards, six Primetime Emmy Awards, three Screen Actors Guild Awards, two Tony Awards and nominations for two Academy Awards </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Charlotte Rampling - Tessa Charlotte Rampling OBE is an English actress, model, and singer, known for her work in European arthouse films in English, French, and Italian. An icon of the Swinging Sixties, she began her career as a model and later became a fashion icon and muse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Barbara Hershey - Barbara Lynn Herzstein, better known as Barbara Hershey, is an American actress. In a career spanning more than 50 years, she has played a variety of roles on television and in cinema in several genres, including westerns and comedies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Stan Lee - RIP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Frances Fisher - Frances Louise Fisher is a British-born American actress. She began her career in theatre and later starred as record executive Suzette Red Saxon in the CBS daytime soap opera The Guiding Light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Annette O’Toole - Annette OToole is an American actress. She is known for portraying Lisa Bridges in the television series Nash Bridges, Beverly Marsh in the 1990 television mini-series adaptation of Stephen Kings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165211.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Mary Steenburgen. Mary Nell Steenburgen is an American actress, comedian, singer, and songwriter. After studying at New Yorks Neighborhood Playhouse in the 1970s, she made her professional acting debut in 1978 Western comedy film Goin South</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165212.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Kristin Scott Thomas - Dame Kristin Ann Scott Thomas DBE is a British actress who also holds French citizenship. A five-time BAFTA Award and Olivier Award nominee, she won the BAFTA Award for Best Actress in a Supporting Role</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165213.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Gena Rowlands - Virginia Cathryn Gena Rowlands is a retired American actress, whose career in film, stage, and television has spanned seven decades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165214.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. James Naughton - James Naughton is an American actor and director known for his work on Planet of the Apes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165216.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Vanessa Redgrave - Dame Vanessa Redgrave DBE is an English actress and activist. Throughout her career spanning over six decades, Redgrave has garnered numerous accolades, including an Academy Award</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165217.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Susan Sullivan - Susan Michaela Sullivan is an American actress. Sullivan is best known for her roles as Lenore Curtin Delaney on the NBC daytime soap opera Another World, as Lois Adams on the ABC sitcom Its a Living. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165218.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
+
 ## <a href="#linky13" id="linky12">25 Toxic Traits Women Get Away With</a><br>
 
 <span style="font-size:4em">1. Last week: 3 women admiring my fiancé’s new engagement ring (which is a bit flashy)My fiancé tells them it’s lab-made, which is what she wantedOne of them responded with “Oh, that doesn’t count then”-u/VertibirdGoBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176097.jpg" style="width:100%"><br>
@@ -713,69 +723,111 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">30 Weird Things Being Sold Online</a><br>
+## <a href="#linky14" id="linky13">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
+## <a href="#linky15" id="linky14">25 People Who Realized Disturbing Truths</a><br>
 
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. “Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174665.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. “My grandpa just wanted to get to know me and the man I was becoming during his last year of life. Which I was too young and too selfish to realize.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174666.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “This is coming from a firefighter: If you have to perform CPR on them, its most likely over for the patient. Im not sure if Ive made peace with it completely, but Ive accepted it at least.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174667.jpg" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">56 Kickass Pics and Photos for Your Amusement</a><br>
+<span style="font-size:4em">5. “My dad passed away 6 weeks ago and I will NEVER see, hear, chat or get to hug him ever again & that forever is a long time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “You can be hanging with your best friends and not realize that it is actually the last time youll ever be all together in the same room. Even just because of moving cities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “That at the end of the day, the only one I can rely on is myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Being alive is expensive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I went through 2 years of cancer treatments. I realized this after 6 cycles of chemotherapy. No one’s coming. Hardest part of my life has been realizing this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Im aging nonstop”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Im aware enough to know that there is something wrong with me. But Im not aware enough to know what it is, let alone fix it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My childhood is gone, and I have no good memory from that phase of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just because you think someone is the one, doesnt mean they think you are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realise, but almost 3 years in Im kind of okay with it. They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally. Im aware of ongoing research, but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My depression is very likely chronic. Ill be living with it for the rest of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “You can do everything perfectly and still fail completely.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That my whole life has been a waste. That if I disappeared tomorrow nobody would even know or care. I used to consciously feel the existential dread that brings, but now I just kind of ignore it and keep going on with my mechanical existence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Youre completely alone inside your own head. No one will ever be able to truly feel what you feel..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “You can fall out of love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “We are all loved conditionally.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Ill never be as attractive as I could have been if Id eaten sensibly in college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">56 Kickass Pics and Photos for Your Amusement</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175824.jpg" style="width:100%"><br>
 
@@ -889,7 +941,7 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/125748/87176652/87176389.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
+## <a href="#linky17" id="linky16">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
 
 <span style="font-size:4em">1. Would you look at that. What a lovely day to be topside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177448.jpg" style="width:100%"><br>
 
@@ -904,56 +956,4 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 <span style="font-size:4em">6. Alright, this is getting really aggressive. Someone might want to take a look at this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177447.jpg" style="width:100%"><br>
 
 <span style="font-size:4em">7. Cool, or well just watch this thing burn. Glad we chose Carnival, good call honey!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177449.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">25 People Who Realized Disturbing Truths</a><br>
-
-<span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My grandpa just wanted to get to know me and the man I was becoming during his last year of life. Which I was too young and too selfish to realize.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “This is coming from a firefighter: If you have to perform CPR on them, its most likely over for the patient. Im not sure if Ive made peace with it completely, but Ive accepted it at least.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My dad passed away 6 weeks ago and I will NEVER see, hear, chat or get to hug him ever again & that forever is a long time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “You can be hanging with your best friends and not realize that it is actually the last time youll ever be all together in the same room. Even just because of moving cities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “That at the end of the day, the only one I can rely on is myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Being alive is expensive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I went through 2 years of cancer treatments. I realized this after 6 cycles of chemotherapy. No one’s coming. Hardest part of my life has been realizing this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Im aging nonstop”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Im aware enough to know that there is something wrong with me. But Im not aware enough to know what it is, let alone fix it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My childhood is gone, and I have no good memory from that phase of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Just because you think someone is the one, doesnt mean they think you are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realise, but almost 3 years in Im kind of okay with it. They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally. Im aware of ongoing research, but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My depression is very likely chronic. Ill be living with it for the rest of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “You can do everything perfectly and still fail completely.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “That my whole life has been a waste. That if I disappeared tomorrow nobody would even know or care. I used to consciously feel the existential dread that brings, but now I just kind of ignore it and keep going on with my mechanical existence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Youre completely alone inside your own head. No one will ever be able to truly feel what you feel..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “You can fall out of love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “We are all loved conditionally.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Ill never be as attractive as I could have been if Id eaten sensibly in college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
 
