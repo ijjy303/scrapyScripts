@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/27/2022-22:11:39
+Last updated: 05/27/2022-23:11:39
 <br>
 ## <a href="#linky2" id="linky1">40 Adult Themed Memes for Your Lowbrow Sense of Humor</a><br>
 
@@ -525,109 +525,64 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175821.jpg" style="width:100%"><br>
 
-## <a href="#linky10" id="linky9">51 Funny Facepalms of Silly Fools</a><br>
+## <a href="#linky10" id="linky9">25 ‘Facts’ That Are Pure Lies</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177471/palmtheface4.png" style="width:100%"><br>
+<span style="font-size:4em">1. “Lightning never strikes twice in the same place. In fact it does - and with great regularity. Thus, the need for lighting rods in some lightning-prone locations.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174558.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104458/87177467/palmtheface5.png" style="width:100%"><br>
+<span style="font-size:4em">2. “That if you shave any hair on your body it grows back thicker and darker.” -psychedellie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174557.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104506/87177468/palmtheface3.png" style="width:100%"><br>
+<span style="font-size:4em">3. “That bulls get angered by the colour red- they are colour blind so it really makes no difference. Its the waving of the cape that gets to them.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174560.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104509/87177469/palmtheface6.png" style="width:100%"><br>
+<span style="font-size:4em">4. “Bats are blind- this simply isnt true either. Bats have almost as good eyesight as humans and some larger bats have eyesight almost 3x as good as that of a human.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174561.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177470/palmtheface7.png" style="width:100%"><br>
+<span style="font-size:4em">5. “That you can detox/cleanse your body with certain drinks or pills.” -yvonv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174559.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104522/87177472/palmtheface8.png" style="width:100%"><br>
+<span style="font-size:4em">6. “That MSG is bad for you. Its literally a naturally occurring amino acid in certain green plant life that utilized photosynthesis, with normal salt used as a binding agent. The myth came from a single person writing to a newspaper back in the 70s (I believe) where he ended up with a headache after visiting a Chinese restaurant, and the only ingredient in the dish he had that he didnt recognize was monosodium glutamate, and because people are stupid and it sounds scary, he blamed it on that.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174566.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104446/87177466/palmtheface1.png" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174568.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104528/87177473/palmtheface9.png" style="width:100%"><br>
+<span style="font-size:4em">
+And it led to a bunch of people reporting similar anecdotal stories that led to the myth of it being bad for you. There have been dozens of studies confirming that its perfectly safe and doesnt cause headaches or any other known ailments.” -Tonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174556.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104436/87177465/palmtheface2.png" style="width:100%"><br>
+<span style="font-size:4em">7. “An average person swallows around 7 to 8 spiders in their sleep.” -AllergicDodo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174562.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104533/87177474/palmtheface10.png" style="width:100%"><br>
+<span style="font-size:4em">8. “Half of the quotes attributed to Gandhi, Dr Seuss, Oscar Wilde and Ben Franklin.” -ehsteve23
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174563.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104540/87177475/palmtheface11.png" style="width:100%"><br>
+<span style="font-size:4em">9. “Nails and hair of a person continue to grow after death- the skin retracts as it becomes dehydrated after death. The nails and hair do not grow, the just appear longer.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174564.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104545/87177476/palmtheface12.png" style="width:100%"><br>
+<span style="font-size:4em">10. “Grand Daddy Long Legs are the most poisonous spider on the planet but their fangs are too small to pierce skin… ugh” -Kangabolic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174567.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104551/87177477/palmtheface13.png" style="width:100%"><br>
+<span style="font-size:4em">11. “We only use 10% of our brains. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174569.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104556/87177478/palmtheface14.png" style="width:100%"><br>
+<span style="font-size:4em">12. “People on the internet really seem to buy into the idea that elephants find humans cute. The source of this is a tumblr post that claims the same region of the brain thats active when humans see puppies is what lights up when elephants see us. But that requires MRI machines big enough to accommodate elephants, as well as keeping an animal that weighs like 5 tons still whilst its fully conscious. It also means assuming that the brain structures do the same job across species.
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174570.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104602/87177479/palmtheface15.png" style="width:100%"><br>
+<span style="font-size:4em">
+</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174565.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104608/87177480/palmtheface17.png" style="width:100%"><br>
+<span style="font-size:4em">
+If anything, the harsh reality is that wild elephants probably see humans as threats, given that as a species were actively doing our best to kill them. Elephants who live in zoos or sanctuaries may be endeared to their keepers and thus humans in general, however. The good news is that this can probably change if poaching is ever stopped. Elephants whod been raised in the David Sheldrick Wildlife Trust, for example, have led sick or injured herd-mates back to the sanctuary for treatment.” -ButterflyOfDeath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174571.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104613/87177481/palmtheface18.png" style="width:100%"><br>
+<span style="font-size:4em">13. “That cracking your knuckles gives you arthritis.” -littlephrogboyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174572.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104620/87177482/palmtheface16.png" style="width:100%"><br>
+<span style="font-size:4em">14. “That humans will eventually evolve to lose the little toe as we dont use it. No, thats not how evolution works. Unless at some point in the future not having one increases our chances of reproducing, the little toe is not going anywhere. Also regarding evolution, we didnt exactly evolve from monkeys, its more like monkeys and us share a common ancestor, but then we split into different evolution branches.” -Dr_Chemiramen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174573.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104624/87177483/palmtheface19.png" style="width:100%"><br>
+<span style="font-size:4em">15. “That stem cells come primarily from aborted babies. They dont, they are harvested from bone marrow today.” -Moosen_Burger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174574.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104631/87177484/palmtheface20.png" style="width:100%"><br>
+<span style="font-size:4em">16. “The woman who sued McDonalds did not do so because her coffee was hot. If you look into her story they badly fucked up the preparation of her coffee and she suffered permanent and catastrophic injuries. Its deeply frustrating whenever its brought up as an example of overly litigious society.” -Adrianics4k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174575.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104636/87177485/palmtheface21.png" style="width:100%"><br>
+<span style="font-size:4em">17. “You need to shake a Polaroid picture.” -NutellaGood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174576.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104642/87177486/palmtheface22.png" style="width:100%"><br>
+<span style="font-size:4em">18. The food pyramid, most USDA nutrition is horribly wrong.” -chancetodream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174577.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104647/87177487/palmtheface23.png" style="width:100%"><br>
+<span style="font-size:4em">19. “That cows and horses sleep standing up.” -AffectionateFault484</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174578.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104654/87177488/palmtheface24.png" style="width:100%"><br>
+<span style="font-size:4em">20. “That cops in the US cant lie to you, or have to tell you theyre cops if asked.” -talldata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174579.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104657/87177489/palmtheface25.png" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104706/87177490/palmtheface26.png" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104708/87177491/palmtheface27.png" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104717/87177492/palmtheface28.png" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104721/87177493/palmtheface29.png" style="width:100%"><br>
-
-<span style="font-size:4em">30. Peeling banana with fruit peeler.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104730/87177494/palmtheface30.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104732/87177495/palmtheface31.png" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104741/87177496/palmtheface32.png" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104744/87177497/palmtheface33.png" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104752/87177498/palmtheface34.png" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104755/87177499/palmtheface35.png" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104805/87177500/palmtheface36.png" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104806/87177501/palmtheface37.png" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104816/87177502/palmtheface38.png" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104818/87177503/palmtheface39.png" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104827/87177504/palmtheface40.png" style="width:100%"><br>
-
-<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104830/87177505/palmtheface41.png" style="width:100%"><br>
-
-<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104838/87177506/palmtheface42.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104842/87177507/palmtheface43.png" style="width:100%"><br>
-
-<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104849/87177508/palmtheface44.png" style="width:100%"><br>
-
-<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104853/87177509/palmtheface46.png" style="width:100%"><br>
-
-<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104900/87177510/palmtheface45.png" style="width:100%"><br>
-
-<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104904/87177511/palmtheface47.png" style="width:100%"><br>
-
-<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104912/87177512/palmtheface48.png" style="width:100%"><br>
-
-<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104915/87177513/palmtheface49.png" style="width:100%"><br>
-
-<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104923/87177514/palmtheface50.png" style="width:100%"><br>
-
-<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104926/87177515/palmtheface51.png" style="width:100%"><br>
+<span style="font-size:4em">21. “Introversion = social anxiety.” -Bielobogich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174580.jpg" style="width:100%"><br>
 
 ## <a href="#linky11" id="linky10">45 Dank n' Dirty Memes for Lowbrow Humor Enthusiasts</a><br>
 
@@ -805,80 +760,169 @@ To make things worse he said he had a degenerative muscular disease and doctors 
 
 <span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
 
-## <a href="#linky14" id="linky13">25 ‘Facts’ That Are Pure Lies</a><br>
+## <a href="#linky14" id="linky13">51 Funny Facepalms of Silly Fools</a><br>
 
-<span style="font-size:4em">1. “Lightning never strikes twice in the same place. In fact it does - and with great regularity. Thus, the need for lighting rods in some lightning-prone locations.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174558.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177471/palmtheface4.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. “That if you shave any hair on your body it grows back thicker and darker.” -psychedellie</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174557.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104458/87177467/palmtheface5.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. “That bulls get angered by the colour red- they are colour blind so it really makes no difference. Its the waving of the cape that gets to them.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174560.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104506/87177468/palmtheface3.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. “Bats are blind- this simply isnt true either. Bats have almost as good eyesight as humans and some larger bats have eyesight almost 3x as good as that of a human.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174561.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104509/87177469/palmtheface6.png" style="width:100%"><br>
 
-<span style="font-size:4em">5. “That you can detox/cleanse your body with certain drinks or pills.” -yvonv</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174559.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177470/palmtheface7.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. “That MSG is bad for you. Its literally a naturally occurring amino acid in certain green plant life that utilized photosynthesis, with normal salt used as a binding agent. The myth came from a single person writing to a newspaper back in the 70s (I believe) where he ended up with a headache after visiting a Chinese restaurant, and the only ingredient in the dish he had that he didnt recognize was monosodium glutamate, and because people are stupid and it sounds scary, he blamed it on that.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174566.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104522/87177472/palmtheface8.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174568.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104446/87177466/palmtheface1.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-And it led to a bunch of people reporting similar anecdotal stories that led to the myth of it being bad for you. There have been dozens of studies confirming that its perfectly safe and doesnt cause headaches or any other known ailments.” -Tonsai</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174556.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104528/87177473/palmtheface9.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. “An average person swallows around 7 to 8 spiders in their sleep.” -AllergicDodo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174562.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104436/87177465/palmtheface2.png" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Half of the quotes attributed to Gandhi, Dr Seuss, Oscar Wilde and Ben Franklin.” -ehsteve23
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174563.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104533/87177474/palmtheface10.png" style="width:100%"><br>
 
-<span style="font-size:4em">9. “Nails and hair of a person continue to grow after death- the skin retracts as it becomes dehydrated after death. The nails and hair do not grow, the just appear longer.” -waqasnaseem07</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174564.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104540/87177475/palmtheface11.png" style="width:100%"><br>
 
-<span style="font-size:4em">10. “Grand Daddy Long Legs are the most poisonous spider on the planet but their fangs are too small to pierce skin… ugh” -Kangabolic</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174567.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104545/87177476/palmtheface12.png" style="width:100%"><br>
 
-<span style="font-size:4em">11. “We only use 10% of our brains. -u/deleted</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174569.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104551/87177477/palmtheface13.png" style="width:100%"><br>
 
-<span style="font-size:4em">12. “People on the internet really seem to buy into the idea that elephants find humans cute. The source of this is a tumblr post that claims the same region of the brain thats active when humans see puppies is what lights up when elephants see us. But that requires MRI machines big enough to accommodate elephants, as well as keeping an animal that weighs like 5 tons still whilst its fully conscious. It also means assuming that the brain structures do the same job across species.
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174570.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104556/87177478/palmtheface14.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174565.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104602/87177479/palmtheface15.png" style="width:100%"><br>
 
-<span style="font-size:4em">
-If anything, the harsh reality is that wild elephants probably see humans as threats, given that as a species were actively doing our best to kill them. Elephants who live in zoos or sanctuaries may be endeared to their keepers and thus humans in general, however. The good news is that this can probably change if poaching is ever stopped. Elephants whod been raised in the David Sheldrick Wildlife Trust, for example, have led sick or injured herd-mates back to the sanctuary for treatment.” -ButterflyOfDeath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174571.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104608/87177480/palmtheface17.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. “That cracking your knuckles gives you arthritis.” -littlephrogboyo</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174572.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104613/87177481/palmtheface18.png" style="width:100%"><br>
 
-<span style="font-size:4em">14. “That humans will eventually evolve to lose the little toe as we dont use it. No, thats not how evolution works. Unless at some point in the future not having one increases our chances of reproducing, the little toe is not going anywhere. Also regarding evolution, we didnt exactly evolve from monkeys, its more like monkeys and us share a common ancestor, but then we split into different evolution branches.” -Dr_Chemiramen</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174573.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104620/87177482/palmtheface16.png" style="width:100%"><br>
 
-<span style="font-size:4em">15. “That stem cells come primarily from aborted babies. They dont, they are harvested from bone marrow today.” -Moosen_Burger</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174574.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104624/87177483/palmtheface19.png" style="width:100%"><br>
 
-<span style="font-size:4em">16. “The woman who sued McDonalds did not do so because her coffee was hot. If you look into her story they badly fucked up the preparation of her coffee and she suffered permanent and catastrophic injuries. Its deeply frustrating whenever its brought up as an example of overly litigious society.” -Adrianics4k</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174575.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104631/87177484/palmtheface20.png" style="width:100%"><br>
 
-<span style="font-size:4em">17. “You need to shake a Polaroid picture.” -NutellaGood</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174576.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104636/87177485/palmtheface21.png" style="width:100%"><br>
 
-<span style="font-size:4em">18. The food pyramid, most USDA nutrition is horribly wrong.” -chancetodream</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174577.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104642/87177486/palmtheface22.png" style="width:100%"><br>
 
-<span style="font-size:4em">19. “That cows and horses sleep standing up.” -AffectionateFault484</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174578.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104647/87177487/palmtheface23.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “That cops in the US cant lie to you, or have to tell you theyre cops if asked.” -talldata</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174579.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104654/87177488/palmtheface24.png" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Introversion = social anxiety.” -Bielobogich</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174580.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104657/87177489/palmtheface25.png" style="width:100%"><br>
 
-## <a href="#linky15" id="linky14">Entitled Boomer Craving Chinese Food Gets Instant Karma</a><br>
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104706/87177490/palmtheface26.png" style="width:100%"><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115419/87177586/begin.jpg" style="width:100%"><br>
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104708/87177491/palmtheface27.png" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115430/87177587/phone.jpg" style="width:100%"><br>
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104717/87177492/palmtheface28.png" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115507/87177588/bye.jpg" style="width:100%"><br>
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104721/87177493/palmtheface29.png" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115656/87177590/ten.jpg" style="width:100%"><br>
+<span style="font-size:4em">30. Peeling banana with fruit peeler.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104730/87177494/palmtheface30.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. They handled this much better than I would have. Its my phone number now, I dont have to tell you sh*t! Goodbye.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115744/87177591/hangry.jpg" style="width:100%"><br>
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104732/87177495/palmtheface31.png" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115820/87177592/rice.jpg" style="width:100%"><br>
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104741/87177496/palmtheface32.png" style="width:100%"><br>
 
-<span style="font-size:4em">7. Prank Sinatra wins. Go f**k yourself dude. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115934/87177593/end.jpg" style="width:100%"><br>
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104744/87177497/palmtheface33.png" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104752/87177498/palmtheface34.png" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104755/87177499/palmtheface35.png" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104805/87177500/palmtheface36.png" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104806/87177501/palmtheface37.png" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104816/87177502/palmtheface38.png" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104818/87177503/palmtheface39.png" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104827/87177504/palmtheface40.png" style="width:100%"><br>
+
+<span style="font-size:4em">41. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104830/87177505/palmtheface41.png" style="width:100%"><br>
+
+<span style="font-size:4em">42. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104838/87177506/palmtheface42.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">43. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104842/87177507/palmtheface43.png" style="width:100%"><br>
+
+<span style="font-size:4em">44. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104849/87177508/palmtheface44.png" style="width:100%"><br>
+
+<span style="font-size:4em">45. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104853/87177509/palmtheface46.png" style="width:100%"><br>
+
+<span style="font-size:4em">46. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104900/87177510/palmtheface45.png" style="width:100%"><br>
+
+<span style="font-size:4em">47. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104904/87177511/palmtheface47.png" style="width:100%"><br>
+
+<span style="font-size:4em">48. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104912/87177512/palmtheface48.png" style="width:100%"><br>
+
+<span style="font-size:4em">49. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104915/87177513/palmtheface49.png" style="width:100%"><br>
+
+<span style="font-size:4em">50. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104923/87177514/palmtheface50.png" style="width:100%"><br>
+
+<span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104926/87177515/palmtheface51.png" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">29 Times Things Escalated Way too Quickly</a><br>
+
+<span style="font-size:4em">1. Forget ant traps, it might be time to call the exterminator.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is something you dont want to see as a parent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is just nasty. And also probably a heart attack waiting to happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Whats good for the goose... ugh never mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now that is one expensive whoops!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I for one welcome our robot overlords.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176693.jpg" style="width:100%"><br>
 
 ## <a href="#linky16" id="linky15">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
 
@@ -932,7 +976,57 @@ If anything, the harsh reality is that wild elephants probably see humans as thr
 
 <span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
 
-## <a href="#linky17" id="linky16">30 Weird Things Being Sold Online</a><br>
+## <a href="#linky17" id="linky16">24 Redneck Fixes We Wish We’d Thought Of</a><br>
+
+<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">30 Weird Things Being Sold Online</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
 
@@ -994,113 +1088,19 @@ If anything, the harsh reality is that wild elephants probably see humans as thr
 
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
 
-## <a href="#linky18" id="linky17">29 Times Things Escalated Way too Quickly</a><br>
+## <a href="#linky19" id="linky18">Entitled Boomer Craving Chinese Food Gets Instant Karma</a><br>
 
-<span style="font-size:4em">1. Forget ant traps, it might be time to call the exterminator.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176656.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115419/87177586/begin.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. This is something you dont want to see as a parent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176689.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115430/87177587/phone.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. This is just nasty. And also probably a heart attack waiting to happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176687.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115507/87177588/bye.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Whats good for the goose... ugh never mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176657.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115656/87177590/ten.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176658.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. They handled this much better than I would have. Its my phone number now, I dont have to tell you sh*t! Goodbye.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115744/87177591/hangry.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176660.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115820/87177592/rice.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now that is one expensive whoops!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I for one welcome our robot overlords.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176693.jpg" style="width:100%"><br>
-
-## <a href="#linky19" id="linky18">24 Redneck Fixes We Wish We’d Thought Of</a><br>
-
-<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Prank Sinatra wins. Go f**k yourself dude. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115934/87177593/end.jpg" style="width:100%"><br>
 
