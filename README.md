@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/28/2022-14:11:31
+Last updated: 05/28/2022-15:11:31
 <br>
 ## <a href="#linky2" id="linky1">23 People Who Cracked a Good Joke in the Comments Section</a><br>
 
@@ -49,39 +49,189 @@ Last updated: 05/28/2022-14:11:31
 
 <span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/121241/87177617/sillycomments23.png" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">Celebrities People Aren't Used To Seeing Young</a><br>
+## <a href="#linky3" id="linky2">30 Weird Things Being Sold Online</a><br>
 
-<span style="font-size:4em">1. Wallace Shawn - Is best known for his role in The Princess Bride, and Annie Hall. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165215.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Anjelica Huston - Probably best known for her roles in The Addams Family and The Witches. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165205.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. John Lithgow -  Best know for his role on #3rd Rock From the Sun, John Lithgow has two Golden Globe Awards, six Primetime Emmy Awards, three Screen Actors Guild Awards, two Tony Awards and nominations for two Academy Awards </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165206.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Charlotte Rampling - Tessa Charlotte Rampling OBE is an English actress, model, and singer, known for her work in European arthouse films in English, French, and Italian. An icon of the Swinging Sixties, she began her career as a model and later became a fashion icon and muse.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165207.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Barbara Hershey - Barbara Lynn Herzstein, better known as Barbara Hershey, is an American actress. In a career spanning more than 50 years, she has played a variety of roles on television and in cinema in several genres, including westerns and comedies. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165208.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Stan Lee - RIP</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165209.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Frances Fisher - Frances Louise Fisher is a British-born American actress. She began her career in theatre and later starred as record executive Suzette Red Saxon in the CBS daytime soap opera The Guiding Light.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165210.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Annette O’Toole - Annette OToole is an American actress. She is known for portraying Lisa Bridges in the television series Nash Bridges, Beverly Marsh in the 1990 television mini-series adaptation of Stephen Kings. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165211.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Mary Steenburgen. Mary Nell Steenburgen is an American actress, comedian, singer, and songwriter. After studying at New Yorks Neighborhood Playhouse in the 1970s, she made her professional acting debut in 1978 Western comedy film Goin South</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165212.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Kristin Scott Thomas - Dame Kristin Ann Scott Thomas DBE is a British actress who also holds French citizenship. A five-time BAFTA Award and Olivier Award nominee, she won the BAFTA Award for Best Actress in a Supporting Role</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165213.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Gena Rowlands - Virginia Cathryn Gena Rowlands is a retired American actress, whose career in film, stage, and television has spanned seven decades.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165214.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. James Naughton - James Naughton is an American actor and director known for his work on Planet of the Apes. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165216.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Vanessa Redgrave - Dame Vanessa Redgrave DBE is an English actress and activist. Throughout her career spanning over six decades, Redgrave has garnered numerous accolades, including an Academy Award</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165217.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Susan Sullivan - Susan Michaela Sullivan is an American actress. Sullivan is best known for her roles as Lenore Curtin Delaney on the NBC daytime soap opera Another World, as Lois Adams on the ABC sitcom Its a Living. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165218.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Gina Gershon - Gina L. Gershon is an American actress. She has had roles in the films Cocktail, Red Heat, Showgirls, Bound, Face/Off, The Insider, Demonlover, P.S. I Love You, Five Minarets in New York, Killer Joe and House of Versace.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87165219.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
 
-## <a href="#linky4" id="linky3">51 Funny Facepalms of Silly Fools</a><br>
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
+
+## <a href="#linky4" id="linky3">25 Toxic Traits Women Get Away With</a><br>
+
+<span style="font-size:4em">1. Last week: 3 women admiring my fiancé’s new engagement ring (which is a bit flashy)My fiancé tells them it’s lab-made, which is what she wantedOne of them responded with “Oh, that doesn’t count then”-u/VertibirdGoBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Trying to dodge responsibility and accountability for bad behavior by shouting if you cant handle me at my worst you dont deserve me at my best.-u/neobeguine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. My ex-boss (female) who spoke about feminism and woman empowerment and then gave my female colleague anxiety attacks though persistent bullying.-u/peoplecallmedude797</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Ive started reading a lot of forums of expecting mothers and mothers, and is terrifying to see how much pressure there is regarding birthing and motherhood: youll never be a proper mother if you have a c-section; you will never bond properly/be a good mother if you dont breastfeed; if you dont do X or Y or Z your child will be unhappy/unloved/will die and it will be your fault.And measuring a womans worth over the power of their vaginas: shame on you for doing IVF, there must be something wrong if you had only miscarriages, adopting is fine, but is the acceptance of failure, bio moms are best moms.-u/Kaliforniah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Makeup and fashion fans bullying you for how you show your femininity and performing it not being your priority. If your makeup is not flawless and in trend, not okay. If you dont wear feminine, flattering clothes, not okay.-u/throwaway_thursday32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. If you gave birth through c-section, youre not a real mom.What. The. F*ck? Suddenly 9 months of pregnancy, a terrifying procedure and caring for a newborn doesnt count because MacDuff from his mothers womb was untimely ripped? Whose baby is this then, since apparently, no mothers are present?-u/CaptValentine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Shaming other girls/women for not doing/liking the same things you do and implying that their preferences make them not real women or similar. Basically saying that your way to be a woman is the only valid way.-u/rinky79</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176103.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Queen bee bullying at the workplace. Basically, letting high school never end. About 60% of women experience it.Men bully as well, but women bullying women isnt even acknowledged as a problem most of the time.-u/raxeira-etterath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176104.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. Whatever is happening in Facebook birthing/mom groups. Some women are so out of touch with reality and high on toxic femininity that they think their uteruses are better than any doctor and that their feminine intuition supersedes any medical testing or intervention available today. Women are being brainwashed into skipping fetal testing and to avoid medical intervention even in life or death situations. It is literally killing mothers and babies and injuring a lot more.-u/no_ovaries_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Basically expecting a partner to put up with your drama as proof of them actually being into you/making them jump through hoops to prove they’re into you.-u/Laleena_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. I see a lot of body-positive women that sh*t on my girlfriend for working out and keeping her body hairless. They always say she should be more loving of her body and embrace her body hair.It’s annoying. She does it cause SHE likes it. She goes to the gym and does deadlifts cause it empowers her and makes her feel AMAZING. Like, we all have different ideals and visions for our life. And after moisturizing herself and shaving she likes to rub her legs together like a cricket, and nobody should be taking that little slice of heaven from her.-u/Euowol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. All other girls are b*tches If youre a girl and think that, thats a you problem-u/Frogs-r-fun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. Girls who hit guys because they know the guy won’t hit them back-u/Snu99lyN1pples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Being unable to critize another woman for sh*t she did since women support each other. Has the exact same energy as frat guys saying bro code.-u/Bi_Aint_Shi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Is it just me or is the term “Happy wife, happy life!” a little messed up? I’ve mostly been told this from women but idk it sounds purely a way to be controlling of your partner-u/Public-Juggernaut-56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Believing that its a mans job to impress her when shes dating. F*ck that, if you like someone ACT AS THOUGH YOU LIKE THEM. Dating is an equal exchange of time and emotional labor, if she feels like she needs further financial compensation beyond that (paying for the food/show/whatever it is) then maybe she doesn’t like him enough.-u/BrainHurtingJuice129</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Abusive or possessive behavior, not only towards their husband/wife, but also towards friends and family.The classic “if you scream at me, I’ll call the police and tell them you hit me even though I’m the wrong here”-u/Strong_Month_3534</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176113.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Testing. This applies to testing their romantic partners just as much as their friends/family. Where they intentionally put someone in a situation that is rigged against them in order to judge them in some fashion based on their reaction.Im not claiming this is a feminine-only trait, but in my personal experience Ive seen it come from women much more than men.My sisters friend recently gave her permission to pursue a guy they were mutually attracted to. My sister did, and it turned out that the friend was only testing to see if my sister was a real friend or not. Yikes.-u/Aequitas2116</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176114.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Just dropping an ‘I hate men’ into a conversation with male coworkers. I have no idea how to respond to it and feel bad.-u/WHOOPS_WHOOPSIE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176115.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Expecting all the affection and love in the world from their boyfriends and never showing a glimpse of it towards them. Men DO have feelings you know?-u/nabedid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176116.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Fake domestic violence or rape accusations-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176117.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Slut-shaming other women and buying into the Madonna-whore dichotomy.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176118.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. Sh*tting on stay at home moms or Sex Workers because you dont understand their choices. Feminism means we all get to choose our own path. Not everyone wants a high-powered career and thats Ok.-u/OlderWiserLesbian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176119.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Mother hens (matriarchs) controlling their group of friends: where they do, what they do, who they meet and associate with. Controlling people’s behavior basically-u/heatseekerdj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176120.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
+
+## <a href="#linky5" id="linky4">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
+
+## <a href="#linky6" id="linky5">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
+
+<span style="font-size:4em">1. Would you look at that. What a lovely day to be topside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177448.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Oh no. That...that doesnt look good. Maybe someone should take a look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177451.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Imagine just strolling along the deck, and outside of your window you see this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177452.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Another view...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177446.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. And another..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177450.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Alright, this is getting really aggressive. Someone might want to take a look at this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177447.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Cool, or well just watch this thing burn. Glad we chose Carnival, good call honey!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177449.jpg" style="width:100%"><br>
+
+## <a href="#linky7" id="linky6">51 Funny Facepalms of Silly Fools</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104517/87177471/palmtheface4.png" style="width:100%"><br>
 
@@ -185,7 +335,7 @@ Last updated: 05/28/2022-14:11:31
 
 <span style="font-size:4em">51. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/104926/87177515/palmtheface51.png" style="width:100%"><br>
 
-## <a href="#linky5" id="linky4">30 Disturbing Facts About The Human Body</a><br>
+## <a href="#linky8" id="linky7">30 Disturbing Facts About The Human Body</a><br>
 
 <span style="font-size:4em">1. Stomach acid is very powerful, it would burn right though us if we didn’t secrete mucus every few hours.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176466.jpg" style="width:100%"><br>
 
@@ -281,7 +431,59 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">30. Your immune system doesn’t know your eyes exist, if it did it would attack them and make you go blind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176487.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">56 Kickass Pics and Photos for Your Amusement</a><br>
+## <a href="#linky9" id="linky8">25 People Who Realized Disturbing Truths</a><br>
+
+<span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. “Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. “My grandpa just wanted to get to know me and the man I was becoming during his last year of life. Which I was too young and too selfish to realize.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “This is coming from a firefighter: If you have to perform CPR on them, its most likely over for the patient. Im not sure if Ive made peace with it completely, but Ive accepted it at least.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. “My dad passed away 6 weeks ago and I will NEVER see, hear, chat or get to hug him ever again & that forever is a long time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “You can be hanging with your best friends and not realize that it is actually the last time youll ever be all together in the same room. Even just because of moving cities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. “That at the end of the day, the only one I can rely on is myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Being alive is expensive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. “I went through 2 years of cancer treatments. I realized this after 6 cycles of chemotherapy. No one’s coming. Hardest part of my life has been realizing this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. “Im aging nonstop”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. “I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “Im aware enough to know that there is something wrong with me. But Im not aware enough to know what it is, let alone fix it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. “My childhood is gone, and I have no good memory from that phase of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. “Just because you think someone is the one, doesnt mean they think you are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. “There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realise, but almost 3 years in Im kind of okay with it. They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally. Im aware of ongoing research, but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174678.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. “My depression is very likely chronic. Ill be living with it for the rest of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. “You can do everything perfectly and still fail completely.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174680.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. “People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174681.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. “I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174682.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “That my whole life has been a waste. That if I disappeared tomorrow nobody would even know or care. I used to consciously feel the existential dread that brings, but now I just kind of ignore it and keep going on with my mechanical existence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174683.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Youre completely alone inside your own head. No one will ever be able to truly feel what you feel..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174684.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. “You can fall out of love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174685.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. “We are all loved conditionally.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. “Ill never be as attractive as I could have been if Id eaten sensibly in college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174688.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
+
+## <a href="#linky10" id="linky9">56 Kickass Pics and Photos for Your Amusement</a><br>
 
 <span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2183782/87175824.jpg" style="width:100%"><br>
 
@@ -395,225 +597,57 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">56. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/26/125748/87176652/87176389.jpg" style="width:100%"><br>
 
-## <a href="#linky7" id="linky6">25 Toxic Traits Women Get Away With</a><br>
+## <a href="#linky11" id="linky10">24 Redneck Fixes We Wish We’d Thought Of</a><br>
 
-<span style="font-size:4em">1. Last week: 3 women admiring my fiancé’s new engagement ring (which is a bit flashy)My fiancé tells them it’s lab-made, which is what she wantedOne of them responded with “Oh, that doesn’t count then”-u/VertibirdGoBoom</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176097.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Trying to dodge responsibility and accountability for bad behavior by shouting if you cant handle me at my worst you dont deserve me at my best.-u/neobeguine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176098.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. My ex-boss (female) who spoke about feminism and woman empowerment and then gave my female colleague anxiety attacks though persistent bullying.-u/peoplecallmedude797</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176099.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Ive started reading a lot of forums of expecting mothers and mothers, and is terrifying to see how much pressure there is regarding birthing and motherhood: youll never be a proper mother if you have a c-section; you will never bond properly/be a good mother if you dont breastfeed; if you dont do X or Y or Z your child will be unhappy/unloved/will die and it will be your fault.And measuring a womans worth over the power of their vaginas: shame on you for doing IVF, there must be something wrong if you had only miscarriages, adopting is fine, but is the acceptance of failure, bio moms are best moms.-u/Kaliforniah</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176100.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Makeup and fashion fans bullying you for how you show your femininity and performing it not being your priority. If your makeup is not flawless and in trend, not okay. If you dont wear feminine, flattering clothes, not okay.-u/throwaway_thursday32</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176101.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. If you gave birth through c-section, youre not a real mom.What. The. F*ck? Suddenly 9 months of pregnancy, a terrifying procedure and caring for a newborn doesnt count because MacDuff from his mothers womb was untimely ripped? Whose baby is this then, since apparently, no mothers are present?-u/CaptValentine</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176102.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Shaming other girls/women for not doing/liking the same things you do and implying that their preferences make them not real women or similar. Basically saying that your way to be a woman is the only valid way.-u/rinky79</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176103.jpeg" style="width:100%"><br>
+<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Queen bee bullying at the workplace. Basically, letting high school never end. About 60% of women experience it.Men bully as well, but women bullying women isnt even acknowledged as a problem most of the time.-u/raxeira-etterath</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176104.png" style="width:100%"><br>
+<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. Whatever is happening in Facebook birthing/mom groups. Some women are so out of touch with reality and high on toxic femininity that they think their uteruses are better than any doctor and that their feminine intuition supersedes any medical testing or intervention available today. Women are being brainwashed into skipping fetal testing and to avoid medical intervention even in life or death situations. It is literally killing mothers and babies and injuring a lot more.-u/no_ovaries_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176105.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Basically expecting a partner to put up with your drama as proof of them actually being into you/making them jump through hoops to prove they’re into you.-u/Laleena_</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176106.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. I see a lot of body-positive women that sh*t on my girlfriend for working out and keeping her body hairless. They always say she should be more loving of her body and embrace her body hair.It’s annoying. She does it cause SHE likes it. She goes to the gym and does deadlifts cause it empowers her and makes her feel AMAZING. Like, we all have different ideals and visions for our life. And after moisturizing herself and shaving she likes to rub her legs together like a cricket, and nobody should be taking that little slice of heaven from her.-u/Euowol</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176107.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. All other girls are b*tches If youre a girl and think that, thats a you problem-u/Frogs-r-fun</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176108.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Girls who hit guys because they know the guy won’t hit them back-u/Snu99lyN1pples</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176109.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. Being unable to critize another woman for sh*t she did since women support each other. Has the exact same energy as frat guys saying bro code.-u/Bi_Aint_Shi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176110.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. Is it just me or is the term “Happy wife, happy life!” a little messed up? I’ve mostly been told this from women but idk it sounds purely a way to be controlling of your partner-u/Public-Juggernaut-56</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176111.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Believing that its a mans job to impress her when shes dating. F*ck that, if you like someone ACT AS THOUGH YOU LIKE THEM. Dating is an equal exchange of time and emotional labor, if she feels like she needs further financial compensation beyond that (paying for the food/show/whatever it is) then maybe she doesn’t like him enough.-u/BrainHurtingJuice129</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176112.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. Abusive or possessive behavior, not only towards their husband/wife, but also towards friends and family.The classic “if you scream at me, I’ll call the police and tell them you hit me even though I’m the wrong here”-u/Strong_Month_3534</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176113.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Testing. This applies to testing their romantic partners just as much as their friends/family. Where they intentionally put someone in a situation that is rigged against them in order to judge them in some fashion based on their reaction.Im not claiming this is a feminine-only trait, but in my personal experience Ive seen it come from women much more than men.My sisters friend recently gave her permission to pursue a guy they were mutually attracted to. My sister did, and it turned out that the friend was only testing to see if my sister was a real friend or not. Yikes.-u/Aequitas2116</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176114.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Just dropping an ‘I hate men’ into a conversation with male coworkers. I have no idea how to respond to it and feel bad.-u/WHOOPS_WHOOPSIE</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176115.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. Expecting all the affection and love in the world from their boyfriends and never showing a glimpse of it towards them. Men DO have feelings you know?-u/nabedid</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176116.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. Fake domestic violence or rape accusations-deleted user</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176117.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. Slut-shaming other women and buying into the Madonna-whore dichotomy.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176118.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. Sh*tting on stay at home moms or Sex Workers because you dont understand their choices. Feminism means we all get to choose our own path. Not everyone wants a high-powered career and thats Ok.-u/OlderWiserLesbian</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176119.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Mother hens (matriarchs) controlling their group of friends: where they do, what they do, who they meet and associate with. Controlling people’s behavior basically-u/heatseekerdj</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176120.jpeg" style="width:100%"><br>
+<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Placing your entire self-worth on being desirable to men, or assuming any woman who dislikes you must be jealous of your desirability. Not knowing who you are without male attention.-u/audreymarilynvivien</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176121.jpg" style="width:100%"><br>
-
-## <a href="#linky8" id="linky7">25 Dank Memes That Are Surprisingly Dank for Their Age</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176189.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176190.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176191.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176192.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176193.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176194.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176195.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176196.png" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176197.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176198.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176199.png" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176200.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176201.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176202.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176203.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176204.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176205.png" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176206.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176207.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176208.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176209.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176210.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176211.png" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176212.png" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/730195/87176213.jpg" style="width:100%"><br>
-
-## <a href="#linky9" id="linky8">25 People Who Realized Disturbing Truths</a><br>
-
-<span style="font-size:4em">1. “The people that cause the most harm to the world will go unpunished, live happy and fulfilled lives, and die getting to do pretty much anything they ever wanted simply because they were either born into wealth or managed to acquire tons of if through nefarious means.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. “Sometimes people you care deeply about will choose to drop out of your life and all you can really do is have the grace to let them.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. “My grandpa just wanted to get to know me and the man I was becoming during his last year of life. Which I was too young and too selfish to realize.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “This is coming from a firefighter: If you have to perform CPR on them, its most likely over for the patient. Im not sure if Ive made peace with it completely, but Ive accepted it at least.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. “My dad passed away 6 weeks ago and I will NEVER see, hear, chat or get to hug him ever again & that forever is a long time.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “You can be hanging with your best friends and not realize that it is actually the last time youll ever be all together in the same room. Even just because of moving cities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. “That at the end of the day, the only one I can rely on is myself.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Being alive is expensive.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. “I went through 2 years of cancer treatments. I realized this after 6 cycles of chemotherapy. No one’s coming. Hardest part of my life has been realizing this.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. “Im aging nonstop”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. “I realized in therapy yesterday Im only keeping myself alive out of a sense of obligation to others. That wasnt a fun realization.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “Im aware enough to know that there is something wrong with me. But Im not aware enough to know what it is, let alone fix it.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. “My childhood is gone, and I have no good memory from that phase of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. “Just because you think someone is the one, doesnt mean they think you are.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. “There will be no cure for my spinal cord injury in my lifetime. It was initially very depressing to realise, but almost 3 years in Im kind of okay with it. They should cure other stuff like ALS first, and if it has to be SCI related - cure the nerve pain, or the bowel/bladder stuff. The not walking is very low on my list of priorities personally. Im aware of ongoing research, but have no faith in any of it. Wed have to either revolutionize neurology or be very lucky.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174678.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. “My depression is very likely chronic. Ill be living with it for the rest of my life.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. “You can do everything perfectly and still fail completely.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174680.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. “People would rather leave you than own up to what they did and they’ll never even give you a second thought. Humans, turns out, are good at lying to themselves.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174681.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. “I find it more comforting than depressing but some people will see it as the opposite. Im entirely fine with being in no relationship. Its been almost a decade since the last one and I just dont see it as the priority that others do. Im entirely fine with just having friends and colleagues. Hell Im happy. I just wanna toss it out there because some people might find my reasoning to be helpful in deciding their life priorities.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174682.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “That my whole life has been a waste. That if I disappeared tomorrow nobody would even know or care. I used to consciously feel the existential dread that brings, but now I just kind of ignore it and keep going on with my mechanical existence.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174683.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Youre completely alone inside your own head. No one will ever be able to truly feel what you feel..”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174684.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. “You can fall out of love.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174685.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. “We are all loved conditionally.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. “Ill never be as attractive as I could have been if Id eaten sensibly in college.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174688.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “Humanity will never cease conflict. As soon as we solve something we turn against something else.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87174689.jpg" style="width:100%"><br>
-
-## <a href="#linky10" id="linky9">30 Weird Things Being Sold Online</a><br>
-
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175430.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175413.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175409.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175410.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175411.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175412.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175420.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175414.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175415.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175416.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175417.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175418.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175419.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175406.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175407.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175408.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175421.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175422.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175423.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175424.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175425.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175426.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175427.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175428.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175429.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175431.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175432.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175433.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175434.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87175435.jpg" style="width:100%"><br>
-
-## <a href="#linky11" id="linky10">29 Times Things Escalated Way too Quickly</a><br>
+## <a href="#linky12" id="linky11">29 Times Things Escalated Way too Quickly</a><br>
 
 <span style="font-size:4em">1. Forget ant traps, it might be time to call the exterminator.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176656.jpg" style="width:100%"><br>
 
@@ -673,73 +707,57 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176693.jpg" style="width:100%"><br>
 
-## <a href="#linky12" id="linky11">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
+## <a href="#linky13" id="linky12">25 Minor Life-Hacks That Have a Big Impact </a><br>
 
-<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
+<span style="font-size:4em">1.  ”Give a crying kid water. Most of the time they start crying for a reason but continue crying because they cant snap out of it. Drinking the water forces them to take a breath and the sensation of the water gets them to think about something else briefly enough to settle them..” - hanginonwith2fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158834.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
+<span style="font-size:4em">2.  “I put my car keys on items I want to take with me when I leave a place.” - yesyesitswayexpired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158835.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
+<span style="font-size:4em">3.  “When microwaving bread, fries, etc. make sure to put a microwavable cup or coffee mug half full of water in the microwave with the food as well. Everything will come out nice and crispy as opposed to soggy and gross.” - RedmanYehman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158836.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. “In a similar vein, Ive found that sprinkling leftover rice with a bit of water makes it way better for reheating quickly in the microwave. Just run your fingers under the faucet and give it a couple sprinkles.” - OssimPossim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158837.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
+<span style="font-size:4em">5.  “You can get a lot of free stuff from your local library, but my personal favorite is the free museum pass program.” - bowlbettertalk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158838.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. “Use your microwave at ~70% power for 1.25-1.5 longer time. Much better heat distribution for your food” - UgglyCasanova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158839.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
+<span style="font-size:4em">7.  “Every time you lent your friends something take a pic of them next to it. Always works” - DEFranco123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158840.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. “Teaching someone what you have just learned , you will retain the information 90% better than any other method” - spaithe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158841.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
+<span style="font-size:4em">9.  “Windows + V Opens your clipboard and stores 25 items that you have copied” - Qu33nM4ry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158842.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
+<span style="font-size:4em">10.  “Mix baking soda and water to form a paste, apply to an area that has a splinter. This will usually pull that sucker right out.” - shartnado3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158843.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
+<span style="font-size:4em">11.  “There is a 24-hour rule on all airfare purchases (in the US) that a purchased reservation can be canceled within 24 hours without penalty and with a full refund to the original form of payment.” - Brilliant_Badger_475</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158844.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
+<span style="font-size:4em">12. “I keep a laundry basket in the trunk of my car so when i get groceries i can put the bags in the basket and mqke the trip inside a LOT less of a struggle haha” - Fit-Toe-1817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158845.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
+<span style="font-size:4em">13.  “If you have a problem with wasps, this is the perfect time of year to make a fake nest. Crumble up a brown paper bag into a round shape and put in your window or on your balcony. Wasps are stupid as hell but they are territorial and will think its another wasps nest. And they will tell their friends to avoid the area.” - ipakookapi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158846.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
+<span style="font-size:4em">14.  “If you cant open a jar or container, run the lid under hot water for 30 seconds. Then open it after it has dried enough for you to get a good grip on it. This has never failed to work for me. Theres a lot of good material on this page!” - oliverchensley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158847.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
+<span style="font-size:4em">15.  “If you mess up, just admit you messed up. If you forgot to do something at work just say yes that was my fault, im sorry, I messed up. People are much more likely to forgive you if you own your shit.” - Kittobear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158848.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
+<span style="font-size:4em">16.  “Add a paper towel to a bag of spinach, field greens, or lettuce to make it last a lot longer.” - xDraXXus757x</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158849.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
+<span style="font-size:4em">17.  “Clean out the lint filter on your tumble drier after every use. It takes seconds and could save your life....” - Summerofmylife71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158850.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
+<span style="font-size:4em">18.  “Buy a six foot phone charging cord.” - bjanas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158851.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
+<span style="font-size:4em">19.  “At Christmas, when you have a real tree and its hard to see the water level in the reservoir due to the lower branches, throw a ping pong ball in the water. Add water until the ping pong ball resurfaces. Also, store your lights around cardboard tubes, like wrapping paper or paper towel tubes. Make a 1 slit in either side to slide the cord end through. Not only do they stay neat and tidy in storage without getting tangled, but theyre also easier to put on the tree (and you can roll them onto the tube while taking them off). And you can plug them in to test, and easily be able to spot a blown/faulty bulb so you can replace it.” - SolidDoctor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158852.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. “Get a furniture dolly. Get a stepladder. Get several pairs of scissors. Put one in each utility drawer or junk drawer in your home. For us its kitchen, living room, bathroom, bedroom. In general, if youre looking for a household tool and its not where you first looked: Once you do find it, when youre done using it, put it back where you first looked for it. Your brain has already decided thats where it should live. Next time, itll be exactly where you expected it to be, without you even having to think about it.” - lucia-pacciola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158853.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Wear sunscreen, even if it isn’t that sunny out. UV can still go right through light cloud cover.” - Taman_Should</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158854.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
+<span style="font-size:4em">22.  “Maybe this is a European thing, but anyway. Some hotel rooms have a slot where youre supposed to insert your keycard to turn on the electricity in the room. Those slots are in no way part of the keycard system and are just dumb switches that can be activated with any card that fits the slot. Good to know if you want to run the AC or charge your devices while being out of the room.” - captain_longstocking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158855.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
+<span style="font-size:4em">23.  “Best hornet/wasp/ant killer I know is plain old dish soap mixed with water in a spray bottle. The ratio isnt that important, just put a big squirt in there and shake it up. Doesnt stain, its safe around pets/kids, and will instantly kill most bugs. Wasps literally fall out of the air dead as soon as the mist hits them. (Bugs breathe through tiny pores in their exoskeleton, so tiny that water cant get in due to surface tension. Soap is a surfactant, it reduces surface tension, which means water now goes into those pores and drowns them.)” - MyNameIsRay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158856.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
+<span style="font-size:4em">24.  “Working with a partner is not about compromising on every decision. Sometimes their idea needs to just win. And visa versa.” - leftside72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158857.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
-
-## <a href="#linky13" id="linky12">Flames Rage on as Unfortunate Floater Catches Fire Out of Florida</a><br>
-
-<span style="font-size:4em">1. Would you look at that. What a lovely day to be topside. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177448.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Oh no. That...that doesnt look good. Maybe someone should take a look.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177451.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Imagine just strolling along the deck, and outside of your window you see this...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177452.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Another view...</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177446.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. And another..</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177450.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Alright, this is getting really aggressive. Someone might want to take a look at this.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177447.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Cool, or well just watch this thing burn. Glad we chose Carnival, good call honey!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2605038/87177449.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. “In the dishwasher - throw any citrus peel into the utensil rack and wash; the citric acid released inside your dishwasher will degunk/clean it and make your dishes sparkly clean. to reduce the effort when cleaning your shower -- go to the dollar store and buy those dish stick scrubbers where you can fill the handle with dish soap. I use a mix of diluted dawn dish soap (with water and I add a bit of vinegar). Keep that in the shower and scrub the walls/floor when in the shower! makes cleaning the fucking shower less effort and you can actually extend the time between cleanings. Gets rid of soap scum and prevents mold from forming.” - rudebish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158858.jpg" style="width:100%"><br>
 
 ## <a href="#linky14" id="linky13">40 Adult Themed Memes for Your Lowbrow Sense of Humor</a><br>
 
@@ -839,57 +857,57 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 
 <span style="font-size:4em">7. Prank Sinatra wins. Go f**k yourself dude. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115934/87177593/end.jpg" style="width:100%"><br>
 
-## <a href="#linky16" id="linky15">25 Minor Life-Hacks That Have a Big Impact </a><br>
+## <a href="#linky16" id="linky15">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
 
-<span style="font-size:4em">1.  ”Give a crying kid water. Most of the time they start crying for a reason but continue crying because they cant snap out of it. Drinking the water forces them to take a breath and the sensation of the water gets them to think about something else briefly enough to settle them..” - hanginonwith2fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158834.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2.  “I put my car keys on items I want to take with me when I leave a place.” - yesyesitswayexpired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158835.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3.  “When microwaving bread, fries, etc. make sure to put a microwavable cup or coffee mug half full of water in the microwave with the food as well. Everything will come out nice and crispy as opposed to soggy and gross.” - RedmanYehman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158836.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. “In a similar vein, Ive found that sprinkling leftover rice with a bit of water makes it way better for reheating quickly in the microwave. Just run your fingers under the faucet and give it a couple sprinkles.” - OssimPossim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158837.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5.  “You can get a lot of free stuff from your local library, but my personal favorite is the free museum pass program.” - bowlbettertalk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158838.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. “Use your microwave at ~70% power for 1.25-1.5 longer time. Much better heat distribution for your food” - UgglyCasanova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158839.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7.  “Every time you lent your friends something take a pic of them next to it. Always works” - DEFranco123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158840.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. “Teaching someone what you have just learned , you will retain the information 90% better than any other method” - spaithe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158841.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9.  “Windows + V Opens your clipboard and stores 25 items that you have copied” - Qu33nM4ry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158842.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10.  “Mix baking soda and water to form a paste, apply to an area that has a splinter. This will usually pull that sucker right out.” - shartnado3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158843.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11.  “There is a 24-hour rule on all airfare purchases (in the US) that a purchased reservation can be canceled within 24 hours without penalty and with a full refund to the original form of payment.” - Brilliant_Badger_475</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158844.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. “I keep a laundry basket in the trunk of my car so when i get groceries i can put the bags in the basket and mqke the trip inside a LOT less of a struggle haha” - Fit-Toe-1817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158845.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
 
-<span style="font-size:4em">13.  “If you have a problem with wasps, this is the perfect time of year to make a fake nest. Crumble up a brown paper bag into a round shape and put in your window or on your balcony. Wasps are stupid as hell but they are territorial and will think its another wasps nest. And they will tell their friends to avoid the area.” - ipakookapi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158846.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14.  “If you cant open a jar or container, run the lid under hot water for 30 seconds. Then open it after it has dried enough for you to get a good grip on it. This has never failed to work for me. Theres a lot of good material on this page!” - oliverchensley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158847.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15.  “If you mess up, just admit you messed up. If you forgot to do something at work just say yes that was my fault, im sorry, I messed up. People are much more likely to forgive you if you own your shit.” - Kittobear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158848.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16.  “Add a paper towel to a bag of spinach, field greens, or lettuce to make it last a lot longer.” - xDraXXus757x</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158849.jpg" style="width:100%"><br>
+<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17.  “Clean out the lint filter on your tumble drier after every use. It takes seconds and could save your life....” - Summerofmylife71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158850.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18.  “Buy a six foot phone charging cord.” - bjanas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158851.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19.  “At Christmas, when you have a real tree and its hard to see the water level in the reservoir due to the lower branches, throw a ping pong ball in the water. Add water until the ping pong ball resurfaces. Also, store your lights around cardboard tubes, like wrapping paper or paper towel tubes. Make a 1 slit in either side to slide the cord end through. Not only do they stay neat and tidy in storage without getting tangled, but theyre also easier to put on the tree (and you can roll them onto the tube while taking them off). And you can plug them in to test, and easily be able to spot a blown/faulty bulb so you can replace it.” - SolidDoctor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158852.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. “Get a furniture dolly. Get a stepladder. Get several pairs of scissors. Put one in each utility drawer or junk drawer in your home. For us its kitchen, living room, bathroom, bedroom. In general, if youre looking for a household tool and its not where you first looked: Once you do find it, when youre done using it, put it back where you first looked for it. Your brain has already decided thats where it should live. Next time, itll be exactly where you expected it to be, without you even having to think about it.” - lucia-pacciola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158853.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. “Wear sunscreen, even if it isn’t that sunny out. UV can still go right through light cloud cover.” - Taman_Should</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158854.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22.  “Maybe this is a European thing, but anyway. Some hotel rooms have a slot where youre supposed to insert your keycard to turn on the electricity in the room. Those slots are in no way part of the keycard system and are just dumb switches that can be activated with any card that fits the slot. Good to know if you want to run the AC or charge your devices while being out of the room.” - captain_longstocking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158855.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23.  “Best hornet/wasp/ant killer I know is plain old dish soap mixed with water in a spray bottle. The ratio isnt that important, just put a big squirt in there and shake it up. Doesnt stain, its safe around pets/kids, and will instantly kill most bugs. Wasps literally fall out of the air dead as soon as the mist hits them. (Bugs breathe through tiny pores in their exoskeleton, so tiny that water cant get in due to surface tension. Soap is a surfactant, it reduces surface tension, which means water now goes into those pores and drowns them.)” - MyNameIsRay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158856.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24.  “Working with a partner is not about compromising on every decision. Sometimes their idea needs to just win. And visa versa.” - leftside72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158857.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. “In the dishwasher - throw any citrus peel into the utensil rack and wash; the citric acid released inside your dishwasher will degunk/clean it and make your dishes sparkly clean. to reduce the effort when cleaning your shower -- go to the dollar store and buy those dish stick scrubbers where you can fill the handle with dish soap. I use a mix of diluted dawn dish soap (with water and I add a bit of vinegar). Keep that in the shower and scrub the walls/floor when in the shower! makes cleaning the fucking shower less effort and you can actually extend the time between cleanings. Gets rid of soap scum and prevents mold from forming.” - rudebish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158858.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
 
 ## <a href="#linky17" id="linky16">The Funniest Struggle Tweets of the Week </a><br>
 
@@ -954,54 +972,4 @@ I’m sorry everyone, but they asked.</span><br><img src="https://cdn.ebaumsworl
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169836.jpeg" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169837.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">24 Redneck Fixes We Wish We’d Thought Of</a><br>
-
-<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
 
