@@ -1,5 +1,5 @@
 # All ur Memez R belog to Uz<br>
-Last updated: 05/29/2022-15:11:31
+Last updated: 05/29/2022-16:11:31
 <br>
 ## <a href="#linky2" id="linky1">30 Important Historical Photos</a><br>
 
@@ -71,87 +71,57 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">30. The Man Who Inspired The Creation Of Shrek, 1944</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87177444.jpg" style="width:100%"><br>
 
-## <a href="#linky3" id="linky2">40 Adult Themed Memes for Your Lowbrow Sense of Humor</a><br>
+## <a href="#linky3" id="linky2">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173855.jpeg" style="width:100%"><br>
+<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173856.jpeg" style="width:100%"><br>
+<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173859.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173864.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173866.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173869.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173870.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173871.jpg" style="width:100%"><br>
+<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173876.jpg" style="width:100%"><br>
+<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173879.jpg" style="width:100%"><br>
+<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173882.jpg" style="width:100%"><br>
+<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173889.jpg" style="width:100%"><br>
+<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
 
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173890.jpg" style="width:100%"><br>
+<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173891.jpg" style="width:100%"><br>
+<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173893.jpg" style="width:100%"><br>
+<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173897.jpeg" style="width:100%"><br>
+<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113732/87177560/87151331.jpg" style="width:100%"><br>
+<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113745/87177561/87151346.jpg" style="width:100%"><br>
+<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113756/87177562/87151341.jpg" style="width:100%"><br>
+<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
 
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113802/87177563/87151333.jpg" style="width:100%"><br>
+<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113808/87177564/87151352.jpg" style="width:100%"><br>
+<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113814/87177565/87151355.jpg" style="width:100%"><br>
+<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113819/87177566/87151357.jpg" style="width:100%"><br>
+<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
 
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113826/87177567/87151359.jpg" style="width:100%"><br>
+<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113830/87177568/87153826.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113837/87177569/87153830.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113841/87177570/87159316.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113848/87177571/87159317.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113852/87177572/87159319.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113859/87177573/87159329.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113903/87177574/87159340.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113910/87177575/87159344.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113914/87177576/87159353.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113921/87177577/87159354.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113925/87177578/87164103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113932/87177579/87164106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113936/87177580/87164111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113943/87177581/87164112.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113947/87177582/87164128.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113954/87177583/87164140.jpg" style="width:100%"><br>
+<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
 
 ## <a href="#linky4" id="linky3">23 People Who Cracked a Good Joke in the Comments Section</a><br>
 
@@ -335,21 +305,47 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">66. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/28/104017/87178143/87177213.jpg" style="width:100%"><br>
 
-## <a href="#linky6" id="linky5">Entitled Boomer Craving Chinese Food Gets Instant Karma</a><br>
+## <a href="#linky6" id="linky5">Beer Facts for Casual Drinkers and Alcoholics Alike</a><br>
 
-<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115419/87177586/begin.jpg" style="width:100%"><br>
+<span style="font-size:4em">1. Colt 45 was named after the Baltimore Colts, and not the gun by the same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020104/87177717/colt.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115430/87177587/phone.jpg" style="width:100%"><br>
+<span style="font-size:4em">2. The MLB told Cardinals owner August Busch Jr. that he couldnt name their field Budweiser Stadium. He did however use his familys name, and had them brew a beer after the fact. Hence Busch Beer and Busch Stadium.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177719/buschstadium.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115507/87177588/bye.jpg" style="width:100%"><br>
+<span style="font-size:4em">3. In a blind taste testing, beer enthusiasts couldnt actually tell if a beer was poured from a can or a bottle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177720/bottlecan.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115656/87177590/ten.jpg" style="width:100%"><br>
+<span style="font-size:4em">4. April Fools Day 2012, the Rocky Mountain Oyster Stout was released. The beer is 7.5% ABV and contains roasted bull testicles.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020052/87177716/balls.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">5. They handled this much better than I would have. Its my phone number now, I dont have to tell you sh*t! Goodbye.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115744/87177591/hangry.jpg" style="width:100%"><br>
+<span style="font-size:4em">5. Egyptians would hold what was known as the feast of drunkenness. It was to commemorate beer saving humanity. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020126/87177721/egyptian.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115820/87177592/rice.jpg" style="width:100%"><br>
+<span style="font-size:4em">6. During WWII, the British built a floating brewery to keep soldiers morale high.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020134/87177722/floating.jpg" style="width:100%"><br>
 
-<span style="font-size:4em">7. Prank Sinatra wins. Go f**k yourself dude. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115934/87177593/end.jpg" style="width:100%"><br>
+<span style="font-size:4em">7. Multiple breweries have created their own versions of The Simpsons beer. Most were also met with lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020115/87177718/duff.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. Since 2011, Fosters Lager has been brewed in Texas and was sued in 2015 for their slogan Australian for beer. Which implies its an imported beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020135/87177723/fosters.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. A town-crier was hired in Goslar, Germany to remind the townspeople not to poop or pee in the river the day before water was used for brewing beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020137/87177724/goseriver.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Beer bottles are typically brown in order to keep out the sun and preserve the taste. However, after WWII brown glass was scarce so breweries switched to green instead.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020145/87177725/greenbottle.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Mainly in Britain, Isinglass (dried fish bladder) is used to clarify beer and wine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020147/87177726/isinglass.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. The beer mile is an event where runners drink a pint of beer at each quarter-mile marker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020156/87177728/mile.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. During fasts, Medieval Monks would drink beer because it didnt count as food.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020158/87177729/monks.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. In 1985 an alcoholic hijacker drank all of the beer on a Norwegian plane and held the passengers ransom for more alcohol.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020200/87177730/norway.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. In multiple countries, kids leave out beer and other spirits for Santa Clause instead of milk and cookies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020207/87177731/santa.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. Mari Lwyd is a Welsh Christmas tradition where a singing horse skull shows up at your house to determine if it can come inside and drink your beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020148/87177727/marilwyd.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. It is impossible to drink beer in space, as it will turn to foam.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020209/87177732/space.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. 23 beer can tabs when traded in are worth 1 cent. A pound of tabs comes out to about 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020211/87177733/tabs.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. A goat in Valhalla was thought by Vikings to provide them with mead/beer directly from its udders.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020218/87177734/vikings.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Children in Wisconsin can legally drink at any age, as long as they are accompanied by a parent or guardian.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020220/87177735/wisconsin.jpg" style="width:100%"><br>
 
 ## <a href="#linky7" id="linky6">27 Useless Pieces of Advice From the Internet</a><br>
 
@@ -635,7 +631,267 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 
 <span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87168353.jpeg" style="width:100%"><br>
 
-## <a href="#linky13" id="linky12">The Funniest Struggle Tweets of the Week </a><br>
+## <a href="#linky13" id="linky12">40 Adult Themed Memes for Your Lowbrow Sense of Humor</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173855.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173856.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173859.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173864.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173866.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173869.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173870.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173871.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173876.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173879.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173882.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173889.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173890.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173891.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173893.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2104182/87173897.jpeg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113732/87177560/87151331.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113745/87177561/87151346.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113756/87177562/87151341.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113802/87177563/87151333.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113808/87177564/87151352.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113814/87177565/87151355.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113819/87177566/87151357.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113826/87177567/87151359.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113830/87177568/87153826.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113837/87177569/87153830.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113841/87177570/87159316.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113848/87177571/87159317.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113852/87177572/87159319.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113859/87177573/87159329.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113903/87177574/87159340.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">32. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113910/87177575/87159344.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">33. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113914/87177576/87159353.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">34. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113921/87177577/87159354.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">35. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113925/87177578/87164103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">36. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113932/87177579/87164106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">37. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113936/87177580/87164111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">38. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113943/87177581/87164112.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">39. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113947/87177582/87164128.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">40. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/113954/87177583/87164140.jpg" style="width:100%"><br>
+
+## <a href="#linky14" id="linky13">25 Minor Life-Hacks That Have a Big Impact </a><br>
+
+<span style="font-size:4em">1.  ”Give a crying kid water. Most of the time they start crying for a reason but continue crying because they cant snap out of it. Drinking the water forces them to take a breath and the sensation of the water gets them to think about something else briefly enough to settle them..” - hanginonwith2fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158834.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2.  “I put my car keys on items I want to take with me when I leave a place.” - yesyesitswayexpired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158835.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3.  “When microwaving bread, fries, etc. make sure to put a microwavable cup or coffee mug half full of water in the microwave with the food as well. Everything will come out nice and crispy as opposed to soggy and gross.” - RedmanYehman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158836.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. “In a similar vein, Ive found that sprinkling leftover rice with a bit of water makes it way better for reheating quickly in the microwave. Just run your fingers under the faucet and give it a couple sprinkles.” - OssimPossim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158837.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5.  “You can get a lot of free stuff from your local library, but my personal favorite is the free museum pass program.” - bowlbettertalk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158838.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. “Use your microwave at ~70% power for 1.25-1.5 longer time. Much better heat distribution for your food” - UgglyCasanova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158839.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7.  “Every time you lent your friends something take a pic of them next to it. Always works” - DEFranco123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158840.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. “Teaching someone what you have just learned , you will retain the information 90% better than any other method” - spaithe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158841.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9.  “Windows + V Opens your clipboard and stores 25 items that you have copied” - Qu33nM4ry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158842.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10.  “Mix baking soda and water to form a paste, apply to an area that has a splinter. This will usually pull that sucker right out.” - shartnado3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158843.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11.  “There is a 24-hour rule on all airfare purchases (in the US) that a purchased reservation can be canceled within 24 hours without penalty and with a full refund to the original form of payment.” - Brilliant_Badger_475</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158844.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. “I keep a laundry basket in the trunk of my car so when i get groceries i can put the bags in the basket and mqke the trip inside a LOT less of a struggle haha” - Fit-Toe-1817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158845.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13.  “If you have a problem with wasps, this is the perfect time of year to make a fake nest. Crumble up a brown paper bag into a round shape and put in your window or on your balcony. Wasps are stupid as hell but they are territorial and will think its another wasps nest. And they will tell their friends to avoid the area.” - ipakookapi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158846.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14.  “If you cant open a jar or container, run the lid under hot water for 30 seconds. Then open it after it has dried enough for you to get a good grip on it. This has never failed to work for me. Theres a lot of good material on this page!” - oliverchensley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158847.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15.  “If you mess up, just admit you messed up. If you forgot to do something at work just say yes that was my fault, im sorry, I messed up. People are much more likely to forgive you if you own your shit.” - Kittobear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158848.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16.  “Add a paper towel to a bag of spinach, field greens, or lettuce to make it last a lot longer.” - xDraXXus757x</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158849.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17.  “Clean out the lint filter on your tumble drier after every use. It takes seconds and could save your life....” - Summerofmylife71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158850.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18.  “Buy a six foot phone charging cord.” - bjanas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158851.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19.  “At Christmas, when you have a real tree and its hard to see the water level in the reservoir due to the lower branches, throw a ping pong ball in the water. Add water until the ping pong ball resurfaces. Also, store your lights around cardboard tubes, like wrapping paper or paper towel tubes. Make a 1 slit in either side to slide the cord end through. Not only do they stay neat and tidy in storage without getting tangled, but theyre also easier to put on the tree (and you can roll them onto the tube while taking them off). And you can plug them in to test, and easily be able to spot a blown/faulty bulb so you can replace it.” - SolidDoctor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158852.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. “Get a furniture dolly. Get a stepladder. Get several pairs of scissors. Put one in each utility drawer or junk drawer in your home. For us its kitchen, living room, bathroom, bedroom. In general, if youre looking for a household tool and its not where you first looked: Once you do find it, when youre done using it, put it back where you first looked for it. Your brain has already decided thats where it should live. Next time, itll be exactly where you expected it to be, without you even having to think about it.” - lucia-pacciola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158853.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. “Wear sunscreen, even if it isn’t that sunny out. UV can still go right through light cloud cover.” - Taman_Should</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158854.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22.  “Maybe this is a European thing, but anyway. Some hotel rooms have a slot where youre supposed to insert your keycard to turn on the electricity in the room. Those slots are in no way part of the keycard system and are just dumb switches that can be activated with any card that fits the slot. Good to know if you want to run the AC or charge your devices while being out of the room.” - captain_longstocking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158855.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23.  “Best hornet/wasp/ant killer I know is plain old dish soap mixed with water in a spray bottle. The ratio isnt that important, just put a big squirt in there and shake it up. Doesnt stain, its safe around pets/kids, and will instantly kill most bugs. Wasps literally fall out of the air dead as soon as the mist hits them. (Bugs breathe through tiny pores in their exoskeleton, so tiny that water cant get in due to surface tension. Soap is a surfactant, it reduces surface tension, which means water now goes into those pores and drowns them.)” - MyNameIsRay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158856.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24.  “Working with a partner is not about compromising on every decision. Sometimes their idea needs to just win. And visa versa.” - leftside72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158857.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. “In the dishwasher - throw any citrus peel into the utensil rack and wash; the citric acid released inside your dishwasher will degunk/clean it and make your dishes sparkly clean. to reduce the effort when cleaning your shower -- go to the dollar store and buy those dish stick scrubbers where you can fill the handle with dish soap. I use a mix of diluted dawn dish soap (with water and I add a bit of vinegar). Keep that in the shower and scrub the walls/floor when in the shower! makes cleaning the fucking shower less effort and you can actually extend the time between cleanings. Gets rid of soap scum and prevents mold from forming.” - rudebish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158858.jpg" style="width:100%"><br>
+
+## <a href="#linky15" id="linky14">Entitled Boomer Craving Chinese Food Gets Instant Karma</a><br>
+
+<span style="font-size:4em">1. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115419/87177586/begin.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115430/87177587/phone.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115507/87177588/bye.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115656/87177590/ten.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. They handled this much better than I would have. Its my phone number now, I dont have to tell you sh*t! Goodbye.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115744/87177591/hangry.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115820/87177592/rice.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Prank Sinatra wins. Go f**k yourself dude. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/115934/87177593/end.jpg" style="width:100%"><br>
+
+## <a href="#linky16" id="linky15">24 Redneck Fixes We Wish We’d Thought Of</a><br>
+
+<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
+
+## <a href="#linky17" id="linky16">29 Times Things Escalated Way too Quickly</a><br>
+
+<span style="font-size:4em">1. Forget ant traps, it might be time to call the exterminator.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176656.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">2. This is something you dont want to see as a parent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176689.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">3. This is just nasty. And also probably a heart attack waiting to happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176687.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">4. Whats good for the goose... ugh never mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176657.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176658.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176660.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176661.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176662.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176663.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">10. Now that is one expensive whoops!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176664.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176665.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176666.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176667.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176668.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176669.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176670.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176671.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176672.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176673.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176674.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176675.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176676.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">23. I for one welcome our robot overlords.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176679.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176677.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176686.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176690.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176691.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176692.jpg" style="width:100%"><br>
+
+<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176693.jpg" style="width:100%"><br>
+
+## <a href="#linky18" id="linky17">The Funniest Struggle Tweets of the Week </a><br>
 
 <span style="font-size:4em">1. Lmao. If only this were true. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169807.jpg" style="width:100%"><br>
 
@@ -698,260 +954,4 @@ She lived until the age of 75.</span><br><img src="https://cdn.ebaumsworld.com/m
 <span style="font-size:4em">30. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169836.jpeg" style="width:100%"><br>
 
 <span style="font-size:4em">31. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87169837.jpg" style="width:100%"><br>
-
-## <a href="#linky14" id="linky13">25 Things That Stopped Being Cool About 10 Years Ago</a><br>
-
-<span style="font-size:4em">1. Passing out free USB flash drives as a promotional item for a company.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176136.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Pretending to drink beer from your iPhone 2.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176137.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Wearing mustache-themed apparel and buying songs for $0.99 on iTunes. Would be rather strange to do that nowadays.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176138.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Showing people cool apps on your phone.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176139.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Using a phone with a physical keyboard.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176140.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Silly Bands; I loved those things so much, but God forbid I pay up to $10 for rubber bands in the shape of animals.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176141.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Naming your daughter Isis.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176142.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Coughing on an airplane.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176143.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. My back, ooof.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176144.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Buying a pizza for 1 BTC.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176145.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Using a Blackberry.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176146.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Using copyrighted stuff on the internet rather freely.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176147.png" style="width:100%"><br>
-
-<span style="font-size:4em">13. Blizzard Entertainments reputation.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176148.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. One Directions career path.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176149.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. The name Karen was just a vanilla white girl name.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176150.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Game of Thrones.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176151.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. The career of Kevin Spacey.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176152.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Bumping Gangnam Style.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176153.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Thats gay.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176154.png" style="width:100%"><br>
-
-<span style="font-size:4em">20. The yogurt in the back of my fridge.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176155.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Oscar, you’re gay, BOOM roasted.”</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176156.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. America’s Next Top Model, looking back at that show now as an adult, there was SO much morally and ethically wrong. No wonder my generation has so many issues.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176157.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. The price of houses.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176158.jpeg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Russias image as a world power.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176159.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. Saying that you really admire Bill Cosby.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2559883/87176160.jpg" style="width:100%"><br>
-
-## <a href="#linky15" id="linky14">25 Minor Life-Hacks That Have a Big Impact </a><br>
-
-<span style="font-size:4em">1.  ”Give a crying kid water. Most of the time they start crying for a reason but continue crying because they cant snap out of it. Drinking the water forces them to take a breath and the sensation of the water gets them to think about something else briefly enough to settle them..” - hanginonwith2fingers</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158834.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2.  “I put my car keys on items I want to take with me when I leave a place.” - yesyesitswayexpired</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158835.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3.  “When microwaving bread, fries, etc. make sure to put a microwavable cup or coffee mug half full of water in the microwave with the food as well. Everything will come out nice and crispy as opposed to soggy and gross.” - RedmanYehman</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158836.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. “In a similar vein, Ive found that sprinkling leftover rice with a bit of water makes it way better for reheating quickly in the microwave. Just run your fingers under the faucet and give it a couple sprinkles.” - OssimPossim</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158837.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5.  “You can get a lot of free stuff from your local library, but my personal favorite is the free museum pass program.” - bowlbettertalk</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158838.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. “Use your microwave at ~70% power for 1.25-1.5 longer time. Much better heat distribution for your food” - UgglyCasanova</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158839.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7.  “Every time you lent your friends something take a pic of them next to it. Always works” - DEFranco123</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158840.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. “Teaching someone what you have just learned , you will retain the information 90% better than any other method” - spaithe1</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158841.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9.  “Windows + V Opens your clipboard and stores 25 items that you have copied” - Qu33nM4ry</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158842.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10.  “Mix baking soda and water to form a paste, apply to an area that has a splinter. This will usually pull that sucker right out.” - shartnado3</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158843.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11.  “There is a 24-hour rule on all airfare purchases (in the US) that a purchased reservation can be canceled within 24 hours without penalty and with a full refund to the original form of payment.” - Brilliant_Badger_475</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158844.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. “I keep a laundry basket in the trunk of my car so when i get groceries i can put the bags in the basket and mqke the trip inside a LOT less of a struggle haha” - Fit-Toe-1817</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158845.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13.  “If you have a problem with wasps, this is the perfect time of year to make a fake nest. Crumble up a brown paper bag into a round shape and put in your window or on your balcony. Wasps are stupid as hell but they are territorial and will think its another wasps nest. And they will tell their friends to avoid the area.” - ipakookapi</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158846.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14.  “If you cant open a jar or container, run the lid under hot water for 30 seconds. Then open it after it has dried enough for you to get a good grip on it. This has never failed to work for me. Theres a lot of good material on this page!” - oliverchensley</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158847.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15.  “If you mess up, just admit you messed up. If you forgot to do something at work just say yes that was my fault, im sorry, I messed up. People are much more likely to forgive you if you own your shit.” - Kittobear</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158848.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16.  “Add a paper towel to a bag of spinach, field greens, or lettuce to make it last a lot longer.” - xDraXXus757x</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158849.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17.  “Clean out the lint filter on your tumble drier after every use. It takes seconds and could save your life....” - Summerofmylife71</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158850.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18.  “Buy a six foot phone charging cord.” - bjanas</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158851.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19.  “At Christmas, when you have a real tree and its hard to see the water level in the reservoir due to the lower branches, throw a ping pong ball in the water. Add water until the ping pong ball resurfaces. Also, store your lights around cardboard tubes, like wrapping paper or paper towel tubes. Make a 1 slit in either side to slide the cord end through. Not only do they stay neat and tidy in storage without getting tangled, but theyre also easier to put on the tree (and you can roll them onto the tube while taking them off). And you can plug them in to test, and easily be able to spot a blown/faulty bulb so you can replace it.” - SolidDoctor</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158852.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. “Get a furniture dolly. Get a stepladder. Get several pairs of scissors. Put one in each utility drawer or junk drawer in your home. For us its kitchen, living room, bathroom, bedroom. In general, if youre looking for a household tool and its not where you first looked: Once you do find it, when youre done using it, put it back where you first looked for it. Your brain has already decided thats where it should live. Next time, itll be exactly where you expected it to be, without you even having to think about it.” - lucia-pacciola</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158853.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. “Wear sunscreen, even if it isn’t that sunny out. UV can still go right through light cloud cover.” - Taman_Should</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158854.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22.  “Maybe this is a European thing, but anyway. Some hotel rooms have a slot where youre supposed to insert your keycard to turn on the electricity in the room. Those slots are in no way part of the keycard system and are just dumb switches that can be activated with any card that fits the slot. Good to know if you want to run the AC or charge your devices while being out of the room.” - captain_longstocking</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158855.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23.  “Best hornet/wasp/ant killer I know is plain old dish soap mixed with water in a spray bottle. The ratio isnt that important, just put a big squirt in there and shake it up. Doesnt stain, its safe around pets/kids, and will instantly kill most bugs. Wasps literally fall out of the air dead as soon as the mist hits them. (Bugs breathe through tiny pores in their exoskeleton, so tiny that water cant get in due to surface tension. Soap is a surfactant, it reduces surface tension, which means water now goes into those pores and drowns them.)” - MyNameIsRay</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158856.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24.  “Working with a partner is not about compromising on every decision. Sometimes their idea needs to just win. And visa versa.” - leftside72</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158857.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. “In the dishwasher - throw any citrus peel into the utensil rack and wash; the citric acid released inside your dishwasher will degunk/clean it and make your dishes sparkly clean. to reduce the effort when cleaning your shower -- go to the dollar store and buy those dish stick scrubbers where you can fill the handle with dish soap. I use a mix of diluted dawn dish soap (with water and I add a bit of vinegar). Keep that in the shower and scrub the walls/floor when in the shower! makes cleaning the fucking shower less effort and you can actually extend the time between cleanings. Gets rid of soap scum and prevents mold from forming.” - rudebish</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/2588334/87158858.jpg" style="width:100%"><br>
-
-## <a href="#linky16" id="linky15">29 Times Things Escalated Way too Quickly</a><br>
-
-<span style="font-size:4em">1. Forget ant traps, it might be time to call the exterminator.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176656.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. This is something you dont want to see as a parent.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176689.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. This is just nasty. And also probably a heart attack waiting to happen.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176687.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Whats good for the goose... ugh never mind.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176657.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176658.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176660.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176661.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176662.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176663.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Now that is one expensive whoops!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176664.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176665.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176666.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176667.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176668.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176669.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176670.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176671.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176672.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176673.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176674.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176675.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176676.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. I for one welcome our robot overlords.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176679.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176677.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">25. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176686.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">26. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176690.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">27. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176691.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">28. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176692.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">29. </span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/604025/87176693.jpg" style="width:100%"><br>
-
-## <a href="#linky17" id="linky16">24 Redneck Fixes We Wish We’d Thought Of</a><br>
-
-<span style="font-size:4em">1. Teamwork makes the dream work.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177089.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. Perfection.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177090.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. Classy and sassy.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177091.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. Makes sense to me.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177092.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Like new!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177093.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. Just a little PVC pipe and a can-do attitude.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177094.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Snow aint gonna plow itself.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177105.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. This is art.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177095.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. Work smarter, not harder.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177096.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. This looks delicious.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177098.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Im assuming they cleaned it first.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177099.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. Mobile home.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177100.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. God can deal with it.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177101.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. Baby on board.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177102.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. Gotta get those channels</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177103.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. If it works, it works.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177097.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. Innovation at its finest.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177104.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. Never buying a pump again.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177106.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. Convenience is key!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177107.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Hey whatever works, man.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177108.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">21. Yum.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177109.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">22. Lets goooo!</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177110.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">23. He was a sk8r boi, she said see ya later boi.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177111.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">24. Actually pretty cool.</span><br><img src="https://cdn.ebaumsworld.com/mediaFiles/picture/718392/87177112.jpg" style="width:100%"><br>
-
-## <a href="#linky18" id="linky17">Beer Facts for Casual Drinkers and Alcoholics Alike</a><br>
-
-<span style="font-size:4em">1. Colt 45 was named after the Baltimore Colts, and not the gun by the same name.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020104/87177717/colt.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">2. The MLB told Cardinals owner August Busch Jr. that he couldnt name their field Budweiser Stadium. He did however use his familys name, and had them brew a beer after the fact. Hence Busch Beer and Busch Stadium.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177719/buschstadium.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">3. In a blind taste testing, beer enthusiasts couldnt actually tell if a beer was poured from a can or a bottle.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020122/87177720/bottlecan.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">4. April Fools Day 2012, the Rocky Mountain Oyster Stout was released. The beer is 7.5% ABV and contains roasted bull testicles.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020052/87177716/balls.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">5. Egyptians would hold what was known as the feast of drunkenness. It was to commemorate beer saving humanity. </span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020126/87177721/egyptian.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">6. During WWII, the British built a floating brewery to keep soldiers morale high.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020134/87177722/floating.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">7. Multiple breweries have created their own versions of The Simpsons beer. Most were also met with lawsuits.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020115/87177718/duff.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">8. Since 2011, Fosters Lager has been brewed in Texas and was sued in 2015 for their slogan Australian for beer. Which implies its an imported beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020135/87177723/fosters.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">9. A town-crier was hired in Goslar, Germany to remind the townspeople not to poop or pee in the river the day before water was used for brewing beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020137/87177724/goseriver.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">10. Beer bottles are typically brown in order to keep out the sun and preserve the taste. However, after WWII brown glass was scarce so breweries switched to green instead.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020145/87177725/greenbottle.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">11. Mainly in Britain, Isinglass (dried fish bladder) is used to clarify beer and wine.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020147/87177726/isinglass.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">12. The beer mile is an event where runners drink a pint of beer at each quarter-mile marker.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020156/87177728/mile.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">13. During fasts, Medieval Monks would drink beer because it didnt count as food.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020158/87177729/monks.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">14. In 1985 an alcoholic hijacker drank all of the beer on a Norwegian plane and held the passengers ransom for more alcohol.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020200/87177730/norway.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">15. In multiple countries, kids leave out beer and other spirits for Santa Clause instead of milk and cookies.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020207/87177731/santa.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">16. Mari Lwyd is a Welsh Christmas tradition where a singing horse skull shows up at your house to determine if it can come inside and drink your beer.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020148/87177727/marilwyd.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">17. It is impossible to drink beer in space, as it will turn to foam.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020209/87177732/space.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">18. 23 beer can tabs when traded in are worth 1 cent. A pound of tabs comes out to about 50 cents.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020211/87177733/tabs.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">19. A goat in Valhalla was thought by Vikings to provide them with mead/beer directly from its udders.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020218/87177734/vikings.jpg" style="width:100%"><br>
-
-<span style="font-size:4em">20. Children in Wisconsin can legally drink at any age, as long as they are accompanied by a parent or guardian.</span><br><img src="https://cdn.ebaumsworld.com/2022/05/27/020220/87177735/wisconsin.jpg" style="width:100%"><br>
 
